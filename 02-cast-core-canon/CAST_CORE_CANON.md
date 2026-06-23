@@ -1,218 +1,254 @@
-# Cast Core Canon — Reset Tahap 1
+# Cast Core Canon — Reset Tahap 2
 
 ## Status Canon
 
-Dokumen ini menggantikan struktur cast lama.
+Dokumen ini menggantikan reset tahap 1.
 
-Fokus cast sekarang bukan lagi memperkenalkan banyak tokoh besar sejak awal, tetapi membangun karakter yang punya fungsi emosional langsung terhadap Kael.
+Fokus baru: karakter awal harus membuat luka Kael lebih dekat, lebih manusiawi, dan lebih sulit dilupakan.
 
 Prinsip utama:
 
-- Kael tetap pusat cerita.
-- Karakter awal harus dekat dengan luka Kael.
-- Tokoh besar seperti Sylvara, Rowan, Malakar, dan organisasi besar ditahan dulu.
-- Season 1 harus terasa manusiawi, lokal, dan menyakitkan sebelum skala cerita membesar.
+> Cast awal bukan untuk memperluas cerita, tetapi untuk membuat Kael punya sesuatu yang terasa hampir seperti rumah sebelum ia kehilangan tempatnya.
 
 ---
 
-# I. Hirarki Cast Baru
+# I. Hirarki Cast
 
 Cast dibagi menjadi 5 lapisan:
 
-1. **Inti Emosional Awal** — tokoh yang membentuk luka Kael di Emberwake.
-2. **Tekanan Sistem Awal** — tokoh resmi yang membuat masalah Kael menjadi urusan lebih besar.
-3. **Jaringan Kabar Angin** — tokoh jalanan yang membuat nama Kael menyebar dan berubah.
-4. **Poros Emosional Lanjutan** — tokoh yang masuk setelah Kael keluar dari Emberwake.
-5. **Ancaman Jauh** — tokoh besar yang hanya boleh terasa sebagai bayangan untuk fase jauh.
+1. **Luka Rumah** — orang-orang Emberwake yang hampir menerima Kael.
+2. **Tekanan Resmi** — orang-orang yang membawa sistem catatan ke desa.
+3. **Kabar Angin** — orang-orang yang membuat cerita Kael bergerak.
+4. **Jangkar Lanjutan** — tokoh yang masuk setelah Kael membawa luka Emberwake.
+5. **Cermin dan Bayangan Jauh** — tokoh besar yang ditahan sampai waktunya tepat.
 
 ---
 
-# II. Inti Emosional Awal
+# II. Luka Rumah
 
 ## 1. Kael Drayven
 
-- **Peran:** Protagonis utama.
-- **Fungsi naratif:** Pusat luka, pusat kabar angin, dan pusat konflik identitas.
-- **Keinginan awal:** diterima oleh satu tempat saja.
-- **Luka utama:** takut bahwa dirinya memang sesuatu yang pantas disembunyikan, dipakai, atau dijauhi.
+- **Peran:** protagonis utama.
+- **Fungsi:** pusat luka, pusat rumor, pusat konflik identitas.
+- **Keinginan awal:** ingin tetap menjadi bagian kecil dari Emberwake.
+- **Luka awal:** orang yang ia selamatkan tidak lagi melihatnya dengan cara yang sama.
 
-Kael tidak boleh terasa seperti pahlawan besar di awal.
-
-Ia harus terasa seperti anak yang kesepian, terlalu peka terhadap Aether, dan terlalu sering dianggap bahaya saat ia mencoba menolong.
+Kael harus terasa sebagai orang yang sudah terbiasa menjaga jarak, tetapi diam-diam masih berharap ada yang tetap tinggal.
 
 ## 2. Zhorin
 
-- **Peran:** Ayah angkat, pelatih, pelindung, dan penjara pertama Kael.
-- **Fungsi naratif:** sumber perlindungan sekaligus luka.
-- **Konflik dengan Kael:** Kael ingin kebenaran; Zhorin ingin Kael tetap hidup.
+- **Peran:** ayah angkat, pelatih, pelindung, dan penjara pertama Kael.
+- **Fungsi:** cinta yang salah bentuk.
+- **Relasi dengan Kael:** Zhorin melindungi Kael dari luar, tetapi menutup terlalu banyak pintu dari dalam.
 
-Zhorin tidak boleh ditulis sebagai mentor keren saja.
+Zhorin tidak boleh hanya menjadi mentor kuat.
 
-Ia harus terasa seperti seseorang yang mencintai dengan cara keras, salah, dan membuat Kael merasa dikurung.
+Ia harus menjadi orang yang membuat pembaca paham bahwa perlindungan bisa terasa seperti kurungan.
+
+Konflik inti:
+
+> Kael ingin diberi kebenaran agar bisa hidup sebagai dirinya. Zhorin menahan kebenaran karena takut Kael tidak akan selamat setelah mengetahuinya.
 
 ## 3. Tessa Runehand
 
-- **Peran:** Pandai besi Emberwake.
-- **Fungsi naratif:** orang dewasa lokal yang hampir percaya pada Kael, tetapi belum cukup berani melindunginya.
-- **Relasi dengan Kael:** berutang nyawa anaknya pada Kael, tetapi takut kedekatan dengan Kael akan menyeret Elio ke bahaya.
+- **Peran:** pandai besi Emberwake, ibu Elio.
+- **Fungsi:** rasa terima kasih yang kalah oleh rasa takut.
+- **Relasi dengan Kael:** Tessa tahu Kael menyelamatkan Elio, tetapi setelah melihat tanda spiral, ia tidak bisa membiarkan Elio sedekat dulu.
 
-Tessa penting karena ia memperlihatkan konflik warga biasa: mereka bisa tahu Kael tidak jahat, tetapi tetap takut berdiri di sisinya.
+Tessa tidak boleh ditulis sebagai pengkhianat.
+
+Ia harus terasa sebagai ibu yang baik, justru karena itu reaksinya menyakiti Kael.
+
+Konflik Tessa:
+
+> Ia ingin membalas kebaikan Kael, tetapi naluri seorang ibu membuat tangannya lebih cepat menarik Elio menjauh.
 
 ## 4. Elio Ash
 
-- **Peran:** Anak kecil yang diselamatkan Kael.
-- **Fungsi naratif:** luka kecil yang paling menyakitkan bagi Kael.
-- **Relasi dengan Kael:** Kael menyelamatkannya, tetapi Elio tetap takut ketika melihat tanda spiral dan Aether di tangan Kael.
+- **Peran:** anak kecil yang diselamatkan Kael.
+- **Fungsi:** luka paling kecil tetapi paling tajam.
+- **Relasi awal:** sebelum insiden, Elio adalah anak yang masih berani mengikuti Kael, bertanya, dan memanggil namanya tanpa beban.
+- **Relasi setelah insiden:** Elio tetap hidup, tetapi cara ia memandang Kael berubah.
 
-Elio bukan sekadar korban insiden.
+Elio tidak membenci Kael.
 
-Ia adalah bukti bahwa Kael bisa melakukan hal benar dan tetap terasa salah di mata orang lain.
+Itu justru yang membuatnya lebih sakit.
+
+Ia hanya takut.
+
+Fungsi emosional Elio:
+
+> Bukti bahwa Kael bisa menyelamatkan tubuh seseorang, tetapi belum tentu menyelamatkan hubungan mereka.
 
 ## 5. Maeron Vell
 
-- **Peran:** Pemilik rumah singgah tua di Emberwake.
-- **Fungsi naratif:** gerbang pertama kabar angin.
-- **Relasi dengan Kael:** mengenal Kael cukup lama untuk tahu ia bukan monster, tetapi juga cukup realistis untuk tahu cerita tentang Kael akan bernilai mahal di jalan.
+- **Peran:** pemilik rumah singgah tua.
+- **Fungsi:** pintu pertama kabar keluar dari Emberwake.
+- **Relasi dengan Kael:** Maeron mengenal Kael sebagai pemuda pendiam, tetapi rumah singgahnya hidup dari cerita.
 
-Maeron harus ambigu.
+Maeron tidak harus jahat.
 
-Ia bukan musuh besar, tetapi satu kalimatnya di rumah singgah bisa membuat nama Kael berjalan lebih jauh dari yang seharusnya.
+Ia cukup realistis.
+
+Satu cerita yang dibiarkan hidup di mejanya bisa menjadi awal nama Kael berjalan terlalu jauh.
 
 ## 6. Sister Vaine
 
 - **Peran:** penjaga rumah suci kecil Emberwake.
-- **Fungsi naratif:** suara sunyi yang memahami rasa takut warga, tetapi tidak sepenuhnya menghakimi Kael.
-- **Relasi dengan Kael:** tidak ramah, tidak takut, tetapi mengamati.
+- **Fungsi:** pengamat sunyi.
+- **Relasi dengan Kael:** tidak menghibur dengan mudah, tetapi juga tidak cepat menghakimi.
 
-Sister Vaine menjadi tempat cerita bisa menyentuh sisi spiritual kecil tanpa langsung membuka kosmologi besar.
+Sister Vaine penting karena diamnya berbeda dari diam warga lain.
+
+Ia bukan diam karena takut.
+
+Ia diam karena sedang menimbang sesuatu.
 
 ## 7. Corren Pike
 
 - **Peran:** pedagang/kusir lokal.
-- **Fungsi naratif:** pembawa kabar pertama dari Emberwake ke jalur luar.
-- **Relasi dengan Kael:** sering bercanda, tetapi bisa menjadi sumber awal rumor tanpa sepenuhnya sadar akibatnya.
+- **Fungsi:** mulut pertama yang membuat kejadian kecil menjadi cerita jalanan.
+- **Relasi dengan Kael:** cukup akrab untuk bercanda, tidak cukup peka untuk tahu candanya bisa melukai.
 
-Corren penting karena kabar besar sering dimulai dari mulut orang kecil yang merasa hanya sedang bercerita.
+Corren adalah contoh bahwa kabar besar sering lahir dari orang kecil yang tidak merasa sedang melakukan sesuatu yang penting.
+
+## 8. Harland
+
+- **Peran:** kepala dusun Emberwake.
+- **Fungsi:** rasa takut kolektif desa.
+- **Relasi dengan Kael:** tidak membenci Kael, tetapi akan memilih keamanan desa lebih dulu.
+
+Harland bukan pengecut kosong.
+
+Ia adalah orang lemah yang dipaksa menjadi wajah desa saat kekuasaan resmi datang.
 
 ---
 
-# III. Tekanan Sistem Awal
+# III. Tekanan Resmi
 
 ## 1. Registry-Reader
 
 - **Peran:** perwakilan Luminal Registry.
-- **Fungsi naratif:** wajah sistem resmi yang sopan, bersih, dan menekan.
-- **Cara menyerang:** bukan dengan amarah, tetapi dengan pertanyaan, catatan, lambang, dan prosedur.
+- **Fungsi:** tekanan sistem yang rapi.
+- **Cara kerja:** bertanya, mencatat, membaca pola, memakai segel, dan membuat orang kecil merasa bersalah.
 
-Registry-Reader harus membuat pembaca tidak nyaman sebelum pembaca memahami penuh apa itu Registry.
+Registry-Reader harus terasa menakutkan tanpa perlu kasar.
+
+Ia membuat satu desa berubah hanya dengan kalimat yang terlalu rapi.
 
 ## 2. Ser Caldris
 
 - **Peran:** pendamping lapangan Registry.
-- **Fungsi naratif:** celah manusiawi di dalam sistem.
-- **Relasi dengan Kael:** bukan sekutu bersih, tetapi orang yang mulai lelah melihat sistem melukai orang kecil.
+- **Fungsi:** celah manusiawi di dalam sistem.
+- **Relasi dengan Kael:** bukan sekutu bersih, tetapi orang yang melihat bahwa prosedur juga bisa melukai.
 
 Caldris tidak boleh langsung menjadi penyelamat.
 
-Ia harus tetap bagian dari struktur yang bermasalah, meski punya rasa bersalah.
-
-## 3. Harland
-
-- **Peran:** kepala dusun Emberwake.
-- **Fungsi naratif:** wajah orang kecil yang takut pada kekuasaan resmi.
-- **Relasi dengan Kael:** tidak membenci Kael, tetapi akan memilih keselamatan desa lebih dulu.
-
-Harland penting untuk menunjukkan bahwa pengkhianatan kecil sering lahir dari rasa takut, bukan kebencian.
+Ia harus berada di wilayah abu-abu.
 
 ---
 
-# IV. Jaringan Kabar Angin
+# IV. Kabar Angin
 
-## 1. Pembawa Angin
+## 1. Jaringan Kabar Angin
 
-- **Peran:** orang-orang yang membawa, membumbui, dan menjual cerita.
-- **Bentuk:** pedagang, penyanyi jalanan, pemilik rumah singgah, juru tulis murah, pekerja karavan, pemabuk, pengungsi, atau orang bayaran.
-- **Fungsi naratif:** membuat versi palsu Kael menyebar lebih cepat daripada Kael sendiri.
+- **Bentuk:** jaringan longgar dari rumah singgah, pedagang, karavan, pamflet, penyanyi, juru tulis, dan orang bayaran.
+- **Fungsi:** membuat cerita tentang Kael bergerak lebih cepat daripada Kael sendiri.
 
-Pembawa Angin bukan organisasi rapi.
+Jaringan ini bukan organisasi megah.
 
-Mereka adalah jaringan longgar yang hidup dari kabar.
+Ia harus terasa seperti bagian alami dari jalanan Veyrath.
 
-## 2. Juru Tulis Pamflet
+## 2. Pembawa Angin
 
-- **Peran:** orang yang menulis versi murah dari cerita Kael.
-- **Fungsi naratif:** mengubah desas-desus lisan menjadi benda yang bisa disebarkan.
+- **Peran:** orang yang membawa, membumbui, dan menjual cerita.
+- **Fungsi:** membuat versi palsu Kael terdengar lebih mudah dipercaya daripada Kael asli.
 
-Pamflet pertama tentang Anak Spiral bisa menjadi titik penting karena sejak itu Kael bukan lagi hanya dibicarakan, tetapi mulai didokumentasikan secara liar.
+Pembawa Angin dapat berupa siapa saja.
 
-## 3. Penyanyi Murah
+Justru itu yang membuatnya sulit dihentikan.
 
-- **Peran:** penghibur jalanan yang mengubah cerita Kael menjadi lagu kasar.
-- **Fungsi naratif:** membuat kabar tentang Kael masuk ke telinga orang yang tidak membaca pamflet.
+## 3. Juru Tulis Pamflet
+
+- **Peran:** penulis murah yang membuat kabar lisan menjadi benda.
+- **Fungsi:** membuat cerita tentang Anak Spiral lebih tahan lama.
+
+Pamflet pertama tentang Kael harus terasa sebagai momen penting.
+
+Sejak ditulis, rumor tidak lagi hanya lewat mulut.
+
+## 4. Penyanyi Murah
+
+- **Peran:** pengubah kabar menjadi lagu.
+- **Fungsi:** membuat cerita salah mudah diingat.
 
 Lagu tentang Kael tidak harus benar.
 
-Justru semakin salah, semakin mudah diingat.
+Justru semakin sederhana dan salah, semakin cepat menyebar.
 
 ---
 
-# V. Poros Emosional Lanjutan
+# V. Jangkar Lanjutan
 
 ## 1. Sylvara
 
-- **Peran:** orang pertama yang melihat Kael sebagai manusia, bukan ancaman, alat, atau pewaris.
-- **Fungsi naratif:** jangkar emosional lanjutan.
-- **Waktu masuk:** setelah Kael keluar dari Emberwake.
+- **Peran:** orang pertama yang berani tinggal setelah Kael yakin semua orang akan mundur.
+- **Fungsi:** jangkar emosional lanjutan.
+- **Waktu masuk:** setelah Kael membawa luka Emberwake.
 
-Sylvara tidak boleh cepat menjadi pasangan romantis.
+Sylvara tidak boleh langsung menjadi pasangan.
 
-Ia harus lebih dulu menjadi orang yang berani tinggal saat orang lain mundur.
+Ia harus lebih dulu menjadi orang yang membuat Kael bingung karena tidak pergi.
 
 ## 2. Tarran of the Forge
 
-- **Peran:** teman perjalanan dan pembuat alat/senjata.
-- **Fungsi naratif:** membumikan perjalanan Kael setelah Emberwake.
+- **Peran:** teman perjalanan dan pembuat alat.
+- **Fungsi:** membumikan perjalanan setelah Emberwake.
 
-Tarran bisa masuk setelah dunia material lebih luas dibuka.
+Tarran masuk setelah dunia material di luar desa mulai terbuka.
 
-## 3. Ceyna the Pulsebound
+## 3. Ceyna
 
 - **Peran:** lawan moral dari sisi sistem.
-- **Fungsi naratif:** menunjukkan bahwa tidak semua orang sistem busuk, tetapi sistem tetap bisa salah.
+- **Fungsi:** menunjukkan bahwa tidak semua orang dalam sistem itu kosong, tetapi sistem tetap bisa salah.
 
-Ceyna tidak boleh masuk terlalu cepat agar tidak menumpuk cast awal.
+Ceyna tidak aktif di Season 1.
 
 ---
 
-# VI. Cermin Gelap dan Ancaman Jauh
+# VI. Cermin dan Bayangan Jauh
 
 ## 1. Rowan
 
 - **Peran:** cermin gelap Kael.
-- **Fungsi naratif:** menunjukkan apa yang bisa terjadi jika luka Kael berubah menjadi pembenaran untuk menghancurkan semuanya.
-- **Waktu masuk:** bukan Season 1 sebagai tokoh aktif utama.
+- **Fungsi:** orang yang memilih menjadi versi dirinya yang ditakuti orang lain.
 
-Rowan harus terasa personal, bukan sekadar rival keren.
+Rowan harus personal.
 
-## 2. Malakar the Hollow
+Ia bukan sekadar rival.
 
-- **Peran:** ancaman jauh terhadap keberadaan Kael sebagai manusia.
-- **Fungsi naratif:** bukan musuh awal, tetapi bayangan ontologis untuk fase besar nanti.
-- **Waktu masuk:** jauh setelah akar emosional Kael kuat.
+Ia adalah kemungkinan buruk dari luka Kael.
 
-Malakar tidak boleh tampil penuh di awal.
+## 2. Malakar
 
-Jika disiratkan, cukup lewat mimpi buruk, istilah patah, atau reaksi Aether yang belum punya nama.
+- **Peran:** bayangan jauh.
+- **Fungsi:** ancaman terhadap identitas Kael sebagai manusia.
+
+Malakar tidak muncul penuh di awal.
+
+Namanya boleh ditahan sampai akar emosional kuat.
 
 ---
 
-# VII. Tokoh yang Ditahan Dulu
+# VII. Tokoh yang Ditahan
 
-Tokoh berikut tidak aktif penuh di awal:
+Belum aktif penuh di awal:
 
+- Sylvara,
 - Rowan,
 - Malakar,
-- anggota Covenant,
+- Covenant,
+- Fragmen,
 - mayoritas tokoh kekaisaran,
 - Thiel,
 - Nira,
@@ -221,19 +257,21 @@ Tokoh berikut tidak aktif penuh di awal:
 - Kaz,
 - Renn.
 
-Mereka bukan dibuang.
+Mereka tidak dibuang.
 
-Mereka ditahan agar Season 1 punya ruang bernapas.
+Mereka ditahan agar luka Emberwake punya ruang bernapas.
 
 ---
 
 # VIII. Aturan Pemakaian Cast
 
-1. Season 1 hanya memakai karakter yang langsung menyentuh luka Emberwake.
-2. Tokoh baru harus punya fungsi emosional, bukan hanya desain keren.
-3. Tidak boleh memperkenalkan banyak nama besar sebelum pembaca peduli pada Kael.
-4. Setiap karakter harus menekan salah satu sisi Kael: rasa ingin diterima, rasa takut, kemarahan, keraguan, atau kebutuhan akan kebenaran.
-5. Karakter lokal tidak boleh terasa sebagai NPC kosong.
+1. Tokoh awal harus punya fungsi emosional langsung.
+2. Elio harus menjadi luka hidup, bukan korban plot.
+3. Tessa harus terasa sebagai ibu, bukan pengkhianat.
+4. Zhorin harus melindungi dan menyakiti secara bersamaan.
+5. Registry harus sopan, bukan kasar.
+6. Pembawa Angin harus terasa biasa, bukan terlalu megah.
+7. Tokoh besar masuk setelah pembaca peduli pada Kael.
 
 ---
 
@@ -241,10 +279,8 @@ Mereka ditahan agar Season 1 punya ruang bernapas.
 
 Cast awal Kael Drayven berpusat pada Emberwake: Kael, Zhorin, Tessa, Elio, Maeron, Sister Vaine, Corren, Harland, Registry-Reader, dan Ser Caldris.
 
-Mereka cukup untuk membangun luka awal Kael tanpa membuka terlalu banyak tokoh besar.
+Season awal berhasil jika pembaca merasa bahwa Kael tidak kehilangan sebuah kerajaan.
 
-Sylvara, Rowan, Malakar, dan tokoh-tokoh besar lain tetap disimpan untuk fase berikutnya.
+Ia kehilangan sesuatu yang lebih sederhana dan lebih sakit:
 
-Prinsip utama:
-
-> Sebelum Kael bertarung melawan kekuatan besar, ia harus lebih dulu terluka oleh orang kecil, rumah kecil, dan kabar kecil yang tumbuh menjadi sesuatu yang tidak bisa ia kendalikan.
+cara seorang anak kecil memanggil namanya tanpa takut.
