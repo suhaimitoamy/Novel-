@@ -1,12 +1,12 @@
-# Alur Utama Canon — Reset Tahap 1
+# Alur Utama Canon — Reset Tahap 3
 
 ## Status Canon
 
-Dokumen ini menggantikan struktur alur lama.
+Dokumen ini menggantikan reset tahap 1.
 
-Arah baru cerita dimulai dari Emberwake, Benua Veyrath, Aether, Luminal Registry, dan Jaringan Kabar Angin.
+Arah baru cerita dimulai dari Emberwake, Paku Bulan, Elio, Zhorin, Luminal Registry, dan Jaringan Kabar Angin.
 
-Fokus utama bukan skala besar sejak awal, tetapi perjalanan Kael dari pemuda tanpa catatan resmi menjadi sosok yang harus menghadapi nama, rumor, dan warisan lamanya.
+Fokus utama bukan skala besar sejak awal, tetapi perjalanan Kael dari pemuda yang hampir dipercaya menjadi sosok yang harus menghadapi rumor, catatan, dan warisan lama.
 
 ---
 
@@ -14,11 +14,12 @@ Fokus utama bukan skala besar sejak awal, tetapi perjalanan Kael dari pemuda tan
 
 1. Kael harus terasa manusia lebih dulu.
 2. Emberwake harus menjadi luka awal.
-3. Aether diperlihatkan lewat pengalaman.
-4. Registry menjadi tekanan resmi.
-5. Jaringan Kabar Angin menjadi tekanan sosial.
-6. Nama Drayven dibuka bertahap.
-7. Konflik besar disimpan sampai fondasi emosional kuat.
+3. Paku Bulan harus menjadi simbol kecil yang membekas.
+4. Aether diperlihatkan lewat pengalaman.
+5. Registry menjadi tekanan resmi.
+6. Jaringan Kabar Angin menjadi tekanan sosial.
+7. Nama Drayven dibuka bertahap.
+8. Konflik besar disimpan sampai fondasi emosional kuat.
 
 ---
 
@@ -30,11 +31,19 @@ Kael hidup di desa kecil Emberwake bersama Zhorin.
 
 Ia ingin hidup tenang, tetapi kemampuannya membaca Aether membuatnya berbeda dari orang lain.
 
+Sebelum insiden tungku, Elio memberi Kael **Paku Bulan**, paku bengkok kecil dari bengkel Tessa yang bentuknya seperti bulan sabit.
+
+Benda itu sederhana, tetapi bagi Kael menjadi bukti bahwa ia pernah hampir dipercaya.
+
 Insiden tungku di bengkel Tessa menjadi titik awal. Kael menolong Elio, tetapi tanda spiral dan cara Aether bergerak di sekitarnya membuat warga mulai menjaga jarak.
 
-Luminal Registry datang mencari anak tanpa catatan.
+Elio selamat, tetapi tidak lagi memanggil Kael dengan cara yang sama.
 
-Season awal ditutup ketika Kael sadar Emberwake bukan rumah aman, melainkan tempat persembunyian yang mulai terbuka.
+Tessa mengirim Elio pergi sebelum tekanan Registry membesar.
+
+Zhorin mengetahui hal itu dan tidak memberi Kael kesempatan berpamitan.
+
+Fase awal ditutup ketika Kael meninggalkan Emberwake membawa Paku Bulan.
 
 ## Fase 2 — Kabar Angin
 
@@ -42,11 +51,7 @@ Setelah Emberwake, cerita tentang Kael bergerak lewat jalur perbatasan, rumah si
 
 Kael menemukan bahwa orang-orang di luar sudah mengenalnya melalui versi yang tidak utuh.
 
-Sebagian takut.
-
-Sebagian kagum.
-
-Sebagian ingin memakai namanya.
+Ralen, penjaga kandang di jalur perbatasan, menjadi bukti pertama: ia menolak Kael bukan karena mengenal Kael, tetapi karena kabar tentang Anak Spiral sudah sampai lebih dulu.
 
 Fase ini membuat Kael berhadapan dengan reputasi palsu dirinya sendiri.
 
@@ -91,6 +96,7 @@ Kael harus tetap menjadi manusia, bukan sekadar simbol, alat, legenda, atau nama
 - Kabar angin harus memengaruhi keputusan karakter.
 - Zhorin tetap menjadi konflik personal utama.
 - Emberwake harus terus membekas walau cerita membesar.
+- Paku Bulan harus muncul sebagai pengingat, bukan artefak besar.
 - Nama Drayven tidak boleh dibuka penuh terlalu cepat.
 
 ---
@@ -99,7 +105,7 @@ Kael harus tetap menjadi manusia, bukan sekadar simbol, alat, legenda, atau nama
 
 Alur utama Kael Drayven bergerak dari Emberwake menuju Veyrath yang lebih luas.
 
-Cerita dimulai dari satu insiden kecil, satu tanda spiral, satu desa yang mulai berbisik, dan satu lembaga resmi yang datang membawa pertanyaan.
+Cerita dimulai dari satu paku bengkok, satu anak yang percaya, satu tungku putih, satu tanda spiral, satu desa yang mulai berbisik, dan satu pintu pertama yang tertutup karena kabar sudah sampai lebih dulu.
 
 Dari sana, Kael harus menghadapi tiga hal sekaligus:
 
