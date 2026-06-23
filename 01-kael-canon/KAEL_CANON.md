@@ -212,11 +212,19 @@ Canon penting:
 
 ---
 
-# IX. Penyulam Kabar
+# IX. Jaringan Kabar Angin
 
-**Penyulam Kabar** bukan organisasi resmi besar di awal cerita.
+**Jaringan Kabar Angin** bukan organisasi resmi besar di awal cerita.
 
-Mereka adalah jaringan longgar yang hidup dari cerita:
+Ia adalah jaringan longgar yang hidup dari kabar, gosip, cerita setengah benar, dan kebohongan yang terdengar cukup menarik untuk dijual.
+
+Di Veyrath, kabar angin bukan sekadar desas-desus. Ia dibawa, dipotong, dibumbui, lalu dijual lagi oleh orang-orang yang tahu bahwa cerita bisa lebih mahal daripada kebenaran.
+
+Orang-orang yang bergerak di dalam jaringan ini biasa disebut:
+
+> **Pembawa Angin**
+
+Mereka bisa berupa:
 
 - pedagang,
 - penyanyi jalanan,
@@ -226,7 +234,8 @@ Mereka adalah jaringan longgar yang hidup dari cerita:
 - pengungsi,
 - pemabuk,
 - pekerja karavan,
-- pembawa pesan setengah resmi.
+- pembawa pesan setengah resmi,
+- orang bayaran yang sengaja menanam cerita palsu.
 
 Mereka tidak selalu jahat.
 
@@ -238,9 +247,14 @@ Fungsi naratif mereka:
 - membuat sebagian orang takut sebelum bertemu Kael,
 - membuat sebagian orang kagum tanpa tahu faktanya,
 - membuat pemburu, pejabat, dan oportunis tertarik,
-- mengubah kebaikan kecil Kael menjadi legenda berbahaya.
+- mengubah kebaikan kecil Kael menjadi legenda berbahaya,
+- memberi ruang bagi pihak tertentu untuk sengaja melebih-lebihkan cerita tentang Kael.
 
-Penyulam Kabar membuat Kael berhadapan bukan hanya dengan musuh nyata, tetapi dengan versi palsu dirinya sendiri.
+Jaringan Kabar Angin membuat Kael berhadapan bukan hanya dengan musuh nyata, tetapi dengan versi palsu dirinya sendiri.
+
+Canon penting:
+
+> Sebelum Registry menemukan Kael, Jaringan Kabar Angin sudah lebih dulu menciptakan monster dari namanya.
 
 ---
 
@@ -473,7 +487,7 @@ Saat ia menyelamatkan Elio dari ledakan tungku Aether, warga Emberwake mulai mel
 
 Namun bahaya terbesar bukan hanya Registry.
 
-Bahaya terbesar adalah cerita tentang Kael yang mulai menyebar.
+Bahaya terbesar adalah Jaringan Kabar Angin yang mulai menyebarkan cerita tentang dirinya.
 
 Di penjuru Benua Veyrath, orang-orang mulai membicarakan Anak Spiral, Bocah Tungku Putih, anak yang katanya bisa memerintah Aether dan tidak terbakar api.
 
@@ -483,7 +497,7 @@ Sebagian kagum.
 
 Sebagian ingin memanfaatkannya.
 
-Sebagian ingin membunuhnya sebelum desas-desus itu menjadi nyata.
+Sebagian ingin membunuhnya sebelum kabar angin itu menjadi nyata.
 
 Kael tidak hanya harus mencari siapa dirinya.
 
