@@ -1,352 +1,293 @@
-# Chapter 02 — Bright Cloth on Mud
+# BAB 02 — Cara Orang Mundur
 
-> **Season:** Ashes Before the Name  
-> **Arc:** Ember at the Edge  
-> **POV:** Kael Drayven  
-> **Status:** Canon Draft Prose
+Menjelang sore, Emberwake berhenti berbicara pada Kael dengan cara yang biasa.
 
-Tidak ada seorang pun di Emberwake yang bergerak seperti orang-orang dari selatan.
+Tidak ada yang mengusirnya.
 
-Warga dusun berjalan sambil menjaga tenaga, seperti mereka sudah belajar sejak kecil bahwa setiap langkah yang salah bisa berubah jadi lapar, luka, atau utang baru. Mereka membungkuk sedikit saat membawa air, menarik bahu ke dalam saat angin turun, dan menatap orang asing seperti seseorang menilai retakan pada dinding rumahnya sendiri.
+Tidak ada yang menuduhnya.
 
-Orang-orang yang turun dari kereta itu tidak demikian.
+Tidak ada yang mengangkat batu, pisau, atau kata-kata kasar.
 
-Mereka turun seolah jalan becek, pagar miring, dan rumah-rumah sempit di sekitar alun-alun hanyalah gangguan kecil yang tak berhak menyentuh garis lurus tubuh mereka. Yang pertama keluar adalah laki-laki berusia sekitar empat puluh dengan jubah terang yang jatuh bersih sampai lutut, tanpa satu pun bekas lumpur di ujungnya. Terang itu bukan putih. Lebih buruk. Warna yang dibuat untuk tampak suci dari kejauhan dan mahal dari dekat.
+Justru karena itu semuanya terasa lebih buruk.
 
-Di dadanya, lambang logam kecil memantulkan cahaya pagi yang tipis: lingkaran terbuka dengan tiga garis halus menurun ke pusat.
+Ketika Kael melewati sumur, dua perempuan yang sedang mencuci kain berhenti bicara. Saat ia masuk ke rumah singgah Maeron untuk mengambil obat luka pesanan Zhorin, suara gelas di meja terdengar terlalu keras karena percakapan mendadak mati.
 
-Kael belum pernah melihatnya langsung.
+Maeron Vell berdiri di belakang meja kayu panjangnya, satu tangan memegang kain lap. Pria tua itu biasanya selalu punya komentar untuk siapa pun yang masuk. Tentang cuaca. Tentang harga garam. Tentang kusir yang terlalu banyak minum. Tentang Harland yang terlihat seperti ayam basah setiap kali pajak desa disebut.
 
-Tapi darah di tubuhnya bereaksi seolah lambang itu pernah menyentuh rumah yang tak lagi diingat kepalanya.
+Hari itu ia hanya menatap tangan kanan Kael.
 
-Di belakang pria berjubah, seorang perempuan turun dengan gerakan lebih tenang. Armor kulitnya berlapis logam pucat, praktis tapi jelas bukan buatan bengkel kecil seperti milik Tessa. Rambutnya diikat rapat di tengkuk. Pedang panjang tergantung di punggungnya, terlalu dekat ke bahu untuk jadi hiasan. Wajahnya datar, mata kelabunya menyapu dusun tanpa jijik dan tanpa hormat—sekadar menghitung titik lemah.
+Kael menutup jari-jarinya.
 
-Tiga orang lain tetap dekat kereta. Penunggang yang Kael lihat tadi tidak turun. Ia hanya membiarkan kudanya menggeser satu kaki ke kiri, lalu satu kaki ke kanan, seperti makhluk itu pun tahu bahwa dusun kecil seperti Emberwake lebih pantas diinjak perlahan daripada dipercayai penuh.
+“Tiga botol akar pahit,” katanya.
 
-Zhorin berdiri satu langkah di depan Kael sekarang.
+Maeron berkedip, lalu bergerak terlalu cepat, seolah ia baru sadar bahwa diamnya sudah terlalu lama.
 
-Pria itu tidak menoleh saat bicara. “Apa pun yang kau rasakan,” katanya rendah, “jangan biarkan terlihat di wajahmu.”
+“Untuk Zhorin?”
 
-Kael menatap punggung lebar itu. “Kalau mereka memang datang karena aku, wajahku tidak akan mengubah apa pun.”
+Kael mengangguk.
 
-“Kalau mereka datang karena orang lain, wajahmu bisa mengubah segalanya.”
+“Luka lama?”
 
-Itu cukup masuk akal untuk membuat Kael membencinya lebih cepat.
+“Bukan urusanmu.”
 
-Di alun-alun, warga mulai berkumpul tanpa sadar mereka sedang berkumpul. Orang-orang tidak pernah benar-benar mendekati pusat peristiwa ketika takut. Mereka membentuk lingkaran longgar: cukup dekat untuk mendengar, cukup jauh untuk nanti berpura-pura tidak tahu apa-apa bila masalah berubah jadi darah.
+Biasanya Maeron akan tertawa.
 
-Corren Pike menarik keledainya ke samping sumur sambil menggerutu pelan, tapi matanya tak lepas dari lambang di dada pria berjubah. Tessa berdiri di depan bengkelnya dengan lengan menyilang, Elio setengah bersembunyi di belakang pinggangnya. Sister Vaine muncul di depan rumah suci kecilnya, lampu yang tadi dibawanya kini tergantung di kusen pintu seperti titik api yang menolak padam. Maeron Vell, pemilik rumah singgah tua di jalan utara, berdiri di tepi alun-alun dengan wajah batu yang membuatnya terlihat seperti pagar yang tumbuh dari tanah.
+Hari itu ia tidak tertawa.
 
-Tak ada satu pun dari mereka tampak bersenjata.
+Ia mengambil tiga botol kecil dari rak belakang, membungkusnya dengan kain, lalu menaruhnya di meja. Matanya naik sekali lagi ke tangan Kael, kemudian cepat-cepat turun.
 
-Itu justru membuat Kael lebih gelisah.
+Di sudut ruangan, Corren Pike duduk bersama dua pedagang asing. Topinya basah. Sepatunya penuh lumpur. Ia sedang menceritakan sesuatu saat Kael masuk, tetapi cerita itu patah di tengah kalimat.
 
-Orang-orang lemah selalu paling telanjang saat kekuasaan resmi datang.
+“Api putih itu rupanya pilih-pilih tangan, ya?” kata Corren akhirnya, mencoba tertawa.
 
-Pria berjubah melangkah ke tengah alun-alun. Ia tidak mengangkat suara, tapi cara ia berdiri membuat desa kecil itu memusat padanya seolah semua pagar, sumur, dan rumah sengaja dibangun untuk menghadapkan penduduk pada momen ini.
+Tidak ada yang ikut tertawa.
 
-“Aku mencari kepala dusun Emberwake,” katanya.
+Corren sendiri menyesal bahkan sebelum kalimatnya selesai.
 
-Suaranya jernih, tenang, dan bersih dari dialek perbatasan. Suara orang yang tumbuh dengan keyakinan bahwa kata-kata adalah alat yang akan dipatuhi dunia bila diucapkan dengan cukup rapi.
+Kael mengambil bungkusan obat.
 
-Tak ada yang langsung menjawab.
+“Berapa?”
 
-Kael hampir bisa merasakan Aether halus di sekitar orang itu. Tidak kuat. Tidak menekan. Tapi tertata. Setiap suku kata turun dengan resonansi yang dijaga, cukup untuk membuat suara menempuh ruang tanpa perlu diteriakkan. Cara yang elegan untuk memaksa perhatian tanpa terlihat sedang memaksa.
+Maeron menyebut angka yang lebih murah dari biasanya.
 
-Jadi beginilah, pikir Kael. Bukan Aether yang liar. Bukan kekuatan yang diburu. Kekuatan yang disetrika sampai tampak seperti adab.
+Kael meletakkan koin sesuai harga biasa.
 
-Akhirnya seorang pria kurus dengan selendang wol yang terlalu besar untuk bahunya maju setengah langkah dari kerumunan. Kepala dusun, Harland, tampak seperti orang yang setiap hari berharap tidak perlu menjadi orang pertama yang disebut saat kesalahan terjadi.
+Maeron hendak menolak, lalu tidak jadi.
 
-“Aku,” katanya. “Ada urusan apa dengan Emberwake?”
+Ketika Kael keluar, ia mendengar salah satu pedagang bertanya dengan suara rendah, “Itu anaknya?”
 
-Pria berjubah mengeluarkan tabung kecil dari sabuknya. Bukan senjata. Tempat gulungan tipis dari logam dan kertas. Ia membuka segelnya, membiarkan lembar tipis bergulir sebagian, lalu membaca dengan mata yang jelas sudah tahu isinya.
+Tidak ada yang menjawab.
 
-“Atas nama Luminal Registry of Aelarion,” katanya, “kami sedang menelusuri jejak garis darah, warisan, dan pemindahan tak tercatat yang berhubungan dengan perintah pemulihan arsip terdahulu.”
+Jawaban tidak dibutuhkan saat semua orang sudah melihat cukup banyak.
 
-Tidak ada yang mengerti kalimat itu sepenuhnya.
+Di luar, langit Emberwake menjadi abu-abu. Asap bengkel Tessa tidak lagi putih, tetapi bau logam panas masih mengambang di jalan. Kael berjalan pelan. Botol obat di tangannya berdenting kecil.
 
-Kael tahu dari wajah-wajah sekitar. Tessa memicingkan mata seperti orang yang baru mendengar bahasa mahal dijual per kata. Corren terlihat hampir tertawa, tapi menahannya karena lambang resmi di dada pria itu terlalu terang untuk ditertawakan. Harland hanya berkedip beberapa kali seperti kuda yang menolak melihat api.
+Di depan bengkel, Elio duduk di bangku kayu.
 
-Zhorin, tentu saja, tidak bergerak sedikit pun.
+Anak itu memegang selimut kecil di pangkuannya. Rambutnya sudah dibersihkan, tetapi sisa arang masih menempel di bawah telinga. Tessa berada di dekat pintu, memeriksa rantai tungku yang terlepas.
 
-Pria berjubah menurunkan gulungan. “Kami mencari catatan keberadaan seorang anak laki-laki yang dibawa ke utara hampir lima belas tahun lalu, bersama satu atau lebih pengawal yang tidak tercatat secara resmi dalam daftar perlintasan selatan.”
+Kael berhenti.
 
-Kerongkongan Kael menegang.
+Elio melihatnya.
 
-Bukan karena ia kaget.
+Mulut anak itu terbuka sedikit, seperti hendak memanggil.
 
-Karena ternyata tubuhnya memang sudah tahu kalimat seperti ini akan datang, bahkan sebelum kepalanya sempat menyusun kemungkinan bentuknya.
+Kael menunggu.
 
-Harland berdeham. “Emberwake menerima banyak orang lewat jalan ini. Kadang tinggal beberapa bulan, kadang semalam, kadang…” Ia menelan. “Kadang kami tidak tanya terlalu banyak.”
+Satu tarikan napas.
 
-“Kelalaian perbatasan bukan hal baru,” jawab pria berjubah. Tidak menghina. Justru lebih buruk—ia mengatakannya seperti seseorang menyebut cuaca. “Namun tetap perlu diperbaiki.”
+Dua.
 
-Perempuan bersenjata di belakangnya mulai bergerak perlahan di pinggir alun-alun, seolah tidak sedang melakukan apa-apa. Tapi matanya singgah satu per satu pada wajah penduduk. Menghitung usia. Tinggi badan. Tangan kapalan. Bahu yang terlalu tegang.
+Tessa menoleh.
 
-Ketika matanya sampai pada Kael, ia berhenti sepersekian detik lebih lama daripada yang lain.
+Elio menunduk.
 
-Lalu berjalan lagi.
+Tidak jadi memanggil.
 
-Kael merasakan tanda tipis di telapak kirinya seperti luka yang belum sempat muncul. Ia menggulung jari-jari ke dalam mantel.
+Kael menggenggam botol obat terlalu erat sampai kaca tipisnya mengeluarkan bunyi kecil.
 
-“Apa nama anak itu?” tanya Harland, terlalu cepat.
+Tessa menyadari suara itu. Ia berdiri lebih tegak, lalu berjalan mendekat. Tidak terlalu dekat. Cukup dekat untuk terdengar sopan. Cukup jauh untuk membuat jarak itu terasa disengaja.
 
-Kesalahan.
+“Kael,” katanya.
 
-Orang yang tidak tahu apa-apa tidak bertanya seperti itu. Mereka bertanya kenapa ini penting, atau kenapa urusan lama dibawa ke dusun kecil seperti mereka. Menanyakan nama berarti mengakui bahwa ada bentuk manusia tertentu yang lebih menakutkan daripada sekadar “anak laki-laki.”
+Tidak ada kebencian di sana.
 
-Kael melihatnya. Zhorin melihatnya. Perempuan bersenjata itu juga melihatnya.
+Itu yang membuatnya semakin sulit.
 
-Pria berjubah tersenyum kecil. Tidak hangat. Hanya cukup untuk menandai bahwa ia menyukai celah yang dibuat orang lain untuknya.
+“Terima kasih untuk tadi.”
 
-“Jika kami memiliki nama yang terjaga utuh,” katanya, “kami tidak akan perlu bertanya kepada dusun seukuran ini.”
+Kael mengangguk.
 
-Sunyi jatuh lebih rapat sesudah itu.
+“Kau terluka?”
 
-Di kejauhan, ada bunyi kayu dipecah. Seseorang di rumah pinggir dusun memutuskan tetap bekerja, mungkin karena takut kalau berhenti justru akan dianggap sedang mendengar. Bau bubur jelai tipis naik dari salah satu jendela. Begitulah dunia kecil bertahan: bahkan saat sesuatu besar datang menatapnya, ia tetap harus merebus sarapan.
+“Tidak.”
 
-“Siapa namamu?” tanya pria berjubah kepada Harland.
+Itu bohong.
 
-“Kepala dusun tahu namaku.”
+Tessa tahu.
 
-“Bukan pertanyaan untuk kepala dusun.”
+Kael tahu Tessa tahu.
 
-Ia sedang bicara pada kerumunan sekarang.
+Tapi kebohongan kecil kadang menjadi cara paling sopan untuk tidak memaksa orang lain mendekat.
 
-Tidak memilih orang tertentu. Itu membuatnya lebih berbahaya.
+“Elio masih kaget,” kata Tessa.
 
-Karena setiap orang mendadak merasa bisa jadi orang yang seharusnya menjawab.
+“Aku tahu.”
 
-“Kalau ada yang pernah datang ke sini dengan anak yang tidak punya catatan, dengan luka yang terlalu bagus untuk perbatasan, dengan barang yang seharusnya tidak dibawa orang miskin, atau dengan alasan tinggal yang tidak rapi,” lanjutnya, “sekarang waktunya bicara.”
+“Dia belum mengerti.”
 
-Tak seorang pun bergerak.
+“Aku tahu.”
 
-Kael bisa mendengar napas Elio di belakang Tessa. Cepat, kecil, seperti anak itu takut kalau udara yang ia ambil terlalu banyak akan terdengar oleh orang-orang berseragam.
+“Bukan karena dia membencimu.”
 
-Zhorin menggeser berat tubuh sedikit. Gerakan yang sangat kecil, tapi bagi Kael itu jelas: bersiap.
+Kael menatap Elio.
 
-Untuk apa? Melawan? Berbohong? Membunuh? Dengan Zhorin, pilihan-pilihan itu tidak pernah sejauh yang orang normal bayangkan.
+Anak itu masih menunduk. Jari-jarinya meremas tepi selimut. Paku Bulan tidak lagi di tangan Elio. Benda itu ada di saku Kael, dan tiba-tiba terasa seperti sesuatu yang dicuri dari waktu yang sudah selesai.
 
-Perempuan bersenjata itu akhirnya berhenti berputar. “Registry-Reader,” katanya pada pria berjubah, “lihat anak itu.”
+“Aku tahu,” kata Kael lagi.
 
-Bukan Kael.
+Tessa menelan ludah.
 
-Elio.
+Di antara mereka, Elio bergerak sedikit lebih dekat ke kaki ibunya.
 
-Semua mata bergerak terlalu cepat ke arah bocah itu. Elio langsung menempel ke sisi Tessa seperti kayu tipis yang berusaha masuk ke batang lebih besar. Wajah pandai besi itu mengeras, dan untuk pertama kalinya pagi itu, Kael melihat kemarahan yang lebih besar daripada takut di mata seseorang selain Zhorin.
+Tessa menyadari gerakan itu.
 
-“Dia bukan siapa pun yang kalian cari,” kata Tessa.
+Kael juga.
 
-“Barangkali.” Suara perempuan itu lebih kasar, lebih pendek. “Tapi dia menatap kami seperti anak yang pernah melihat simbol serupa sebelumnya.”
+Tidak ada yang mengatakan apa pun.
 
-Elio menggeleng begitu cepat sampai terlihat seperti bisa melukai lehernya sendiri. “Aku cuma lihat kereta,” katanya, lalu menunduk, suara jadi hampir hilang. “Belum pernah lihat yang begitu.”
+Tessa memegang bahu Elio. Tangannya tidak keras. Tidak kasar. Hanya hadir.
 
-Pria berjubah—Registry-Reader. Jadi itulah jabatan yang cocok untuk orang yang suaranya terdengar seperti pena resmi—berjalan dua langkah ke arah Tessa dan bocah itu.
+Tapi tubuhnya kini berada di antara Elio dan Kael.
 
-Kael bergerak sebelum memikirkan akibatnya.
+Sebelum pagi itu, posisi seperti itu tidak pernah terasa seperti pernyataan.
 
-Tidak jauh. Hanya satu langkah ke depan.
+Sekarang terasa.
 
-Tapi satu langkah itu cukup untuk mengubah geometri seluruh alun-alun.
+“Pulanglah,” kata Tessa pelan. “Zhorin pasti menunggu.”
 
-Perempuan bersenjata berbalik penuh ke arahnya. Tangan kirinya jatuh ke gagang pedang tanpa menyentuhnya. Zhorin mengucap satu kata pendek yang nyaris seperti geraman, dan Kael tahu itu peringatan, bukan panggilan namanya.
+Kael mengangguk.
 
-Registry-Reader memandang Kael untuk pertama kali secara benar.
+Ia pergi tanpa menoleh.
 
-Bukan melihat tubuh. Bukan melihat mantel. Melihat.
+Di rumah kecil di ujung desa, Zhorin memang menunggu.
 
-Aether di sekitar pria itu tidak menegang seperti saat menyerang. Ia justru menjadi lebih halus, lebih tipis. Seperti jaring yang dibasahi lalu dilempar perlahan ke atas sesuatu yang ingin dikenali bentuknya.
+Pria itu duduk dekat meja, wajahnya sebagian tertutup bayangan. Rambut putih panjangnya diikat longgar. Di depannya ada mangkuk air, kain bersih, dan pisau kecil yang biasa ia gunakan untuk memotong akar obat.
 
-Kael merasakan sentuhannya di udara. Tidak menyakitkan. Menjijikkan.
+“Duduk,” kata Zhorin.
 
-Pola-pola halus merayap di permukaan ruang antara mereka. Bacaan. Penapisan. Cara sopan untuk mencium darah orang lain tanpa mendekat cukup untuk ditampar.
+Kael meletakkan botol obat di meja.
 
-Kael menatap balik tanpa berkedip.
+“Aku bisa mengobatinya sendiri.”
 
-Ia tidak membalas. Itu akan terlalu jelas. Tapi ia membiarkan nalurinya menggeser berat resonansi di sekeliling tubuhnya, hanya sedikit, cukup untuk membuat hasil pembacaan itu tidak bersih. Bukan menutup. Menyesatkan.
+“Duduk.”
 
-Ruang di antara mereka berdenyut satu kali, hampir tak terlihat.
+Kael duduk.
 
-Mata Registry-Reader berubah.
+Zhorin mengambil tangan kanannya.
 
-Bukan karena ia tahu persis apa yang baru saja dilakukan Kael.
+Tidak ada kelembutan pada cara pria itu bekerja. Ia membersihkan kulit yang memerah, menekan bagian dekat pergelangan, lalu berhenti saat melihat sisa garis spiral yang belum sepenuhnya hilang.
 
-Karena ia tahu sesuatu di hadapannya tidak cocok dengan bentuk yang ia harapkan.
+Diamnya berubah.
 
-“Siapa kau?” tanyanya.
+Kael memperhatikan perubahan itu.
 
-Sebelum Kael menjawab, Zhorin sudah turun ke alun-alun.
+“Jadi kau tahu,” kata Kael.
 
-Langkah pria itu tidak cepat, tapi seluruh dusun terasa mengencang saat ia bergerak. Ia datang tanpa hormat dan tanpa tergesa, seperti seseorang yang tidak pernah menganggap dirinya perlu menyesuaikan tubuh pada irama orang lain.
+Zhorin tidak menjawab.
 
-“Dia anak yang kubesarkan,” kata Zhorin. “Dan Emberwake bukan tanah pencatatan milikmu.”
+“Kau tahu tanda ini akan muncul.”
 
-Perempuan bersenjata menggeser posisi, menghadap Zhorin sekarang. Jelas dia yang paling memahami apa arti tubuh besar itu, cara berdirinya, cara bahunya tidak pernah benar-benar turun bahkan saat diam.
+Zhorin membasahi kain. “Aku tahu kemungkinan itu ada.”
 
-Registry-Reader tersenyum tipis lagi. “Kalau begitu namamu seharusnya lebih dulu masuk catatan kami.”
+“Itu jawaban untuk orang bodoh.”
 
-“Kalau catatanmu cukup bagus,” kata Zhorin, “kau tidak perlu datang sejauh ini.”
+“Itu jawaban yang cukup untuk malam ini.”
 
-Untuk pertama kalinya, beberapa warga Emberwake terlihat sedikit bernapas lagi. Bukan karena mereka aman. Karena ada orang lain yang cukup besar untuk mereka jadikan tempat bersembunyi sesaat.
+Kael menarik tangannya, tetapi Zhorin menahannya lebih kuat.
 
-Kael membenci bahwa orang itu adalah Zhorin.
+“Jangan seperti anak kecil.”
 
-Registry-Reader menggulung kembali lembar tipisnya. “Nama?”
+Kael menatapnya.
 
-“Zhorin.”
+“Lucu. Kau menyembunyikan hidupku dariku, lalu marah saat aku tidak bersikap dewasa terhadap rahasia yang tidak pernah kau jelaskan.”
 
-“Terlalu pendek untuk orang yang jelas pernah hidup di tempat-tempat yang mencatat lebih dari satu nama.”
+Tangan Zhorin berhenti.
 
-“Kalau kau datang untuk menilai panjang namaku, kau salah jalan.”
+Di luar, angin menekan dinding kayu. Rumah itu berderit pelan.
 
-Sunyi lagi.
+“Nama Drayven,” kata Kael. “Itu milikku?”
 
-Lalu perempuan bersenjata berkata pelan, “Ada residu.”
+Zhorin menatap kain di tangannya.
 
-Kael tahu maksudnya sebelum wanita itu menoleh ke tungku Tessa yang kini tinggal bara. “Gangguan resonansi baru. Tidak jauh dari sini. Seseorang memaksa arah pelepasan.”
+Terlalu lama.
 
-Bodoh sekali, pikir Kael, dan tidak tahu apakah ia sedang memaki dirinya atau pagi ini secara keseluruhan.
+Kael merasakan jawabannya sebelum mendengarnya.
 
-Tessa mengumpat pelan di belakangnya.
+“Belum waktunya,” kata Zhorin.
 
-Registry-Reader menoleh ke bengkel. “Kecelakaan?”
+Sesuatu di dada Kael menjadi dingin.
 
-Tessa menatap balik. “Tungku tua. Retak. Selesai.”
+“Setelah hari ini, masih belum?”
 
-“Dan siapa yang menyelesaikannya?”
+“Terutama setelah hari ini.”
 
-“Panasnya mati sendiri.”
+Kael tertawa sekali. Pendek. Tanpa senyum.
 
-Perempuan bersenjata bahkan tidak repot menyembunyikan rasa tidak percayanya.
+“Karena aku tidak akan sanggup?”
 
-Kael bisa membiarkan kebohongan itu jatuh. Ia seharusnya membiarkannya. Zhorin pasti menginginkan itu. Tapi Elio masih berdiri di belakang Tessa, mata anak itu membesar lagi, dan Kael tahu kalau penyelidikan ini terus ditekan ke arah mereka, dusun kecil ini akan mulai mengorbankan orang-orang yang paling kecil lebih dulu. Begitulah tempat seperti Emberwake bertahan: dengan menunjuk yang paling mudah diserahkan.
+“Karena kau akan melakukan hal bodoh dengan kebenaran yang belum bisa kau tanggung.”
 
-“Cukup.” Suaranya sendiri terdengar terlalu jelas di udara pagi.
+“Kalau itu tentang diriku, harusnya aku yang menentukan.”
 
-Semua mata beralih lagi.
+“Tidak semua yang ada dalam dirimu hanya milikmu.”
 
-Zhorin tidak menoleh, tapi Kael bisa merasakan amarah dingin pria itu bahkan tanpa melihat wajahnya.
+Kalimat itu jatuh di antara mereka seperti benda tajam.
 
-“Batu tungkunya retak,” kata Kael. “Aku menggeser pelepasannya ke dinding.”
+Kael menarik tangannya.
 
-Registry-Reader memandangnya lama. “Tanpa formasi.”
+Kali ini Zhorin membiarkannya.
 
-“Tidak sempat.”
+Ia berdiri.
 
-“Tanpa alat bantu.”
+“Aku selalu mengira kau menyembunyikanku dari orang lain,” kata Kael. “Ternyata kau juga menyembunyikanku dari diriku sendiri.”
 
-“Tidak perlu.”
+Wajah Zhorin mengeras.
 
-“Kau yakin itu jawaban yang ingin kau berikan di depan semua orang ini?”
+Tetapi matanya, hanya sesaat, terlihat lelah.
 
-Kael memandang alun-alun. Wajah-wajah takut. Wajah-wajah lapar. Wajah-wajah yang tidak akan mengerti setengah dari apa yang sedang dipertukarkan, tetapi akan mengingat nadanya sampai berbulan-bulan. Tessa yang menahan anak kecil di belakang pinggangnya. Sister Vaine dengan lampu kecilnya yang masih menyala. Corren yang untuk pertama kalinya hari itu tidak tampak punya komentar.
+“Kau masih hidup karena aku melakukan itu.”
 
-Lalu ia menatap balik pria berjubah itu.
+Kael menatap tangan kanannya.
 
-“Aku yakin anak itu masih hidup.”
+Garis spiral sudah hampir hilang.
 
-Itu bukan jawaban atas pertanyaan tadi.
+Rasanya belum.
 
-Tapi Kael sengaja tidak memberinya jawaban yang bersih.
+“Dan apa yang tersisa dariku karena itu?”
 
-Sesuatu yang sangat tipis berubah di wajah Registry-Reader. Bukan marah. Minat.
+Zhorin tidak menjawab.
 
-Itu justru lebih buruk.
+Malam turun lebih cepat dari biasanya.
 
-“Namamu?” tanyanya lagi.
+Di rumah singgah Maeron, cerita pertama tentang api putih mulai berubah bentuk.
 
-Kali ini bukan ke kerumunan. Bukan ke kepala dusun. Langsung ke Kael.
+Pada mulanya, seseorang hanya berkata bahwa Kael menyentuh Aether dan tidak jatuh.
 
-Zhorin berkata, “Tidak.”
+Lalu seseorang lain berkata api itu seperti mengenal tangannya.
 
-Kael berkata, “Kael.”
+Corren, yang ingin memperbaiki candaan buruknya, justru membuatnya lebih buruk.
 
-Dua suara itu bertabrakan di udara pagi seperti baja dan tulang.
+“Bukan begitu,” katanya pada dua pedagang asing. “Dia tidak menyentuh api. Api itu yang minggir.”
 
-Untuk sepersekian detik, tak seorang pun bergerak.
+Kalimat itu membuat meja terdiam.
 
-Registry-Reader memiringkan kepala sedikit. “Hanya Kael?”
+Maeron tidak menegur.
 
-Kael menahan tatapan Zhorin di samping wajahnya seperti menahan pisau dingin yang menempel di leher. “Itu yang kupakai.”
+Tidak membenarkan.
 
-“Dan yang lain?”
+Tidak membantah.
 
-“Aku tidak punya yang lain.”
+Ia hanya mengisi gelas dan membiarkan cerita itu hidup.
 
-Itu hampir benar. Atau belum benar. Ia sendiri tidak tahu mana yang lebih mengganggu.
+Di Emberwake, kabar tidak perlu kaki.
 
-Pria berjubah menatapnya beberapa detik lagi, lalu mengangguk kecil pada perempuan bersenjata. Bukan isyarat menyerang. Isyarat mencatat.
+Ia hanya butuh mulut yang cukup hangat dan malam yang cukup panjang.
 
-Itu lebih buruk lagi.
+Di rumah Zhorin, Kael duduk sendiri di tepi ranjang kayu. Tangan kanannya terbungkus kain. Paku Bulan ia keluarkan dari saku dan letakkan di telapak tangan kiri.
 
-“Baik,” katanya. “Untuk pagi ini, cukup.”
+Benda itu tetap jelek.
 
-Pagi ini.
+Tetap bengkok.
 
-Bukan selesai.
+Tetap tidak berguna.
 
-Bukan salah orang.
+Namun pagi tadi, benda itu berarti ada seseorang yang tidak takut padanya.
 
-Cukup.
+Sore ini, Kael tidak tahu lagi apa artinya.
 
-Ia berbalik ke Harland. “Kami akan tinggal sampai senja. Kami memerlukan ruang tertutup, air bersih, dan akses penuh pada semua catatan kelahiran, kematian, perlintasan, pembelian lahan, dan pemindahan keluarga di dusun ini selama enam belas tahun terakhir.”
+Ia menutup jari-jarinya di atas paku itu.
 
-Harland tampak seperti akan mati hanya karena daftar itu terlalu panjang untuk disanggupi oleh tempat sekecil Emberwake.
+Di luar, Emberwake berbisik.
 
-Maeron akhirnya angkat suara dari tepi alun-alun. “Rumah singgahku punya dua kamar yang bisa dikunci,” katanya. “Airnya bersih kalau kalian tidak terlalu bangga untuk meminumnya.”
-
-Beberapa orang menoleh kepadanya dengan terkejut. Maeron mengangkat bahu sedikit. “Mereka akan tetap tinggal di suatu tempat. Lebih baik di tempat yang pintunya kukenal.”
-
-Untuk pertama kalinya, Kael merasa ada orang lain di dusun ini yang mengerti aturan bertahan hidup tanpa harus diajari Zhorin.
-
-Registry-Reader mengangguk. “Kau?”
-
-“Maeron Vell.”
-
-“Bagus. Tunjukkan jalannya.”
-
-Kerumunan mulai pecah perlahan. Tidak ada yang ingin jadi orang terakhir yang berdiri terlalu dekat ketika orang-orang resmi mulai memutuskan apa yang termasuk urusan mereka.
-
-Tessa menarik Elio kembali ke bengkel. Corren menuntun keledainya menjauh, kali ini tanpa suara. Sister Vaine tetap di tempatnya beberapa detik lebih lama, lampu kecil di rumah suci tetap menyala di balik bahunya seperti mata yang tidak menutup.
-
-Zhorin baru bergerak ketika hampir semua orang mulai pergi.
-
-Ia mendekati Kael tanpa tergesa. Wajahnya tetap keras, tapi sesuatu yang lebih buruk dari marah tinggal di matanya sekarang: hitung-hitungan baru.
-
-“Kau bicara terlalu cepat,” katanya.
-
-“Kalau aku tidak bicara, mereka akan menekan Tessa dan anak itu.”
-
-“Dan sekarang mereka menekanmu.”
-
-Kael menatap kereta hitam di tengah alun-alun. Roda-rodanya terlalu bersih. Lambangnya terlalu terang. Semua yang datang dari selatan pagi ini terasa seperti benda-benda yang diciptakan untuk berada jauh dari lumpur tetapi entah bagaimana selalu sampai juga ke tempat-tempat seperti ini.
-
-“Mereka sudah menekan kita sebelum turun dari kereta,” katanya.
-
-Zhorin diam sebentar. Lalu: “Malam ini kau tidak keluar rumah.”
-
-“Perintah?”
-
-“Peringatan.”
-
-“Dari mereka atau darimu?”
-
-Mata emas pria itu akhirnya bertemu penuh dengan mata Kael. “Kalau kau cukup cerdas, kau tak perlu membedakan keduanya.”
-
-Ia berbalik dan mulai berjalan kembali ke rumah.
-
-Kael tidak langsung mengikutinya.
-
-Di tengah alun-alun yang kini mulai kosong, Registry-Reader sempat menoleh sekali lagi ke arahnya. Jarak mereka cukup jauh. Tidak ada kata yang diucapkan. Tapi Kael tahu pandangan seperti itu. Bukan pandangan orang yang sudah menemukan jawaban.
-
-Pandangan orang yang akhirnya menemukan pertanyaan yang benar.
-
-Kabut pagi mulai terangkat dari jalan selatan. Di bawahnya, lumpur Emberwake tampak lebih gelap dari sebelumnya, seolah sesuatu dari dunia yang lebih besar baru saja menjejak di atasnya dan meninggalkan bayang yang tidak akan segera hilang.
-
-Kael menunduk ke telapak kirinya, tersembunyi di balik lipatan mantel.
-
-Spiral tipis itu masih ada.
-
-Dan untuk pertama kalinya, ia merasa tanda itu tidak sekadar muncul dari dalam dirinya.
-
-Ia merasa seolah sesuatu di luar sana telah melihat balasannya.
+Dan untuk pertama kalinya, Kael merasa namanya tidak lagi sepenuhnya miliknya.
