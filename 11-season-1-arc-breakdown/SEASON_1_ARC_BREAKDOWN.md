@@ -1,46 +1,52 @@
-# Season 1 Arc Breakdown — Reset Tahap 2
+# Season 1 Arc Breakdown — Reset Tahap 3
 
 ## Season 1 — Ashes Before the Name
 
 ## Status Canon
 
-Dokumen ini menggantikan reset tahap 1.
+Dokumen ini menggantikan reset tahap 2.
 
-Season 1 harus menjadi fondasi emosional novel. Fokusnya bukan hanya membuat Kael pergi dari Emberwake, tetapi membuat pembaca mengerti apa yang ia tinggalkan.
+Season 1 sekarang punya tiga jangkar emosional utama:
+
+1. **Elio** — bukti kecil bahwa Kael pernah hampir dipercaya.
+2. **Paku Bulan** — simbol sederhana dari kepercayaan itu.
+3. **Ralen** — bukti pertama bahwa kabar angin bisa menutup pintu sebelum Kael bicara.
 
 Kalimat inti:
 
-> Kael tidak kehilangan rumah besar. Ia kehilangan kemungkinan kecil untuk dipercaya.
+> Kael tidak kehilangan rumah besar. Ia kehilangan kesempatan terakhir untuk memperbaiki cara seseorang memandangnya.
 
 ---
 
 # I. Target Utama Season 1
 
-Season 1 harus membuat pembaca merasakan tujuh hal:
+Season 1 harus membuat pembaca merasakan delapan hal:
 
 1. Kael ingin hidup biasa.
 2. Elio pernah menjadi bukti kecil bahwa Kael bisa diterima.
-3. Insiden tungku menyelamatkan Elio, tetapi mengubah hubungan mereka.
-4. Tessa berterima kasih sekaligus takut.
-5. Zhorin melindungi Kael dengan cara yang membuat Kael merasa dikurung.
-6. Registry menekan desa dengan bahasa resmi.
-7. Kabar angin mengambil luka pribadi Kael dan mengubahnya menjadi cerita umum.
+3. Paku Bulan menjadi simbol kecil dari kepercayaan itu.
+4. Insiden tungku menyelamatkan Elio, tetapi mengubah hubungan mereka.
+5. Tessa berterima kasih sekaligus takut.
+6. Zhorin melindungi Kael dengan cara yang membuat Kael kehilangan kesempatan berpamitan.
+7. Registry menekan desa dengan bahasa resmi.
+8. Kabar angin mengambil luka pribadi Kael dan mengubahnya menjadi cerita umum.
 
 ---
 
 # II. Struktur Arc Season 1
 
-Season 1 dibagi menjadi 5 arc:
+Season 1 dibagi menjadi 6 arc:
 
-1. **Arc I — Sebelum Tungku Menyala**
+1. **Arc I — Paku Bulan**
 2. **Arc II — Tungku Putih**
 3. **Arc III — Cara Orang Mundur**
 4. **Arc IV — Kereta dari Selatan**
 5. **Arc V — Nama yang Tidak Dicatat**
+6. **Arc VI — Pintu Pertama yang Tertutup**
 
 ---
 
-# III. Arc I — Sebelum Tungku Menyala
+# III. Arc I — Paku Bulan
 
 ## Fungsi Arc
 
@@ -55,17 +61,21 @@ Kael hampir punya tempat di Emberwake, meski tidak utuh.
 - Pagi biasa di Emberwake.
 - Kael bekerja atau membantu tanpa banyak bicara.
 - Elio mengikuti Kael dengan rasa ingin tahu.
+- Elio menunjukkan paku bengkok dari bengkel Tessa.
+- Elio menyebut paku itu **Paku Bulan** karena bentuknya seperti bulan sabit kecil.
+- Elio memberikan benda itu kepada Kael seolah itu hadiah penting.
+- Kael menerima dengan kaku, tetapi menyimpannya.
 - Tessa membiarkan Elio dekat, walau tetap memperhatikan.
-- Zhorin menjaga jarak dan mengawasi.
 - Pembaca melihat bahwa Kael tidak sepenuhnya diterima, tetapi belum sepenuhnya ditolak.
 
 ## Adegan Wajib
 
 1. Elio memanggil Kael dengan santai.
 2. Kael menanggapi pendek, tetapi tidak mengusir.
-3. Tessa menegur Elio, bukan karena takut pada Kael, tetapi karena Elio mengganggu kerja.
-4. Warga lain memperhatikan Kael dari jauh.
-5. Kael menyadari ia hampir nyaman, lalu menahan diri.
+3. Elio memberi Kael Paku Bulan.
+4. Tessa menegur Elio karena mengganggu kerja, bukan karena takut pada Kael.
+5. Warga lain memperhatikan Kael dari jauh.
+6. Kael menyadari ia hampir nyaman, lalu menahan diri.
 
 ## Titik Balik Arc
 
@@ -93,7 +103,8 @@ Kael memilih menolong meski tahu tindakan itu akan membuatnya terlihat.
 - Elio berada terlalu dekat.
 - Tessa tidak sempat menariknya.
 - Kael masuk sebelum orang lain memahami bahaya.
-- Ia mengalihkan tekanan Aether.
+- Paku Bulan masih ada di saku Kael saat ia bergerak.
+- Kael mengalihkan tekanan Aether.
 - Elio selamat.
 - Tanda spiral terlihat.
 
@@ -102,10 +113,11 @@ Kael memilih menolong meski tahu tindakan itu akan membuatnya terlihat.
 1. Tungku menyala terlalu putih.
 2. Suara logam seperti menahan napas.
 3. Kael merasakan tekanan di bawah kulit.
-4. Tessa berteriak memanggil Elio.
+4. Tessa memanggil Elio.
 5. Kael menggerakkan Aether tanpa memahami penuh caranya.
 6. Elio jatuh selamat.
 7. Elio melihat tangan Kael dan mulai takut.
+8. Kael menyentuh Paku Bulan di sakunya setelah sadar cara Elio memandangnya berubah.
 
 ## Titik Balik Arc
 
@@ -146,6 +158,7 @@ Kael mulai merasa Emberwake berubah karena ia melakukan hal benar.
 5. Zhorin melihat tanda spiral terlalu lama.
 6. Kael menuntut jawaban.
 7. Zhorin memberi peringatan, bukan penjelasan.
+8. Kael mengeluarkan Paku Bulan, lalu menyimpannya lagi tanpa tahu harus berbuat apa.
 
 ## Titik Balik Arc
 
@@ -202,11 +215,11 @@ Registry tinggal di rumah singgah Maeron, dan malam Emberwake menjadi terlalu su
 
 ## Fungsi Arc
 
-Menutup Season 1 dengan retaknya kepercayaan Kael pada Zhorin, lahirnya kabar yang lebih luas, dan keputusan untuk meninggalkan Emberwake.
+Menutup konflik Emberwake dengan keputusan Tessa, keputusan Zhorin, dan luka yang tidak bisa diperbaiki saat itu juga.
 
 ## Fokus Emosional
 
-Kael merasa ia tidak hanya kehilangan tempat, tetapi juga kehilangan hak untuk memahami dirinya sendiri.
+Kael merasa ia tidak hanya kehilangan tempat, tetapi juga kehilangan kesempatan untuk bicara dengan Elio sebagai dirinya sendiri.
 
 ## Fokus Cerita
 
@@ -214,7 +227,9 @@ Kael merasa ia tidak hanya kehilangan tempat, tetapi juga kehilangan hak untuk m
 - Kael bertanya tentang Drayven.
 - Zhorin menolak membuka semuanya.
 - Ser Caldris memberi peringatan.
-- Maeron, Corren, atau Pembawa Angin membawa kabar keluar.
+- Tessa mengirim Elio ke kerabatnya sebelum Registry makin menekan.
+- Zhorin mengetahui rencana itu dan tidak memberi tahu Kael sampai terlambat.
+- Paku Bulan kembali kepada Kael di dekat pintu rumah Zhorin.
 - Kael melihat dampak keberadaannya pada Tessa dan Elio.
 - Kael meninggalkan Emberwake.
 
@@ -224,25 +239,61 @@ Kael merasa ia tidak hanya kehilangan tempat, tetapi juga kehilangan hak untuk m
 2. Kael bertanya apakah Drayven adalah namanya.
 3. Zhorin menahan jawaban yang paling dibutuhkan Kael.
 4. Caldris datang malam hari.
-5. Kael melihat Elio dari jauh, tetapi tidak mendekat.
-6. Kabar tentang Anak Spiral mulai berjalan.
-7. Kael pergi sebelum Emberwake benar-benar memilih menolaknya.
+5. Kael mengetahui Elio sudah pergi.
+6. Paku Bulan ditemukan di dekat pintu.
+7. Kael menyadari Zhorin tahu lebih dulu.
+8. Kael pergi sebelum Emberwake benar-benar memilih menolaknya.
 
 ## Titik Balik Arc
 
-Kael sadar bahwa tetap tinggal akan membuat orang-orang kecil semakin tertekan.
+Kael sadar bahwa tetap tinggal akan membuat orang-orang kecil semakin tertekan, tetapi pergi pun tidak mengembalikan apa yang sudah berubah.
 
-## Penutup Season
+## Penutup Arc
 
-Kael pergi membawa tiga luka:
-
-1. Elio yang tidak lagi memanggilnya seperti dulu.
-2. Zhorin yang masih menyimpan kebenaran.
-3. Kabar angin yang mulai menjadi dirinya di mata orang lain.
+Kael meninggalkan Emberwake membawa Paku Bulan.
 
 ---
 
-# VIII. Distribusi Cast Season 1
+# VIII. Arc VI — Pintu Pertama yang Tertutup
+
+## Fungsi Arc
+
+Membuktikan bahwa kabar angin sudah menjadi kekuatan nyata.
+
+## Fokus Emosional
+
+Kael sadar bahwa di luar Emberwake, orang-orang sudah punya versi dirinya sebelum ia bicara.
+
+## Fokus Cerita
+
+- Kael tiba di jalur perbatasan.
+- Ia mencari tempat berteduh atau kandang untuk bermalam.
+- Ralen, penjaga kandang, mengenali tanda di tangannya.
+- Ralen pernah mendengar cerita tentang Anak Spiral.
+- Ralen menolak Kael masuk.
+- Kael tidak membantah banyak.
+- Ia sadar kabar angin sudah berjalan lebih cepat daripada dirinya.
+
+## Adegan Wajib
+
+1. Kael mengetuk pintu kandang atau gudang kecil.
+2. Ralen melihat tangan Kael.
+3. Ralen menyebut salah satu julukan Kael.
+4. Kael sadar cerita itu sudah sampai lebih dulu.
+5. Pintu ditutup.
+6. Kael berdiri di luar dengan Paku Bulan di sakunya.
+
+## Titik Balik Arc
+
+Kael memahami bahwa meninggalkan Emberwake tidak berarti meninggalkan luka.
+
+## Penutup Season
+
+Season 1 ditutup dengan Kael berjalan di jalur perbatasan, membawa Paku Bulan, sementara cerita tentang dirinya sudah lebih dulu menunggu di tempat-tempat yang belum ia datangi.
+
+---
+
+# IX. Distribusi Cast Season 1
 
 ## Aktif Penuh
 
@@ -259,6 +310,7 @@ Kael pergi membawa tiga luka:
 - Sister Vaine
 - Corren Pike
 - Harland
+- Ralen
 
 ## Disebut / Disiratkan
 
@@ -278,33 +330,18 @@ Kael pergi membawa tiga luka:
 
 ---
 
-# IX. Red Flags Season 1
-
-Hindari:
-
-- langsung membuka konflik besar,
-- membuat Kael terlalu keren,
-- membuat Elio hanya korban insiden,
-- membuat Tessa terlihat jahat,
-- membuat Zhorin selalu benar,
-- membuat Registry terlalu kasar,
-- membuat kabar angin terasa hanya tambahan,
-- membuat Emberwake mudah dilupakan.
-
----
-
 # X. Target Hasil Emosional
 
 Di akhir Season 1, pembaca harus merasa:
 
 1. peduli pada Kael,
-2. ingat cara Elio berubah,
-3. memahami ketakutan Tessa,
-4. tidak sepenuhnya membenci Emberwake,
-5. curiga pada Registry,
-6. kesal pada Zhorin tetapi masih paham ia melindungi Kael,
-7. takut pada kabar angin yang mulai berjalan,
-8. siap mengikuti Kael keluar dari desa.
+2. ingat Paku Bulan,
+3. ingat cara Elio berubah,
+4. memahami ketakutan Tessa,
+5. kesal pada Zhorin tetapi paham alasannya,
+6. curiga pada Registry,
+7. percaya bahwa kabar angin punya akibat nyata,
+8. siap mengikuti Kael keluar dari Emberwake.
 
 ---
 
@@ -312,8 +349,10 @@ Di akhir Season 1, pembaca harus merasa:
 
 Season 1 adalah musim luka kecil.
 
-Ia dimulai bukan dari perang besar, tetapi dari pagi biasa ketika Elio masih berani memanggil nama Kael.
+Ia dimulai dari Paku Bulan, hadiah sederhana dari Elio kepada Kael.
 
-Ia berakhir ketika Kael pergi dari Emberwake dengan sadar bahwa orang yang ia selamatkan mungkin tetap hidup, tetapi hubungan mereka tidak lagi sama.
+Ia berakhir dengan pintu pertama di luar Emberwake tertutup karena orang asing lebih dulu percaya pada kabar angin daripada pada Kael yang berdiri di hadapannya.
 
-Season ini berhasil jika pembaca merasa bahwa kepergian Kael bukan awal petualangan, melainkan luka yang pelan-pelan membentuk seluruh perjalanan berikutnya.
+Season ini berhasil jika pembaca merasa bahwa Kael tidak hanya pergi dari desa.
+
+Ia pergi membawa benda kecil yang membuktikan bahwa ia pernah hampir dipercaya.
