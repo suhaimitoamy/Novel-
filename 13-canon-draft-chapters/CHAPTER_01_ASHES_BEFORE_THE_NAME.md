@@ -1,290 +1,325 @@
-# Chapter 01 — Ashes Before the Name
+# BAB 01 — Paku Bulan
 
-> **Season:** Ashes Before the Name  
-> **Arc:** Ember at the Edge  
-> **POV:** Kael Drayven  
-> **Status:** Canon Draft Prose
+Pagi di Emberwake selalu datang seperti orang yang tidak ingin membangunkan siapa pun.
 
-Kael merasakan perubahan itu sebelum angin menyentuh kulitnya.
+Kabut menggantung rendah di antara pagar kayu. Atap rumah-rumah tua masih basah oleh embun semalam. Jalan tanah di tengah desa berubah menjadi lumpur tipis yang menempel pada sol sepatu, roda gerobak, dan kaki anak-anak yang berlari terlalu pagi.
 
-Udara di atas lembah masih gelap kebiruan, dan embun menggantung di pagar kayu seperti deretan mata kecil yang belum sempat berkedip. Dari kejauhan, rumah-rumah batu dan papan di tepi dusun masih tertutup, jendela-jendelanya padam, cerobong-cerobongnya belum sepenuhnya hidup. Hari bahkan belum benar-benar lahir. Namun sesuatu di dalam dunia sudah lebih dulu bergerak.
+Kael berdiri di belakang rumah kecil Zhorin, memegang kapak dengan kedua tangan.
 
-Aether menegang.
+Kayu di depannya sudah retak setengah.
 
-Bukan suara. Bukan cahaya. Bukan pula rasa sakit yang jelas. Lebih mirip benang-benang halus yang tidak terlihat, yang sepanjang malam terbentang longgar di antara tanah, kabut, dan napas segala hal, tiba-tiba ditarik oleh tangan yang tidak sabar. Kael berdiri diam di belakang rumah kayu kecil tempat ia tidur, kapak masih tergantung longgar di tangan kanan. Sekumpulan kayu basah terbelah di samping kakinya. Ia menatap ke timur, ke arah kabut yang menutup jalan utama dusun, dan menghitung di dalam kepala.
+Ia tidak langsung mengayun.
+
+Di Emberwake, orang yang terlalu cepat bergerak mudah diperhatikan. Orang yang terlalu lama diam juga mudah diperhatikan. Kael sudah belajar sejak kecil bahwa hidup paling aman adalah berada di antara keduanya.
+
+Cukup berguna agar tidak dibenci.
+
+Cukup jauh agar tidak diingat.
+
+Kapak turun.
+
+Kayu terbelah.
+
+“Kael!”
+
+Suara itu datang sebelum langkah kecilnya.
+
+Kael mengambil kayu berikutnya dan meletakkannya di balok potong.
+
+“Elio,” katanya datar. “Kalau ibumu mencarimu, aku tidak melihatmu.”
+
+Elio Ash menyelinap lewat celah pagar yang sudah lama patah. Rambutnya berantakan, pipinya masih kotor oleh arang, dan kedua tangannya menggenggam sesuatu seolah ia baru menemukan harta dari dasar sungai.
+
+“Kalau kau tidak melihatku,” kata Elio, “kenapa kau menjawab?”
+
+Kael tidak menjawab. Kapaknya turun lagi.
+
+Elio membuka telapak tangan.
+
+Di sana ada paku bengkok.
+
+Paku itu pendek, hitam oleh sisa panas, dan ujungnya melengkung seperti bulan sabit yang gagal sempurna. Benda itu jelek. Tidak berguna. Bahkan untuk bengkel Tessa, paku seperti itu biasanya dilempar ke kaleng besi tua.
+
+Tapi mata Elio bersinar.
+
+“Aku membuat ini.”
+
+“Kau merusaknya,” kata Kael.
+
+“Itu namanya membentuk.”
+
+“Kalau ibumu tahu kau menyebut paku rusak sebagai hasil kerja, kau akan disuruh menyapu bengkel sampai malam.”
+
+Elio mendengus. “Kau tidak tahu seni.”
+
+Kael menatap paku itu sebentar. “Namanya apa?”
+
+Elio tersenyum lebar.
+
+“Paku Bulan.”
+
+Nama yang bodoh, pikir Kael.
+
+Nama yang terlalu besar untuk benda sekecil itu.
+
+Namun ia tidak mengatakan apa-apa.
+
+Elio menyodorkan paku itu. “Untukmu.”
+
+Kael tidak langsung mengambilnya. “Kenapa?”
+
+“Karena kau selalu memotong kayu sendirian.”
+
+“Itu bukan alasan.”
+
+“Karena kau tidak punya apa-apa yang bagus.”
+
+“Itu juga bukan alasan.”
+
+Elio mengangkat bahu. “Karena aku mau kasih.”
+
+Kael diam.
+
+Di kejauhan, dari arah bengkel, terdengar suara Tessa Runehand memanggil nama anaknya.
+
+Elio menoleh cepat, lalu kembali menatap Kael. “Ambil sebelum Ibu lihat.”
+
+Kael mengulurkan tangan.
+
+Saat paku bengkok itu menyentuh telapak tangannya, ia merasakan dingin besi, sisa arang, dan sesuatu yang tidak ada hubungannya dengan Aether.
+
+Sesuatu yang lebih sulit ia pahami.
+
+Kepercayaan kecil.
+
+Tidak banyak. Tidak berat. Tidak cukup untuk mengubah hidup.
+
+Tapi cukup untuk membuat dada Kael terasa sempit.
+
+“Jangan dibuang,” kata Elio.
+
+“Aku tidak bilang akan membuangnya.”
+
+“Kau juga tidak bilang akan menyimpannya.”
+
+Kael memasukkan paku itu ke saku bagian dalam mantelnya.
+
+Elio tersenyum lagi.
+
+Tessa muncul di ujung jalan kecil, celemek kulitnya penuh noda hitam. Ia berhenti saat melihat Elio bersama Kael. Untuk satu tarikan napas, wajahnya berubah. Bukan takut. Belum. Hanya waspada yang terlalu cepat disembunyikan.
+
+“Elio,” katanya, “aku menyuruhmu membawa penjepit kecil, bukan kabur ke halaman orang.”
+
+“Aku tidak kabur. Aku mengantar sesuatu.”
+
+“Ke siapa?”
+
+Elio menunjuk Kael.
+
+Kael mengangkat kapak lagi, berpura-pura tidak ada yang perlu dijelaskan.
+
+Tessa menarik napas, lalu menggeleng. “Jangan ganggu Kael bekerja.”
+
+“Aku tidak ganggu.”
+
+“Kau selalu bilang begitu tepat sebelum mengganggu.”
+
+Elio menjulurkan lidah, lalu berlari kembali ke arah ibunya.
+
+Sebelum pergi, ia menoleh dan berteriak, “Jangan hilangkan Paku Bulan!”
+
+Beberapa pintu di sekitar jalan terbuka sedikit.
+
+Satu wajah muncul dari balik tirai.
+
+Seorang lelaki tua yang membawa ember berhenti lebih lama dari yang perlu.
+
+Kael menunduk dan kembali mengatur kayu.
+
+Ia sudah terbiasa dilihat seperti itu.
+
+Tidak kasar.
+
+Tidak langsung.
+
+Hanya cukup lama untuk mengingatkan bahwa ia tidak pernah benar-benar sendirian, bahkan ketika tidak ada yang mau mendekat.
+
+Tessa menyentuh bahu Elio, mendorongnya pelan kembali ke bengkel.
+
+Kael melihat tangan itu.
+
+Tidak menarik Elio menjauh.
+
+Belum.
+
+Ia mengangkat kapak.
+
+Untuk sesaat, pagi terasa hampir biasa.
+
+Lalu udara berubah.
+
+Benang tipis yang sejak tadi menggantung di sekitar pergelangan tangannya menegang.
+
+Kael berhenti.
+
+Kapak menggantung di udara.
+
+Dari arah bengkel Tessa, terdengar suara logam jatuh.
 
 Satu.
 
-Dua.
+Lalu dua.
 
-Tiga.
+Lalu suara tungku meraung terlalu dalam.
 
-Tarikannya makin rapat.
+Kael menoleh.
 
-Ia menaruh kapak tanpa bunyi. Tulang di pergelangan tangannya terasa dingin. Bukan dingin pagi. Dingin yang datang setiap kali dunia memutuskan untuk mengingat bahwa ia dibangun di atas sesuatu yang cacat.
+Asap putih merayap keluar dari celah atap bengkel.
 
-Di kandang kecil dekat pagar, kambing tua milik tetangga mengembik pendek lalu membentur papan dua kali. Di atap rumah sebelah, seekor gagak yang biasanya datang saat matahari naik mendadak terbang rendah, seolah langit di atas dusun terlalu sempit untuk dilewati.
+Bukan asap hitam.
 
-Kael mengangkat tangan kirinya ke udara kosong. Bukan untuk memanggil apa pun. Hanya untuk memastikan.
+Bukan asap tungku biasa.
 
-Ruang di sekitarnya terasa berat di ujung jari. Ada getaran tipis, seperti suara logam yang ditekan terlalu lama hingga hampir pecah. Tidak ada orang lain di dusun yang akan menyebutnya seperti itu. Mereka akan bilang pagi ini dibawa pertanda buruk. Mereka akan bicara soal roh jalanan, kutukan musim, atau murka sesuatu yang tak terlihat. Mereka selalu punya nama untuk hal-hal yang tak mereka mengerti.
+Putih.
 
-Kael hanya punya pola.
+Terlalu putih.
 
-Dan pola ini salah.
+Kael menjatuhkan kapaknya dan berlari.
 
-Ia masuk lagi ke rumah untuk mengambil mantel gelapnya. Rumah itu tidak besar. Satu meja kasar, bangku berkaki tiga, perapian batu yang sudah mati sejak tengah malam, dan rak sempit berisi mangkuk tanah, tali, serta dua botol kosong. Zhorin tidak ada di dalam. Tentu saja. Pria itu sering menghilang sebelum fajar seolah malam masih punya urusan dengannya yang tidak boleh dilihat orang lain.
+Jalan berlumpur menciprat ke celananya. Orang-orang di alun-alun kecil mulai menoleh. Seseorang memanggil nama Tessa. Seseorang lain berteriak agar mengambil air.
 
-Kael menyampirkan mantel ke bahu, lalu berhenti sebentar di ambang pintu.
+Air tidak akan membantu.
 
-Di dinding dekat pintu tergantung paku bengkok, bekas sesuatu yang dulu pernah digantung di sana dan kini sudah tidak ada. Ia tidak tahu kenapa matanya selalu berhenti pada paku itu sebelum pergi. Mungkin karena benda kecil itu mengingatkannya bahwa sesuatu bisa dicabut dari tempatnya dan tidak pernah diganti, sementara bekasnya tetap tinggal.
+Kael tahu itu sebelum pikirannya sempat menyusun alasan.
 
-Ia keluar tanpa suara.
+Aether di sekitar bengkel menekan udara seperti dada yang dipaksa menahan napas. Setiap langkah membuat kulit di tangan kanannya terasa panas. Bukan terbakar. Lebih seperti ada sesuatu di bawah kulitnya yang mengenali bahaya dan ingin keluar.
 
-Dusun Emberwake terjepit di antara hutan tipis yang terlalu dingin dan jalan batu yang menuju wilayah dagang kecil di selatan. Tempat itu bukan titik penting di peta siapa pun. Orang-orang lewat bila terpaksa, singgah bila hujan terlalu deras, lalu pergi sebelum sempat punya alasan untuk mengingatnya. Rumah-rumahnya dibangun seperti orang-orang yang menempatinya: fungsional, rapat, dan tidak ramah pada orang asing.
+Ia membenci rasa itu.
 
-Kael tidak lahir di Emberwake. Tapi selama beberapa tahun terakhir, itulah satu-satunya tempat yang cukup jauh dari pusat kekuasaan untuk menampung seseorang sepertinya tanpa terlalu banyak pertanyaan.
+Karena rasa itu selalu benar.
 
-Meski begitu, selalu ada pertanyaan.
+Pintu bengkel terbuka separuh.
 
-Pintu rumah di seberang jalan terbuka setengah. Nenek tua yang biasa menjemur akar kering di depan teras menyapu abu dari ambang rumah. Saat melihat Kael turun ke jalan, sapunya berhenti sesaat. Tidak lama. Tidak cukup lama untuk disebut menatap. Tapi cukup untuk mengatakan bahwa ia sudah melihat, sudah menilai, dan sudah memutuskan jarak yang aman.
+Di dalam, cahaya putih memenuhi ruangan.
 
-Kael lewat tanpa menyapa.
+Tessa berdiri dekat meja kerja, satu tangan menutupi wajahnya dari panas. Elio berada di sisi lain tungku, terlalu dekat dengan batu Aether retak yang tertanam di dasar api. Anak itu membeku, matanya lebar, tubuhnya tidak tahu harus bergerak ke mana.
 
-Di sini, kebaikan sering datang dengan syarat: jangan terlalu dekat, jangan terlalu lama, dan jangan buat kami harus memilih pihak jika sesuatu buruk terjadi.
+“Elio!” Tessa berteriak.
 
-Dari ujung jalan tanah yang menurun ke alun-alun kecil, bunyi besi dipukul terdengar satu kali. Lalu dua kali. Tidak beraturan.
+Kael masuk.
 
-Kael mempercepat langkah.
+Panas menyambutnya seperti dinding.
 
-Bengkel Tessa Runehand berdiri menempel ke dinding batu gudang tua, beratap rendah dan hampir selalu panas bahkan di musim dingin. Perempuan itu biasanya sudah bekerja sebelum orang-orang lain membuka mata. Ia memukul logam seperti orang yang sedang menghitung dosa orang lain, pendek dan keras, seolah belas kasihan adalah kemewahan yang mahal.
+Besi-besi kecil di meja bergetar. Rantai di dinding berdenting tanpa disentuh. Tungku itu tidak lagi menyala seperti api. Ia berdenyut, putih dan tajam, seperti lubang kecil yang memaksa ruangan mengingat sesuatu yang sudah lama rusak.
 
-Pagi ini, tungku bengkelnya bernyala terlalu putih.
+“Elio, mundur!” teriak Tessa.
 
-Bukan api biasa.
+Elio mencoba bergerak.
 
-Kael berhenti di depan pintu setengah terbuka. Aether di sekitar tungku berputar patah-patah, seperti napas yang dipaksa masuk ke paru-paru retak. Ada sesuatu yang salah di inti panasnya. Terlalu padat. Terlalu cepat.
+Batu Aether di dasar tungku retak lebih lebar.
 
-“Tessa.”
+Kael tidak berpikir.
 
-Tak ada jawaban.
+Jika ia berpikir, ia mungkin akan berhenti.
 
-Ia masuk dua langkah. Bau arang, minyak, dan logam panas menyergap wajahnya. Tessa berdiri membelakanginya, lengan bajunya digulung sampai siku, rambut hitamnya diikat sekenanya. Di atas landasan, sebuah gelang besi tebal menyala merah dengan garis-garis pucat yang bergerak tak wajar di permukaannya. Di samping tungku, anak laki-laki kecil berambut kusut—Elio Ash—sedang jongkok memungut paku dari lantai.
+Jika ia berhenti, Elio akan terkena tekanan pertama.
 
-Kael langsung tahu inti masalahnya.
+Kael mengangkat tangan kanan.
 
-Bukan gelang itu. Bukan palunya. Melainkan batu Aether murahan yang dipasang di rongga tungku, batu yang seharusnya sudah dibuang sejak lama. Retaknya tidak berada di permukaan, tetapi di bagian dalam, dan sekarang resonansinya menyangkut pada besi yang sedang dipanaskan. Kalau dibiarkan beberapa detik lagi, ledakannya tidak akan besar, tapi cukup untuk memercikkan serpih logam dan api ke seluruh ruangan sempit itu.
+Tanda spiral muncul di kulitnya.
 
-“Tessa,” katanya lagi, kali ini lebih tajam. “Mundur.”
+Tipis pada awalnya. Lalu terang. Garis-garisnya berputar dari pangkal ibu jari ke pergelangan, seperti luka lama yang tiba-tiba ingat bagaimana rasanya terbuka.
 
-Perempuan itu menoleh cepat, dahi berkilat keringat. “Apa?”
+Tekanan Aether menghantam.
 
-“Elio. Keluar.”
+Kael menarik napas dan menggeser tangannya ke samping.
 
-Anak itu mendongak, bingung. Tessa mengikuti arah mata Kael ke tungku. Untuk sesaat wajahnya kosong. Lalu ia mengumpat.
+Bukan menahan.
 
-Kael sudah bergerak sebelum perempuan itu sempat memerintah dua kali.
+Menahan berarti tubuhnya pecah.
 
-Ia tidak menyentuh batu Aether. Orang bodoh akan langsung meraih sumber masalah. Kael justru menggeser tubuhnya sedikit ke kiri, merasakan tarikan di udara, lalu menekan telapak tangannya ke sisi luar tungku—bukan untuk menghentikan panas, tetapi untuk memaksa kepadatan resonansi berpindah sepersekian arah. Aether menggertak melalui tulang-tulang jarinya. Seperti memegang roda gigi yang berputar di dalam daging dunia.
+Ia hanya mengubah arah.
 
-Sakitnya datang terlambat.
+Sedikit.
 
-Ruang di sekitar tungku mendesah.
+Cukup.
 
-Garis putih pada besi di landasan memudar sekejap, lalu membelok. Serpih api meledak dari mulut tungku, tapi tidak ke depan—melainkan ke samping, menghantam dinding batu dan memercik ke lantai. Elio menjerit dan menjatuhkan segenggam paku. Tessa menariknya kasar ke belakang tepat saat besi di landasan pecah menjadi tiga bagian seperti cangkang retak.
+Cahaya putih membelok.
 
-Satu potong logam panas meluncur ke arah pintu.
+Rak besi di belakang Elio terangkat dan menghantam dinding. Kaca pecah. Paku, kait, dan serpihan arang beterbangan seperti hujan hitam. Tessa jatuh berlutut. Elio terlempar ke samping, berguling di lantai, lalu berhenti di dekat karung batu bara.
 
-Kael memutar badan dan menepisnya dengan gagang kapak yang kebetulan tersandar di dinding dekat pintu. Benturannya membuat lengannya mati rasa sampai siku.
+Hidup.
 
-Lalu semuanya diam.
+Kael masih berdiri.
 
-Hanya ada bunyi bara kecil yang jatuh satu-satu ke tanah.
+Tangannya terasa seperti diisi bara dari dalam.
 
-Elio terisak. Tessa memegang pundaknya terlalu keras. Napas perempuan itu tersengal, matanya masih terpaku pada tungku yang kini hanya menyisakan cahaya merah kusam.
+Ia menutup jari-jarinya, tetapi tanda spiral tidak langsung hilang.
 
-Kael menarik tangan kirinya dari tungku.
+Ruangan menjadi sunyi.
 
-Kulit telapaknya tidak terbakar, tapi urat di bawah pergelangan tampak gelap untuk sesaat, seperti tinta tipis mengalir tepat di bawah daging. Ia menyembunyikan tangannya ke balik mantel sebelum Tessa sempat melihat lebih jelas.
+Tungku meredup.
 
-“Batu itu sudah mati sejak tiga minggu lalu,” katanya.
+Asap putih menipis.
 
-Tessa masih menatap tungku. “Bagaimana kau—”
+Tessa merangkak ke arah Elio. “Elio!”
 
-Ia berhenti sebelum menyelesaikan pertanyaan itu.
+Anak itu batuk, lalu menangis.
 
-Bagaimana kau tahu.
+Suara tangisnya membuat beberapa orang di luar menghela napas lega.
 
-Bagaimana kau selalu tahu.
+Kael juga seharusnya lega.
 
-Bagaimana kau masuk ke ruangan dan melihat hal-hal yang tak terlihat orang lain.
+Ia memang lega.
 
-Kael sudah hafal bentuk kalimat yang tidak pernah benar-benar diucapkan.
+Tapi kemudian Elio melihatnya.
 
-Elio memandangnya dari balik lengan Tessa, mata anak itu bulat dan merah. Bukan hanya karena takut pada tungku. Karena takut pada Kael juga.
+Bukan melihat wajahnya.
 
-Itulah bagian yang paling melelahkan.
+Melihat tangannya.
 
-Ia bisa menyelamatkan orang, dan tetap menjadi hal paling asing di ruangan.
+Tanda spiral masih menyala samar di kulit Kael, seperti sesuatu yang seharusnya tidak berada pada tubuh manusia.
 
-“Bawa dia keluar,” kata Kael datar. “Buka jendela belakang. Biarkan panasnya turun.”
+“Elio,” kata Kael pelan.
 
-Tessa akhirnya bergerak. Tapi saat melewati Kael untuk menarik napas di ambang pintu, ia berhenti sepersekian detik. Tatapannya jatuh ke tangan kiri Kael yang setengah tersembunyi di lipatan mantel.
+Anak itu tidak menjawab.
 
-“Kael.”
+Ia mundur.
 
-Ia tidak menoleh.
+Hanya sedikit.
 
-Perempuan itu menelan sisa kalimatnya. “Terima kasih.”
+Gerakan kecil.
 
-Terdengar seperti batu kecil yang dipaksa keluar dari tenggorokan.
+Tumitnya menggesek lantai yang penuh arang. Bahunya menegang. Matanya yang tadi penuh rasa ingin tahu kini menatap Kael seperti menatap tungku yang baru saja hampir menelannya.
 
-Kael keluar dari bengkel sebelum rasa terima kasih itu sempat berubah jadi ketakutan terang-terangan.
+Kael tidak bergerak.
 
-Di luar, pagi sudah pecah tipis. Orang-orang mulai keluar rumah. Kabut masih rendah, menggesek lutut seperti binatang jinak yang tidak terlalu percaya pada manusia. Di alun-alun kecil, Corren Pike sedang menurunkan karung garam dari kereta keledainya sambil mengomel kepada dirinya sendiri. Begitu melihat Kael keluar dari bengkel Tessa dan melihat asap putih yang terlalu tipis untuk disebut normal, laki-laki itu mengangkat alis.
+Tessa memeluk Elio dari belakang.
 
-“Aku baru datang,” katanya cepat, seperti seseorang yang membela diri sebelum dituduh. “Kalau ada yang meledak, itu bukan gara-gara aku.”
+“Terima kasih,” katanya.
 
-Kael melewatinya.
+Dua kata itu keluar cepat, pecah, dan jujur.
 
-Corren memicingkan mata. “Hei. Tanganmu kenapa?”
+Kael mendengarnya.
 
-“Tidak apa-apa.”
+Lalu Tessa menarik Elio lebih dekat ke dadanya.
 
-“Itu jawaban orang yang justru sedang tidak apa-apa.”
+Lebih dekat dari yang perlu.
 
-Kael tidak berhenti.
+Seolah tubuhnya sendiri menjadi pintu.
 
-Alun-alun Emberwake hanya tanah keras dengan sumur batu di tengah dan tiang kayu untuk menggantung pengumuman yang jarang diganti. Hari ini satu lembar kertas baru terpasang miring di sana, cap lilinnya masih utuh. Kael tak perlu mendekat untuk tahu itu bukan pengumuman biasa. Ada jejak logam dalam tinta dan sedikit dengung Aether yang tersisa di sekeliling stempel. Utusan resmi.
+Seolah Kael berada di luar pintu itu.
 
-Ia mengabaikannya, tapi tubuhnya sudah mencatat.
+Orang-orang mulai memenuhi ambang bengkel. Corren Pike berdiri di belakang mereka, mulutnya setengah terbuka. Harland, kepala dusun, datang dengan napas berat. Sister Vaine berdiri di sisi jalan, diam, matanya tidak lepas dari tangan Kael.
 
-Di dekat sumur, Sister Vaine sedang menyalakan lampu kecil di dalam rumah suci sempit yang lebih tua daripada setengah rumah di dusun itu. Tempat ibadah itu terlalu kecil untuk disukai pejabat mana pun, terlalu miskin untuk diperhatikan kota besar, dan terlalu berguna bagi orang-orang yang butuh tempat berbisik kepada nama-nama yang tak lagi didengar siapa pun.
+Kael menurunkan tangannya.
 
-Perempuan tua itu memandang Kael sekali. Tidak takut. Tidak juga ramah. Hanya tenang, seperti orang yang menerima bahwa dunia sering datang dalam bentuk yang tidak mudah dijelaskan.
+Tanda spiral perlahan padam.
 
-“Pagi menegang,” katanya.
+Tapi ia tahu semua orang sudah melihatnya.
 
-“Ya.”
+Elio masih menangis.
 
-“Kau merasakannya lebih dulu?”
+Tessa memeluknya.
 
-Kael memandang lampu kecil di tangannya. Api di sana bergetar, tapi tidak karena angin.
-
-“Semua orang bisa merasakannya,” jawabnya.
-
-Sister Vaine tersenyum tipis. “Tidak seperti yang kau rasakan.”
-
-Kael tidak menjawab.
-
-Perempuan itu tidak memaksa. Ia menunduk dan melindungi nyala lampu dengan telapak tangan berkeriputnya. “Kalau sesuatu datang dari jalan selatan hari ini,” katanya pelan, “itu tidak datang untuk dusun ini. Ia hanya akan lewat dusun ini untuk mencapai hal lain.”
-
-Kael menatapnya lebih lama dari yang ia inginkan.
-
-“Kenapa bicara itu padaku?”
-
-“Karena anak-anak biasanya menatap jalan saat mereka takut badai datang.” Sister Vaine menatap balik, tenang. “Kau tidak. Kau menatap dunia seperti sedang mencoba menghitung dari mana ia akan robek.”
-
-Kael pergi sebelum perempuan itu sempat melihat bahwa kalimat itu mengenai sasaran.
-
-Jalan menuju rumah Zhorin menanjak menjauh dari pusat dusun, melewati petak-petak tanah beku dan pagar yang setengah rubuh. Rumah itu sendiri berdiri di pinggir hutan tipis, lebih mirip bangunan yang menolak disebut rumah: dinding kayu tua, atap gelap, tidak ada ornamen, tidak ada kebun, tidak ada apa pun yang menunjukkan seseorang mencoba hidup nyaman di sana. Tempat itu dibangun hanya untuk bertahan terhadap cuaca dan mata-mata.
-
-Zhorin sudah menunggu di teras depan.
-
-Tinggi, tegak, dan diam seperti tiang hukuman.
-
-Ia mengenakan mantel hitam panjang dengan bulu gelap di bahu. Rambutnya yang disisir ke belakang masih setengah basah oleh kabut, dan mata emas redupnya jatuh pada Kael tanpa kejutan sedikit pun. Seolah dunia memang selalu mengirim masalah ke depan pintunya sebelum matahari naik.
-
-“Kau terlambat,” katanya.
-
-“Aku mencegah Tessa kehilangan tangan.”
-
-“Dan memperlihatkan terlalu banyak.”
-
-Kael berhenti tiga langkah dari tangga teras. “Kalau aku tidak melakukannya, Elio bisa mati.”
-
-“Dusun ini penuh anak.”
-
-“Kau ingin aku membiarkannya?”
-
-Zhorin turun satu anak tangga. “Aku ingin kau mengerti bedanya menyelamatkan seseorang dan meninggalkan jejak yang akan ditafsirkan orang-orang bodoh dengan cara yang lebih bodoh lagi.”
-
-Kael merasakan sisa dengung Aether masih menempel di tulang lengannya. Ia menahan keinginan untuk menggenggam pergelangan tangan kirinya. “Mereka sudah takut bahkan saat aku tidak melakukan apa-apa.”
-
-“Takut yang kabur lebih berguna daripada takut yang punya bentuk.”
-
-Itu kalimat khas Zhorin: dingin, tepat, dan membuat kebaikan terdengar seperti kesalahan taktis.
-
-Kael menatap pria itu datar. “Anak itu tetap hidup.”
-
-“Dan sekarang tiga orang telah melihat sesuatu yang tak seharusnya mereka lihat.”
-
-“Apa? Bahwa tungku bisa meledak?”
-
-Mata Zhorin menyipit sedikit. Bukan marah. Lebih berbahaya. Menilai.
-
-“Kemarikan tanganmu.”
-
-Kael tidak bergerak beberapa detik. Lalu ia membuka mantel dan mengangkat tangan kirinya.
-
-Garis gelap di bawah kulit sudah memudar, tetapi di pusat telapak, tepat di bawah pangkal ibu jari, tampak spiral tipis yang tadi malam belum ada. Bukan luka. Bukan bekas arang. Lebih mirip tanda yang muncul dari bawah daging lalu berhenti tepat sebelum menjadi sesuatu yang bisa diberi nama.
-
-Wajah Zhorin tidak berubah. Itu justru membuat perut Kael terasa lebih dingin.
-
-“Sejak kapan?” tanya Kael.
-
-“Sejak dunia mulai kurang sabar.”
-
-“Jawaban itu tidak berarti apa-apa.”
-
-“Bagi orang lain, mungkin.”
-
-Zhorin meraih pergelangan Kael. Genggamannya keras dan hangat. Ia memutar telapak itu sedikit ke arah cahaya pagi yang pucat. Untuk pertama kalinya, Kael melihat sesuatu yang mirip ketegangan melintas cepat di wajah pria itu. Hanya sekejap. Cukup untuk membuktikan bahwa tanda ini tidak kecil.
-
-“Masuk,” kata Zhorin.
-
-“Apa itu?”
-
-“Masuk.”
-
-Kael tidak bergerak. “Kalau kau sudah tahu, aku juga harus tahu.”
-
-Zhorin menatapnya beberapa detik, lalu melepaskan tangannya. “Sesuatu sedang mencari bentuk melalui dirimu.”
-
-Kael nyaris tertawa, pendek dan tanpa humor. “Itu bahkan lebih buruk dari jawaban pertama.”
-
-“Karena jawaban sebenarnya lebih buruk lagi.”
-
-Kalimat itu jatuh datar, nyaris tanpa penekanan. Itulah yang membuatnya terasa berat.
-
-Dari arah jalan bawah, terdengar bunyi roda kereta melewati batu keras, pelan tapi teratur. Bukan milik warga dusun. Terlalu halus. Terlalu terawat.
-
-Kepala Zhorin sedikit menoleh ke selatan.
-
-“Sudah datang,” gumamnya.
-
-Kael mengikuti arah pandangnya. Kabut pagi yang menutup jalan utama bergerak tipis, seolah ada sesuatu melintas di dalamnya dengan hak untuk tidak terganggu oleh cuaca. Bayangan kereta hitam mulai muncul di antara abu-pohon dan pagar patah, ditarik dua kuda pucat. Di bagian sampingnya ada lambang kecil dari logam terang—terlalu jauh untuk terbaca jelas, tapi cukup untuk membuat sesuatu dalam darah Kael menegang seperti tali yang baru dikenali oleh tangan yang salah.
-
-Di belakang kereta, satu penunggang berkuda lain ikut masuk ke Emberwake.
-
-Jubahnya terang.
-
-Bukan terang yang hangat. Terang resmi.
-
-Kael tidak tahu kenapa, tapi saat melihat lambang redup itu, ia tiba-tiba teringat paku bengkok di dinding rumah. Bekas dari sesuatu yang pernah dicabut paksa dan tidak pernah diganti.
-
-Zhorin berdiri sepenuhnya tegak sekarang, seluruh tubuhnya berubah menjadi kewaspadaan yang dibungkus kulit manusia. “Dengarkan aku baik-baik,” katanya tanpa menoleh. “Apa pun yang mereka tanyakan, apa pun yang mereka bawa, kau tidak bicara sebelum aku bicara.”
-
-“Siapa mereka?”
-
-Pria itu diam sepersekian detik terlalu lama.
-
-Lalu ia menjawab, suaranya rendah dan keras seperti pintu batu yang bergeser di dalam makam tua.
-
-“Nama yang seharusnya tidak pernah sampai ke sini.”
-
-Kereta itu berhenti di tengah dusun.
-
-Dan untuk pertama kalinya dalam waktu yang sangat lama, Kael merasa dunia tidak sekadar menolaknya.
-
-Dunia telah datang untuk mengambil sesuatu.
+Dan Kael, untuk pertama kalinya sejak pagi itu, merasa Paku Bulan di sakunya menekan dadanya lebih sakit daripada bara di tangannya.
