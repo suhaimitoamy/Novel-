@@ -1,194 +1,250 @@
-# Cast Core Canon
+# Cast Core Canon — Reset Tahap 1
 
-## Tujuan Dokumen
+## Status Canon
 
-Dokumen ini menetapkan struktur cast utama untuk **Kael Drayven: The Forsaken Heir**. Fokusnya adalah membangun serial dengan rasa ensemble yang hidup, di mana karakter pendukung dan NPC memiliki kisah masing-masing, tetapi Kael tetap menjadi pusat utama.
+Dokumen ini menggantikan struktur cast lama.
 
-Prinsip utamanya:
+Fokus cast sekarang bukan lagi memperkenalkan banyak tokoh besar sejak awal, tetapi membangun karakter yang punya fungsi emosional langsung terhadap Kael.
 
-- Kael tetap protagonis dan titik gravitasi cerita.
-- Karakter pendukung harus punya luka, tujuan, dan perubahan sendiri.
-- Tidak semua tokoh harus aktif sekaligus di awal cerita.
-- Cast dibangun bertahap agar dunia terasa luas tanpa membuat alur kacau.
+Prinsip utama:
 
----
-
-## Struktur Cast Canon
-
-Cast canon dibagi menjadi 4 lapisan:
-
-1. **Core Orbit Kael** — tokoh yang paling langsung membentuk hidup, luka, dan keputusan Kael.
-2. **Major Side Cast** — tokoh penting yang memiliki arc sendiri dan bisa mengambil fokus dalam arc tertentu.
-3. **Faction Cast** — tokoh yang mewakili kekaisaran, organisasi, sistem, atau kelompok elit.
-4. **Recurring NPC** — tokoh berulang yang tidak perlu arc panjang, tetapi tetap terasa hidup.
-
-Untuk tahap sekarang, yang dikunci adalah **Core Orbit Kael** dan **Major Side Cast**.
+- Kael tetap pusat cerita.
+- Karakter awal harus dekat dengan luka Kael.
+- Tokoh besar seperti Sylvara, Rowan, Malakar, dan organisasi besar ditahan dulu.
+- Season 1 harus terasa manusiawi, lokal, dan menyakitkan sebelum skala cerita membesar.
 
 ---
 
-# I. Core Orbit Kael
+# I. Hirarki Cast Baru
+
+Cast dibagi menjadi 5 lapisan:
+
+1. **Inti Emosional Awal** — tokoh yang membentuk luka Kael di Emberwake.
+2. **Tekanan Sistem Awal** — tokoh resmi yang membuat masalah Kael menjadi urusan lebih besar.
+3. **Jaringan Kabar Angin** — tokoh jalanan yang membuat nama Kael menyebar dan berubah.
+4. **Poros Emosional Lanjutan** — tokoh yang masuk setelah Kael keluar dari Emberwake.
+5. **Ancaman Jauh** — tokoh besar yang hanya boleh terasa sebagai bayangan untuk fase jauh.
+
+---
+
+# II. Inti Emosional Awal
 
 ## 1. Kael Drayven
+
 - **Peran:** Protagonis utama.
-- **Fungsi naratif:** Pusat gravitasi cerita.
-- **Posisi:** Semua relasi, konflik, dan benturan ide pada akhirnya harus kembali membentuk atau melukai Kael.
+- **Fungsi naratif:** Pusat luka, pusat kabar angin, dan pusat konflik identitas.
+- **Keinginan awal:** diterima oleh satu tempat saja.
+- **Luka utama:** takut bahwa dirinya memang sesuatu yang pantas disembunyikan, dipakai, atau dijauhi.
 
-## 2. Sylvara
-- **Peran:** Jangkar emosional utama Kael.
-- **Fungsi naratif:** Pengingat sisi manusia Kael.
-- **Posisi dalam cerita:** Bukan sekadar pasangan, tetapi orang yang melihat Kael sebagai manusia, bukan alat, ancaman, atau pewaris.
-- **Alasan masuk core:** Relasi ini adalah pusat emosional cerita dan salah satu benturan paling penting bagi batin Kael.
+Kael tidak boleh terasa seperti pahlawan besar di awal.
 
-## 3. Rowan
-- **Peran:** Pengkhianat, cermin gelap, dan rival ideologis Kael.
-- **Fungsi naratif:** Tafsir alternatif atas apa Kael bisa menjadi.
-- **Posisi dalam cerita:** Rowan memahami luka Kael dari titik patah yang serupa. Ia tidak sekadar melawan Kael, tetapi menggoda Kael untuk menempuh jalan yang lebih gelap.
-- **Alasan masuk core:** Rowan adalah salah satu antagonis personal terpenting dan karakter yang bisa relevan di banyak fase cerita.
+Ia harus terasa seperti anak yang kesepian, terlalu peka terhadap Aether, dan terlalu sering dianggap bahaya saat ia mencoba menolong.
 
-## 4. Dragonlord Zhorin
-- **Peran:** Ayah angkat, pembentuk, mentor keras.
-- **Fungsi naratif:** Luka asal dan fondasi kekuatan Kael.
-- **Posisi dalam cerita:** Zhorin membentuk Kael agar cukup kuat untuk bertahan, tetapi sekaligus menanamkan pandangan hidup yang keras dan berbahaya.
-- **Alasan masuk core:** Ia adalah poros sejarah, trauma, dan pembentukan karakter Kael.
+## 2. Zhorin
 
-## 5. Malakar the Hollow
-- **Peran:** Antagonis besar dan ancaman ontologis.
-- **Fungsi naratif:** Bayangan besar dari warisan dunia lama.
-- **Posisi dalam cerita:** Malakar tidak melihat Kael sebagai individu, melainkan sebagai wadah, kunci, atau bentuk yang belum selesai.
-- **Alasan masuk core:** Ia memberi rasa ancaman tua, dalam, dan terus menghantui dunia maupun identitas Kael.
+- **Peran:** Ayah angkat, pelatih, pelindung, dan penjara pertama Kael.
+- **Fungsi naratif:** sumber perlindungan sekaligus luka.
+- **Konflik dengan Kael:** Kael ingin kebenaran; Zhorin ingin Kael tetap hidup.
+
+Zhorin tidak boleh ditulis sebagai mentor keren saja.
+
+Ia harus terasa seperti seseorang yang mencintai dengan cara keras, salah, dan membuat Kael merasa dikurung.
+
+## 3. Tessa Runehand
+
+- **Peran:** Pandai besi Emberwake.
+- **Fungsi naratif:** orang dewasa lokal yang hampir percaya pada Kael, tetapi belum cukup berani melindunginya.
+- **Relasi dengan Kael:** berutang nyawa anaknya pada Kael, tetapi takut kedekatan dengan Kael akan menyeret Elio ke bahaya.
+
+Tessa penting karena ia memperlihatkan konflik warga biasa: mereka bisa tahu Kael tidak jahat, tetapi tetap takut berdiri di sisinya.
+
+## 4. Elio Ash
+
+- **Peran:** Anak kecil yang diselamatkan Kael.
+- **Fungsi naratif:** luka kecil yang paling menyakitkan bagi Kael.
+- **Relasi dengan Kael:** Kael menyelamatkannya, tetapi Elio tetap takut ketika melihat tanda spiral dan Aether di tangan Kael.
+
+Elio bukan sekadar korban insiden.
+
+Ia adalah bukti bahwa Kael bisa melakukan hal benar dan tetap terasa salah di mata orang lain.
+
+## 5. Maeron Vell
+
+- **Peran:** Pemilik rumah singgah tua di Emberwake.
+- **Fungsi naratif:** gerbang pertama kabar angin.
+- **Relasi dengan Kael:** mengenal Kael cukup lama untuk tahu ia bukan monster, tetapi juga cukup realistis untuk tahu cerita tentang Kael akan bernilai mahal di jalan.
+
+Maeron harus ambigu.
+
+Ia bukan musuh besar, tetapi satu kalimatnya di rumah singgah bisa membuat nama Kael berjalan lebih jauh dari yang seharusnya.
+
+## 6. Sister Vaine
+
+- **Peran:** penjaga rumah suci kecil Emberwake.
+- **Fungsi naratif:** suara sunyi yang memahami rasa takut warga, tetapi tidak sepenuhnya menghakimi Kael.
+- **Relasi dengan Kael:** tidak ramah, tidak takut, tetapi mengamati.
+
+Sister Vaine menjadi tempat cerita bisa menyentuh sisi spiritual kecil tanpa langsung membuka kosmologi besar.
+
+## 7. Corren Pike
+
+- **Peran:** pedagang/kusir lokal.
+- **Fungsi naratif:** pembawa kabar pertama dari Emberwake ke jalur luar.
+- **Relasi dengan Kael:** sering bercanda, tetapi bisa menjadi sumber awal rumor tanpa sepenuhnya sadar akibatnya.
+
+Corren penting karena kabar besar sering dimulai dari mulut orang kecil yang merasa hanya sedang bercerita.
 
 ---
 
-# II. Major Side Cast
+# III. Tekanan Sistem Awal
 
-## 1. Ceyna the Pulsebound
-- **Peran:** Rival moral dan potensi konflik emosional.
-- **Fungsi naratif:** Lawan ideologis dari sisi sistem yang masih memiliki hati nurani.
-- **Posisi dalam cerita:** Awalnya berdiri berlawanan dengan Kael karena percaya pada stabilitas dunia, tetapi perlahan meragukan sistem yang ia bela.
-- **Catatan:** Sangat cocok menjadi karakter penting jangka panjang.
+## 1. Registry-Reader
+
+- **Peran:** perwakilan Luminal Registry.
+- **Fungsi naratif:** wajah sistem resmi yang sopan, bersih, dan menekan.
+- **Cara menyerang:** bukan dengan amarah, tetapi dengan pertanyaan, catatan, lambang, dan prosedur.
+
+Registry-Reader harus membuat pembaca tidak nyaman sebelum pembaca memahami penuh apa itu Registry.
+
+## 2. Ser Caldris
+
+- **Peran:** pendamping lapangan Registry.
+- **Fungsi naratif:** celah manusiawi di dalam sistem.
+- **Relasi dengan Kael:** bukan sekutu bersih, tetapi orang yang mulai lelah melihat sistem melukai orang kecil.
+
+Caldris tidak boleh langsung menjadi penyelamat.
+
+Ia harus tetap bagian dari struktur yang bermasalah, meski punya rasa bersalah.
+
+## 3. Harland
+
+- **Peran:** kepala dusun Emberwake.
+- **Fungsi naratif:** wajah orang kecil yang takut pada kekuasaan resmi.
+- **Relasi dengan Kael:** tidak membenci Kael, tetapi akan memilih keselamatan desa lebih dulu.
+
+Harland penting untuk menunjukkan bahwa pengkhianatan kecil sering lahir dari rasa takut, bukan kebencian.
+
+---
+
+# IV. Jaringan Kabar Angin
+
+## 1. Pembawa Angin
+
+- **Peran:** orang-orang yang membawa, membumbui, dan menjual cerita.
+- **Bentuk:** pedagang, penyanyi jalanan, pemilik rumah singgah, juru tulis murah, pekerja karavan, pemabuk, pengungsi, atau orang bayaran.
+- **Fungsi naratif:** membuat versi palsu Kael menyebar lebih cepat daripada Kael sendiri.
+
+Pembawa Angin bukan organisasi rapi.
+
+Mereka adalah jaringan longgar yang hidup dari kabar.
+
+## 2. Juru Tulis Pamflet
+
+- **Peran:** orang yang menulis versi murah dari cerita Kael.
+- **Fungsi naratif:** mengubah desas-desus lisan menjadi benda yang bisa disebarkan.
+
+Pamflet pertama tentang Anak Spiral bisa menjadi titik penting karena sejak itu Kael bukan lagi hanya dibicarakan, tetapi mulai didokumentasikan secara liar.
+
+## 3. Penyanyi Murah
+
+- **Peran:** penghibur jalanan yang mengubah cerita Kael menjadi lagu kasar.
+- **Fungsi naratif:** membuat kabar tentang Kael masuk ke telinga orang yang tidak membaca pamflet.
+
+Lagu tentang Kael tidak harus benar.
+
+Justru semakin salah, semakin mudah diingat.
+
+---
+
+# V. Poros Emosional Lanjutan
+
+## 1. Sylvara
+
+- **Peran:** orang pertama yang melihat Kael sebagai manusia, bukan ancaman, alat, atau pewaris.
+- **Fungsi naratif:** jangkar emosional lanjutan.
+- **Waktu masuk:** setelah Kael keluar dari Emberwake.
+
+Sylvara tidak boleh cepat menjadi pasangan romantis.
+
+Ia harus lebih dulu menjadi orang yang berani tinggal saat orang lain mundur.
 
 ## 2. Tarran of the Forge
-- **Peran:** Teman perjalanan, pembuat senjata, dan penyeimbang.
-- **Fungsi naratif:** Membumikan cerita dan memberi unsur praktis.
-- **Posisi dalam cerita:** Menjadi salah satu tokoh yang membuat dunia terasa nyata dan tidak hanya terdiri dari ideologi, darah, dan kehancuran.
-- **Catatan:** Cocok untuk menjadi sahabat keras kepala yang bertahan lama.
 
-## 3. Sera Luminaris
-- **Peran:** Wajah resmi dari sistem cahaya / otoritas surgawi.
-- **Fungsi naratif:** Membuktikan bahwa lawan Kael bukan hanya kegelapan, tetapi juga “kebaikan” yang membusuk.
-- **Posisi dalam cerita:** Awalnya antagonis atau wakil sistem, lalu berkembang menjadi sekutu kompleks.
-- **Catatan:** Penting untuk memperluas konflik moral cerita.
+- **Peran:** teman perjalanan dan pembuat alat/senjata.
+- **Fungsi naratif:** membumikan perjalanan Kael setelah Emberwake.
 
-## 4. Eira the Stray
-- **Peran:** Mentor awal yang rusak.
-- **Fungsi naratif:** Peringatan tentang harga kekuatan yang kehilangan kendali.
-- **Posisi dalam cerita:** Sosok yang menunjukkan apa yang bisa terjadi pada Kael bila ia membiarkan Aether menghancurkan pusat dirinya.
-- **Catatan:** Sangat cocok untuk arc awal yang tragis.
+Tarran bisa masuk setelah dunia material lebih luas dibuka.
 
-## 5. Drevon the Hollow Knight
-- **Peran:** Kesatria penebus dosa.
-- **Fungsi naratif:** Membawa tema penebusan dan kehormatan yang hancur.
-- **Posisi dalam cerita:** Karakter yang melihat Kael sebagai harapan terakhir dan memperlihatkan bahwa kehancuran tidak selalu menghapus kehormatan.
-- **Catatan:** Cocok untuk arc pengorbanan besar.
+## 3. Ceyna the Pulsebound
 
-## 6. Renn of the Broken Gate
-- **Peran:** Simbol harapan dan kemanusiaan.
-- **Fungsi naratif:** Menjaga inti batin Kael tetap hidup.
-- **Posisi dalam cerita:** Tokoh kecil secara kekuatan, tetapi besar secara emosi.
-- **Catatan:** Salah satu karakter paling penting untuk menjaga hati cerita.
+- **Peran:** lawan moral dari sisi sistem.
+- **Fungsi naratif:** menunjukkan bahwa tidak semua orang sistem busuk, tetapi sistem tetap bisa salah.
 
-## 7. Valen Duskveil
-- **Peran:** Informan, pembaca relik, dan tokoh licin.
-- **Fungsi naratif:** Membuka akses ke artefak, sejarah terkutuk, dan rahasia dunia.
-- **Posisi dalam cerita:** Tokoh yang bisa membantu Kael sekaligus berpotensi mengkhianati atau menyimpang dari jalur utama.
-- **Catatan:** Cocok untuk lapisan intrik.
-
-## 8. Kaz Grenthal
-- **Peran:** Rival brutal dari sisi Beastmen.
-- **Fungsi naratif:** Menunjukkan kekuatan tanpa sistem dan harga hidup di dunia yang keras.
-- **Posisi dalam cerita:** Awalnya lawan, lalu bisa berkembang menjadi sekutu keras yang tetap membawa ancaman.
-- **Catatan:** Cocok untuk dinamika hormat antar petarung.
-
-## 9. Thiel the Shardkeeper
-- **Peran:** Penjaga Fragmen tua.
-- **Fungsi naratif:** Jembatan antara Kael dan warisan kuno dunia.
-- **Posisi dalam cerita:** Tokoh yang membawa lore besar, tetapi sebaiknya tidak dimasukkan terlalu awal.
-- **Catatan:** Cocok untuk arc tengah atau besar.
-
-## 10. Nira of the Whispering Flame
-- **Peran:** Tokoh misterius dan ambigu.
-- **Fungsi naratif:** Godaan, ilusi, dan ketidakpastian.
-- **Posisi dalam cerita:** Karakter yang dapat membantu Kael, mempermainkan Kael, atau menggiringnya ke arah yang berbahaya.
-- **Catatan:** Gunakan hemat agar tetap kuat.
+Ceyna tidak boleh masuk terlalu cepat agar tidak menumpuk cast awal.
 
 ---
 
-# III. Fungsi Naratif Cast
+# VI. Cermin Gelap dan Ancaman Jauh
 
-Agar cast tetap rapi, tiap tokoh harus punya fungsi utama. Satu tokoh boleh punya lebih dari satu fungsi, tetapi harus ada fungsi dominan.
+## 1. Rowan
 
-- **Jangkar** — menjaga sisi manusia Kael.
-- **Cermin** — menunjukkan apa Kael bisa menjadi.
-- **Pengkhianat** — mematahkan kepercayaan dan memicu perubahan.
-- **Rival** — menantang Kael secara kekuatan atau prinsip.
-- **Peringatan** — menunjukkan harga dari jalan yang salah.
-- **Mentor** — membentuk cara pandang atau kekuatan Kael.
-- **Musuh ideologis** — menyerang cara berpikir Kael, bukan hanya tubuhnya.
-- **Simbol harapan** — menjaga dunia tetap layak diperjuangkan.
-- **Simbol sistem rusak** — mewakili dunia lama yang harus dihadapi.
+- **Peran:** cermin gelap Kael.
+- **Fungsi naratif:** menunjukkan apa yang bisa terjadi jika luka Kael berubah menjadi pembenaran untuk menghancurkan semuanya.
+- **Waktu masuk:** bukan Season 1 sebagai tokoh aktif utama.
 
----
+Rowan harus terasa personal, bukan sekadar rival keren.
 
-# IV. Aturan Kemunculan Cast
+## 2. Malakar the Hollow
 
-Untuk menjaga cerita tetap rapi:
+- **Peran:** ancaman jauh terhadap keberadaan Kael sebagai manusia.
+- **Fungsi naratif:** bukan musuh awal, tetapi bayangan ontologis untuk fase besar nanti.
+- **Waktu masuk:** jauh setelah akar emosional Kael kuat.
 
-1. **Arc awal** hanya memakai sebagian kecil Core Orbit dan 2–3 Major Side Cast.
-2. **Tidak semua tokoh penting aktif bersamaan.**
-3. **Major Side Cast masuk bertahap** sesuai kebutuhan alur dan wilayah.
-4. **Faction Cast** akan dibuat setelah World Core Canon dan Alur Utama Canon dirapikan.
-5. **Recurring NPC** harus tetap terasa hidup, tetapi tidak boleh mengambil alih alur utama.
+Malakar tidak boleh tampil penuh di awal.
+
+Jika disiratkan, cukup lewat mimpi buruk, istilah patah, atau reaksi Aether yang belum punya nama.
 
 ---
 
-# V. Rencana Ekspansi Cast ke Depan
+# VII. Tokoh yang Ditahan Dulu
 
-Karena target serial ini besar dan ingin memiliki rasa seperti karya panjang dengan banyak tokoh berkesan, maka ekspansi cast ke depan akan mengikuti pola berikut:
+Tokoh berikut tidak aktif penuh di awal:
 
-## 1. Empire Cast
-Setiap kekaisaran nanti idealnya punya 2–4 tokoh khas yang benar-benar hidup, bukan sekadar nama.
+- Rowan,
+- Malakar,
+- anggota Covenant,
+- mayoritas tokoh kekaisaran,
+- Thiel,
+- Nira,
+- Drevon,
+- Sera,
+- Kaz,
+- Renn.
 
-## 2. Elite Antagonist Group
-Nanti akan dibuat satu organisasi elit antagonis dengan 7–9 anggota inti. Fungsinya bukan meniru kelompok lain, tetapi memberi wajah konflik besar di lapangan.
+Mereka bukan dibuang.
 
-## 3. Recurring NPC Network
-NPC yang sering muncul harus punya tujuan kecil, luka kecil, dan suara khas, agar dunia Zerath terasa hidup bahkan di luar tokoh utama.
-
----
-
-# VI. Ringkasan Cast Core Canon
-
-## Core Orbit Kael
-- Kael Drayven
-- Sylvara
-- Rowan
-- Dragonlord Zhorin
-- Malakar the Hollow
-
-## Major Side Cast
-- Ceyna the Pulsebound
-- Tarran of the Forge
-- Sera Luminaris
-- Eira the Stray
-- Drevon the Hollow Knight
-- Renn of the Broken Gate
-- Valen Duskveil
-- Kaz Grenthal
-- Thiel the Shardkeeper
-- Nira of the Whispering Flame
+Mereka ditahan agar Season 1 punya ruang bernapas.
 
 ---
 
-## Catatan Penutup
+# VIII. Aturan Pemakaian Cast
 
-Cast Core Canon ini adalah fondasi. Ia belum mengunci seluruh cast dunia Zerath, tetapi sudah menetapkan siapa saja tokoh yang paling penting untuk membangun rasa serial panjang, ensemble, dan emosional, tanpa menghilangkan Kael sebagai pusat utama cerita.
+1. Season 1 hanya memakai karakter yang langsung menyentuh luka Emberwake.
+2. Tokoh baru harus punya fungsi emosional, bukan hanya desain keren.
+3. Tidak boleh memperkenalkan banyak nama besar sebelum pembaca peduli pada Kael.
+4. Setiap karakter harus menekan salah satu sisi Kael: rasa ingin diterima, rasa takut, kemarahan, keraguan, atau kebutuhan akan kebenaran.
+5. Karakter lokal tidak boleh terasa sebagai NPC kosong.
+
+---
+
+# IX. Ringkasan Canon
+
+Cast awal Kael Drayven berpusat pada Emberwake: Kael, Zhorin, Tessa, Elio, Maeron, Sister Vaine, Corren, Harland, Registry-Reader, dan Ser Caldris.
+
+Mereka cukup untuk membangun luka awal Kael tanpa membuka terlalu banyak tokoh besar.
+
+Sylvara, Rowan, Malakar, dan tokoh-tokoh besar lain tetap disimpan untuk fase berikutnya.
+
+Prinsip utama:
+
+> Sebelum Kael bertarung melawan kekuatan besar, ia harus lebih dulu terluka oleh orang kecil, rumah kecil, dan kabar kecil yang tumbuh menjadi sesuatu yang tidak bisa ia kendalikan.
