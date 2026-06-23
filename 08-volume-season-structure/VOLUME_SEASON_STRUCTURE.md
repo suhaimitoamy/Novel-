@@ -1,8 +1,8 @@
-# Volume / Season Structure — Reset Tahap 1
+# Volume / Season Structure — Reset Tahap 3
 
 ## Status Canon
 
-Dokumen ini menggantikan struktur season lama.
+Dokumen ini menggantikan reset tahap 1.
 
 Arah baru serial tetap panjang, tetapi pembukaannya harus lebih dekat, lebih manusiawi, dan lebih emosional.
 
@@ -15,9 +15,10 @@ Skala besar disimpan untuk fase lanjut.
 1. Satu season harus punya satu perubahan besar pada Kael.
 2. Season awal harus dekat dengan tanah, tubuh, rumah, kabar, dan catatan.
 3. Benua Veyrath dibuka bertahap.
-4. Jaringan Kabar Angin menjadi tekanan naratif sejak awal.
-5. Registry menjadi wajah sistem awal.
-6. Fragmen, Covenant, Malakar, dan kosmologi besar ditahan sampai pembaca peduli pada Kael.
+4. Paku Bulan menjadi simbol kecil yang menjaga luka awal tetap hidup.
+5. Jaringan Kabar Angin menjadi tekanan naratif sejak awal.
+6. Registry menjadi wajah sistem awal.
+7. Fragmen, Covenant, Malakar, dan kosmologi besar ditahan sampai pembaca peduli pada Kael.
 
 ---
 
@@ -31,11 +32,15 @@ Membangun luka awal Kael di Emberwake.
 
 ### Fokus Cerita
 
+- Elio memberi Kael Paku Bulan.
 - Kael hidup sebagai pemuda tanpa catatan resmi.
 - Ia menyelamatkan Elio dari kecelakaan tungku Aether.
-- Warga Emberwake mulai menjaga jarak.
+- Elio berubah setelah melihat tanda spiral.
+- Tessa mengirim Elio pergi sebelum Registry menekan lebih jauh.
+- Zhorin mengetahui keputusan itu dan tidak memberi Kael kesempatan berpamitan.
 - Luminal Registry datang mencari anak tanpa catatan.
 - Jaringan Kabar Angin mulai membawa cerita tentang Anak Spiral.
+- Ralen menutup pintu pertama di luar Emberwake karena percaya cerita yang sudah sampai lebih dulu.
 
 ### Fokus Cast
 
@@ -49,10 +54,11 @@ Membangun luka awal Kael di Emberwake.
 - Harland
 - Registry-Reader
 - Ser Caldris
+- Ralen
 
 ### Penutup Season
 
-Kael meninggalkan Emberwake bukan karena ingin petualangan, tetapi karena tempat kecil itu tidak lagi aman untuk siapa pun yang dekat dengannya.
+Kael meninggalkan Emberwake membawa Paku Bulan, lalu sadar bahwa kabar tentang dirinya sudah menunggu di jalan sebelum ia tiba.
 
 ---
 
@@ -68,16 +74,7 @@ Membuat Kael berhadapan dengan versi palsu dirinya sendiri.
 - Setiap tempat mengenal Kael lewat versi berbeda.
 - Pamflet, lagu jalanan, cerita karavan, dan gosip rumah singgah mengubah satu kejadian kecil menjadi legenda awal.
 - Kael mulai memahami bahwa diam tidak menghentikan cerita.
-
-### Fokus Cast
-
-- Kael
-- Zhorin
-- Corren / Maeron sebagai gema awal
-- Pembawa Angin
-- juru tulis pamflet
-- penyanyi murah
-- tokoh lokal jalur perbatasan
+- Paku Bulan menjadi pengingat bahwa cerita besar itu lahir dari luka kecil.
 
 ### Penutup Season
 
@@ -99,15 +96,6 @@ Membuka konflik catatan, garis darah, dan penghapusan identitas.
 - Nama Drayven mulai muncul sebagai sesuatu yang sengaja disembunyikan.
 - Sylvara mulai masuk sebagai poros emosional yang lebih jelas.
 
-### Fokus Cast
-
-- Kael
-- Zhorin
-- Sylvara
-- Ser Caldris
-- Registry-Reader / pejabat Registry lain
-- Tessa atau Elio sebagai luka yang masih membekas
-
 ### Penutup Season
 
 Kael tidak lagi bisa menganggap dirinya hanya korban salah paham. Ada sesuatu dalam catatan lama yang memang mengarah padanya.
@@ -127,15 +115,6 @@ Membuka bahwa garis darah tidak selalu menjadi kehormatan; sering kali ia menjad
 - Sylvara menjadi orang pertama yang benar-benar melihat Kael sebagai manusia.
 - Ceyna dapat masuk sebagai lawan moral dari sisi sistem.
 
-### Fokus Cast
-
-- Kael
-- Sylvara
-- Zhorin
-- Ceyna
-- Tarran
-- beberapa tokoh darah / arsip
-
 ### Penutup Season
 
 Kael menyadari bahwa nama Drayven bukan hanya jawaban. Nama itu juga pintu menuju masalah yang lebih tua.
@@ -154,16 +133,6 @@ Mengubah konflik pribadi Kael menjadi konflik sosial yang lebih luas.
 - Jaringan Kabar Angin menjadi lebih terarah.
 - Registry tidak lagi menjadi satu-satunya tekanan.
 - Rowan mulai masuk sebagai cermin gelap yang memahami luka Kael.
-
-### Fokus Cast
-
-- Kael
-- Sylvara
-- Rowan
-- Ceyna
-- Tarran
-- Pembawa Angin penting
-- tokoh wilayah baru
 
 ### Penutup Season
 
@@ -185,15 +154,6 @@ Membuat nama Kael membelah orang-orang di Veyrath.
 - Rowan menekan Kael dari sisi ideologi.
 - Sylvara menguji apakah Kael masih bisa memilih dirinya sendiri.
 
-### Fokus Cast
-
-- Kael
-- Sylvara
-- Rowan
-- Zhorin
-- Ceyna
-- tokoh sistem dan tokoh jalanan
-
 ### Penutup Season
 
 Kael tidak lagi bisa hanya menolak cerita tentang dirinya. Ia harus memilih cerita mana yang akan ia patahkan dan mana yang akan ia tanggung.
@@ -212,15 +172,6 @@ Membuka lapisan warisan lama yang selama ini hanya disiratkan.
 - Aether mulai terlihat sebagai struktur yang lebih luas.
 - Fragmen boleh mulai aktif sebagai masalah besar.
 - Malakar boleh mulai naik sebagai bayangan nyata, tetapi hanya setelah konflik manusia kuat.
-
-### Fokus Cast
-
-- Kael
-- Sylvara
-- Rowan
-- Zhorin
-- Malakar
-- Thiel / Nira sesuai kebutuhan
 
 ### Penutup Season
 
@@ -241,15 +192,6 @@ Menjadi klimaks identitas Kael.
 - Kabar angin, catatan resmi, dan kebenaran pribadi bertemu.
 - Kael menentukan makna dirinya sendiri.
 
-### Fokus Cast
-
-- Kael
-- Sylvara
-- Rowan
-- Zhorin
-- Malakar
-- inti cast yang masih relevan
-
 ### Penutup Season
 
 Kael tidak harus menjadi pewaris yang diterima.
@@ -262,7 +204,7 @@ Ia harus menjadi manusia yang tidak lagi ditentukan oleh catatan, rumor, atau wa
 
 Struktur season baru bergerak dari Emberwake menuju Veyrath yang lebih luas.
 
-Cerita dimulai dengan luka kecil, kabar angin, dan catatan resmi sebelum masuk ke konflik darah, simbol, warisan, dan kebenaran besar.
+Cerita dimulai dengan Paku Bulan, Elio, tungku putih, kabar angin, dan catatan resmi sebelum masuk ke konflik darah, simbol, warisan, dan kebenaran besar.
 
 Prinsipnya:
 
