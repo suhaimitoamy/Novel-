@@ -1,238 +1,272 @@
-# Story Risks and Fixes
+# Story Risks and Fixes — Reset Tahap 1
 
-## Tujuan Dokumen
+## Status Canon
 
-Dokumen ini dibuat untuk menaikkan kualitas *Kael Drayven: The Forsaken Heir* dengan cara paling jujur: mengidentifikasi titik-titik yang berpotensi membuat novel ini gagal meskipun fondasinya kuat. Ini bukan dokumen pesimistis, tetapi alat disiplin agar proyek ini terus tumbuh ke arah yang matang.
+Dokumen ini menggantikan risiko lama.
 
-Prinsipnya sederhana:
-- ide besar tidak otomatis menghasilkan novel besar,
-- yang merusak serial panjang biasanya bukan kekurangan imajinasi, melainkan kurangnya kontrol,
-- setiap risiko harus punya tindakan pencegahan yang jelas.
+Arah baru novel lebih emosional, lebih lokal, dan lebih bertahap. Karena itu, risiko utama juga berubah.
 
 ---
 
-# I. Risiko Utama dan Perbaikannya
+# I. Risiko Utama
 
-## 1. Risiko: Worldbuilding menenggelamkan cerita
+## 1. Risiko: Kael terlalu cepat terlihat besar
+
 ### Bentuk masalah
-Dunia Zerath besar, kaya, dan punya banyak istilah kuat. Ini bagus. Tapi kalau semua itu aktif sekaligus dalam tubuh cerita, pembaca akan mengagumi dunia tanpa benar-benar terikat pada Kael.
 
-### Gejala yang harus diwaspadai
-- bab penuh istilah tetapi miskin emosi,
-- pembaca tahu wilayah dan hukum dunia, tapi tidak tahu apa harga semua itu bagi Kael,
-- adegan berhenti bergerak karena harus menjelaskan sejarah.
+Kael punya nama, tanda spiral, Aether, Drayven, dan hubungan dengan Registry. Semua itu mudah membuatnya terlihat seperti figur besar sejak awal.
+
+### Gejala
+
+- Kael terlalu sering menang secara tenang.
+- Pembaca kagum sebelum peduli.
+- Warga tampak hanya sebagai latar untuk menunjukkan betapa spesial Kael.
+- Adegan terasa seperti trailer, bukan kehidupan.
 
 ### Perbaikan
-- tiap bab maksimal membawa 1–2 ide dunia utama,
-- lore hanya masuk jika mengubah keputusan, luka, atau relasi,
-- gunakan karakter, benda, ritual, dan tempat sebagai jembatan lore,
-- kembalikan fokus ke sensorik dan posisi batin Kael.
+
+- Tunjukkan Kael ingin hidup biasa.
+- Buat ia terluka oleh reaksi kecil orang lain.
+- Buat kemenangan kecil selalu punya akibat sosial.
+- Ingat: Kael harus terasa kesepian sebelum terasa kuat.
 
 ---
 
-## 2. Risiko: Kael terlalu kuat secara konsep, tapi terlalu jauh secara emosi
-### Bentuk masalah
-Kael punya identitas, luka, dan ideologi yang sangat menarik. Tapi tokoh seperti ini mudah jatuh ke jebakan: keren dibaca dari jauh, tetapi sulit dicintai dekat.
+## 2. Risiko: Emberwake terasa hanya tempat pembuka
 
-### Gejala yang harus diwaspadai
-- Kael terlalu tenang hampir di semua situasi,
-- Kael terlalu cepat memahami orang lain,
-- Kael jarang benar-benar salah secara emosional,
-- pembaca menghormati Kael lebih dari merasakan Kael.
+### Bentuk masalah
+
+Emberwake bisa gagal jika hanya dipakai sebagai titik awal lalu dilupakan.
+
+### Gejala
+
+- Pembaca tidak ingat warga lokal.
+- Tessa dan Elio terasa seperti alat plot.
+- Kepergian Kael tidak terasa berat.
+- Desa tidak punya suara sendiri.
 
 ### Perbaikan
-- tunjukkan titik di mana Kael keliru membaca hubungan manusia,
-- beri momen saat Kael menahan sesuatu yang seharusnya ia katakan,
-- pastikan Aether dan luka darahnya punya harga psikologis nyata,
-- gunakan NPC dan tokoh kecil untuk mengikat Kael kembali ke kehidupan biasa.
+
+- Beri detail kecil yang hidup: sumur, rumah singgah, bengkel, jalan berlumpur, rumah suci kecil.
+- Jadikan warga takut dengan alasan manusiawi.
+- Buat Tessa, Elio, Maeron, Sister Vaine, Corren, dan Harland punya fungsi emosional.
+- Pastikan kepergian Kael terasa seperti kehilangan, bukan perpindahan lokasi.
 
 ---
 
-## 3. Risiko: Semua karakter samping terasa penting, sehingga tidak ada fokus
-### Bentuk masalah
-Struktur serial ensemble adalah kekuatan proyek ini. Tapi kalau semua tokoh diberi bobot yang sama, alur utama akan pecah.
+## 3. Risiko: Jaringan Kabar Angin terasa tempelan
 
-### Gejala yang harus diwaspadai
-- terlalu banyak nama baru dalam rentang bab yang pendek,
-- arc utama tertunda karena subplot cast,
-- pembaca bingung siapa yang benar-benar harus diingat sekarang.
+### Bentuk masalah
+
+Kabar angin bisa terasa hanya sebagai ide keren jika tidak mengubah alur.
+
+### Gejala
+
+- Rumor hanya disebut, tidak berdampak.
+- Orang-orang tidak memperlakukan Kael berbeda karena cerita yang mereka dengar.
+- Pembawa Angin terasa seperti organisasi biasa.
+- Pamflet dan lagu tidak mengubah situasi.
 
 ### Perbaikan
-- jaga hirarki: Core Orbit > Major Side Cast > Faction Cast > NPC,
-- satu fase hanya mengaktifkan beberapa tokoh dominan,
-- tiap tokoh harus punya fungsi naratif utama yang jelas,
-- gabungkan tokoh bila dua tokoh menjalankan fungsi serupa.
+
+- Buat setiap kabar salah memicu reaksi nyata.
+- Satu rumor harus membuat pintu tertutup, harga naik, orang mengikuti, atau Registry makin tertarik.
+- Pembawa Angin harus terasa seperti orang jalanan, bukan sekte rapi.
+- Tunjukkan kabar berubah dari mulut ke mulut.
 
 ---
 
-## 4. Risiko: Antagonis terlalu “keren” tetapi kurang menggigit secara emosional
-### Bentuk masalah
-Covenant, Rowan, dan Malakar punya potensi besar. Tapi antagonis bisa gagal kalau hanya tampil ikonik tanpa menyentuh luka personal Kael.
+## 4. Risiko: Registry terlalu seperti penjahat biasa
 
-### Gejala yang harus diwaspadai
-- musuh bicara puitis tapi tidak benar-benar mengubah Kael,
-- organisasi antagonis terasa seperti roster desain, bukan kekuatan yang mengganggu hidup,
-- pertarungan melawan musuh besar seru, tapi tidak membekas setelah selesai.
+### Bentuk masalah
+
+Luminal Registry bisa jadi lemah jika ditulis terlalu kasar atau terlalu jelas jahat.
+
+### Gejala
+
+- Mereka mengancam secara terang-terangan.
+- Mereka bicara seperti musuh generik.
+- Tidak terasa resmi, rapi, dan prosedural.
+- Pembaca tidak merasakan tekanan arsip dan catatan.
 
 ### Perbaikan
-- tiap antagonis utama harus menyerang lapisan berbeda dari diri Kael,
-- beri konsekuensi sosial atau emosional nyata setelah tiap benturan besar,
-- jangan semua antagonis dijelaskan sebagai “benar dengan cara salah”; beri variasi kebusukan dan kebesaran,
-- gunakan Rowan tetap sangat personal, jangan larut menjadi sekadar anggota grup.
+
+- Buat mereka sopan.
+- Gunakan bahasa administrasi, segel, lambang, daftar, dan pertanyaan.
+- Buat warga merasa bersalah meski belum terbukti salah.
+- Registry-Reader harus menekan tanpa perlu menaikkan suara.
 
 ---
 
-## 5. Risiko: Aether menjadi konsep bagus di dokumen, tapi mati di halaman
-### Bentuk masalah
-Aether sudah jauh lebih baik daripada Pulse. Tapi kalau penulisannya tidak disiplin, Aether bisa terasa hanya seperti nama pengganti “mana.”
+## 5. Risiko: Aether dijelaskan terlalu teknis
 
-### Gejala yang harus diwaspadai
-- Aether hanya disebut, tidak dirasakan,
-- semua tokoh bicara Aether dengan bahasa yang sama,
-- Aether terasa seperti mekanik, bukan bagian dari cara dunia bernapas.
+### Bentuk masalah
+
+Aether bisa kembali terasa seperti sistem sihir biasa jika terlalu banyak dijelaskan.
+
+### Gejala
+
+- Bab awal penuh definisi.
+- Kael menjelaskan Aether seperti guru.
+- Semua tokoh memakai istilah yang sama.
+- Aether terasa seperti energi, bukan bagian dari kehidupan.
 
 ### Perbaikan
-- tiap wilayah harus punya cara berbeda merasakan / menamai / memakai Aether,
-- adegan awal harus menunjukkan Aether lewat tubuh, ruang, dan konsekuensi,
-- Kael harus berbeda bukan karena tahu istilah, tetapi karena cara bacanya terhadap Aether mengubah tindakan,
-- jangan menjelaskan Aether penuh di awal; bangun pemahaman pembaca bertahap.
+
+- Tunjukkan Aether lewat benda rusak.
+- Gunakan sensasi tubuh Kael.
+- Biarkan warga menyebutnya dengan bahasa sederhana.
+- Kael boleh tahu pola, tetapi belum harus tahu teori penuh.
 
 ---
 
-## 6. Risiko: Season structure besar, tapi bab-bab terasa kosong
-### Bentuk masalah
-Struktur macro repo sudah kuat. Bahayanya: fondasi jadi terlalu rapi di level atas, tapi longgar di level adegan.
+## 6. Risiko: Zhorin terlalu mentor keren
 
-### Gejala yang harus diwaspadai
-- season terlihat hebat saat diringkas, tapi bab-bab individual terasa seperti penghubung,
-- banyak “setup” tanpa payoff dekat,
-- terlalu banyak bab transisi.
+### Bentuk masalah
+
+Zhorin bisa jatuh menjadi figur guru kuat yang hanya berfungsi melatih Kael.
+
+### Gejala
+
+- Zhorin selalu benar.
+- Konfliknya dengan Kael terasa seperti nasihat.
+- Perlindungannya tidak terasa menyakitkan.
+- Rahasianya tidak punya dampak emosional.
 
 ### Perbaikan
-- setiap bab harus punya pressure dan shift,
-- setiap 3–5 bab harus ada perubahan yang terasa,
-- tiap arc harus punya mini-climax, bukan hanya puncak di akhir season,
-- gunakan template chapter dan scene dengan disiplin.
+
+- Zhorin harus melindungi dan melukai secara bersamaan.
+- Kael harus merasa dijaga sekaligus dikurung.
+- Setiap jawaban Zhorin yang ditahan harus membuat Kael makin retak secara batin.
+- Hubungan mereka harus terasa seperti keluarga yang tidak tahu cara bicara jujur.
 
 ---
 
-## 7. Risiko: Terlalu cepat membesar ke kosmik
-### Bentuk masalah
-Repo ini memang menargetkan skala besar. Tapi bila ancaman kosmik terlalu cepat mengambil alih, pembaca belum punya akar emosional yang cukup.
+## 7. Risiko: Tokoh lokal terlalu datar
 
-### Gejala yang harus diwaspadai
-- entitas, Fragmen, dan konvergensi muncul sebelum hubungan dasar Kael stabil,
-- pembaca tahu taruhannya besar, tapi tidak merasa kehilangan apa pun,
-- season awal terasa sudah “terlalu final.”
+### Bentuk masalah
+
+Warga Emberwake bisa terasa hanya sebagai kerumunan takut.
+
+### Gejala
+
+- Semua warga bereaksi sama.
+- Tidak ada suara lokal yang khas.
+- Mereka tampak bodoh atau jahat.
+- Pembaca tidak merasakan dilema mereka.
 
 ### Perbaikan
-- jaga season 1–2 tetap dekat tanah dan manusia,
-- buka geopolitik sebelum kosmologi penuh,
-- buat pembaca mencintai beberapa tempat dan orang dulu sebelum dunia mulai dipecah,
-- simpan pengungkapan besar untuk momen yang benar-benar mengubah makna masa lalu.
+
+- Tessa takut karena Elio.
+- Harland takut karena desa.
+- Maeron realistis karena rumah singgah hidup dari kabar.
+- Corren bicara ringan untuk menutupi cemas.
+- Sister Vaine melihat lebih banyak daripada yang ia katakan.
 
 ---
 
-## 8. Risiko: Tokoh perempuan hanya kuat secara posisi, tapi kurang tajam secara kehendak
-### Bentuk masalah
-Sylvara, Ceyna, Sera, Ilyra, Lyssara, Nira, Moura, dan lainnya punya potensi besar. Tapi tokoh perempuan dalam serial besar sering gagal karena hanya menjadi simbol, bukan pusat kehendak.
+## 8. Risiko: Sylvara masuk terlalu cepat
 
-### Gejala yang harus diwaspadai
-- mereka lebih sering menjelaskan atau memantulkan Kael daripada mendorong agenda sendiri,
-- mereka kuat saat diperkenalkan, tapi kemudian hanya mengorbit protagonis,
-- konflik mereka terlalu cepat dilelehkan ke fungsi romantis.
+### Bentuk masalah
+
+Sylvara penting, tetapi jika masuk terlalu awal, luka Emberwake bisa kehilangan ruang.
+
+### Gejala
+
+- Relasi romantis muncul sebelum Kael punya akar emosional.
+- Sylvara langsung menjadi penyembuh luka.
+- Pembaca belum melihat cukup alasan kenapa Kael sulit percaya.
 
 ### Perbaikan
-- pastikan tiap tokoh perempuan penting punya ambisi sendiri,
-- beri keputusan yang tidak selalu menguntungkan Kael,
-- jaga Sylvara tetap sebagai manusia penuh, bukan cuma jangkar emosi,
-- Ceyna dan Sera harus punya ruang untuk benar-benar menentang Kael.
+
+- Simpan Sylvara untuk fase setelah Emberwake.
+- Masukkan ia saat Kael sudah membawa beban kabar angin.
+- Jadikan Sylvara orang yang tinggal, bukan langsung pasangan.
 
 ---
 
-## 9. Risiko: Nama, istilah, dan gelar terlalu banyak terasa “dibuat”
-### Bentuk masalah
-Banyak nama dan gelar di repo ini sudah keren. Tapi kalau semuanya terlalu tinggi nadanya, dunia bisa terasa overdesigned.
+## 9. Risiko: Skala besar dibuka terlalu cepat
 
-### Gejala yang harus diwaspadai
-- pembaca sulit mengingat nama karena semuanya terdengar sama-sama besar,
-- tokoh kecil bicara terlalu megah,
-- wilayah dan kelompok terasa seperti daftar proper noun tanpa napas.
+### Bentuk masalah
+
+Fragmen, Malakar, Covenant, dan sejarah besar bisa membuat Season 1 kehilangan rasa intim.
+
+### Gejala
+
+- Nama besar muncul terlalu banyak.
+- Emberwake terasa kecil secara buruk, bukan emosional.
+- Pembaca tahu taruhannya besar, tapi belum peduli pada siapa pun.
 
 ### Perbaikan
-- imbangi nama besar dengan dialog manusiawi dan detail keseharian,
-- pakai julukan secukupnya,
-- jangan semua tokoh penting punya gelar penuh di tiap kemunculan,
-- biarkan NPC dan rakyat punya bahasa yang lebih membumi.
+
+- Tahan konflik besar.
+- Gunakan hanya bayangan tipis.
+- Biarkan pembaca kehilangan Emberwake dulu.
+- Buat satu luka kecil lebih penting daripada sepuluh istilah besar.
 
 ---
 
-## 10. Risiko: Serial panjang kehilangan arah di tengah
-### Bentuk masalah
-Semakin besar serial, semakin tinggi risiko bagian tengah terasa muter-muter atau hanya menunda klimaks.
+## 10. Risiko: Kabar angin terlalu lucu atau ringan
 
-### Gejala yang harus diwaspadai
-- ada season yang tidak mengubah posisi Kael secara besar,
-- Covenant muncul sering tapi tidak menaikkan taruhan,
-- banyak arc terasa seperti “isi dulu” sebelum masuk konflik utama.
+### Bentuk masalah
+
+Karena istilah kabar angin terdengar sehari-hari, ia bisa terasa terlalu ringan jika tidak diberi akibat.
+
+### Gejala
+
+- Rumor hanya jadi candaan.
+- Tidak ada harga sosial.
+- Kael tidak benar-benar berubah karena reputasi palsu.
 
 ### Perbaikan
-- setiap season harus meninggalkan satu kehilangan yang tidak bisa dibatalkan,
-- pastikan garis pertumbuhan Kael selalu maju,
-- setiap kemunculan Covenant atau Fragmen harus mengubah peta moral atau politik,
-- potong arc yang hanya mengulang fungsi arc sebelumnya.
+
+- Buat kabar angin menutup jalan.
+- Buat kabar angin membuat orang takut duluan.
+- Buat kabar angin membuat orang salah berharap pada Kael.
+- Buat Kael sakit karena ia tidak bisa membela diri dari cerita yang sudah berjalan.
 
 ---
 
 # II. Kekuatan Utama yang Harus Dijaga
 
-Supaya tidak hanya fokus pada risiko, ini bagian yang justru sudah sangat kuat dan wajib dijaga:
+## 1. Kael sebagai manusia yang ingin diterima
 
-## 1. Kael sebagai pewaris terbuang
-Ini identitas utama yang paling menjual. Jangan kaburkan dengan twist yang membuatnya terasa chosen one generik.
+Ini fondasi utama. Jangan tertutup oleh gelar atau kekuatan.
 
-## 2. Aether sebagai fondasi dunia
-Ini salah satu keputusan canon terbaik. Jaga agar ia tetap terasa seperti medium dunia, bukan hanya energi tempur.
+## 2. Emberwake sebagai luka awal
 
-## 3. Rowan sebagai cermin gelap personal
-Jaga Rowan tetap sangat dekat pada luka Kael. Ini salah satu sumber tensi terkuat di seluruh proyek.
+Tempat ini harus membekas sepanjang serial.
 
-## 4. Worldbuilding yang disiplin
-Repo ini kuat justru karena sekarang kamu berani menyingkirkan progression system dari tubuh utama.
+## 3. Zhorin sebagai cinta yang salah bentuk
 
-## 5. Struktur ensemble seperti serial besar
-Ini aset besar. Dengan syarat, hierarki cast harus selalu dijaga.
+Relasi ini harus rumit, bukan hitam putih.
+
+## 4. Jaringan Kabar Angin
+
+Ini pembeda penting dari alur generik. Reputasi palsu Kael harus menjadi musuh sosial.
+
+## 5. Registry sebagai tekanan resmi
+
+Sistem harus terasa dingin, bersih, dan sulit dilawan karena ia tampak sah.
 
 ---
 
-# III. Prioritas Perbaikan Tertinggi
+# III. Prioritas Revisi
 
-Kalau ingin kualitas repo dan novel naik paling cepat, prioritasnya harus begini:
-
-## Prioritas 1
-**Eksekusi bab dan adegan**
-- prose standards
-- chapter template
-- scene tension
-
-## Prioritas 2
-**Arc breakdown nyata**
-- mulai dari Season 1
-- lalu Season 2
-- fokus pada payoff, bukan hanya konsep
-
-## Prioritas 3
-**Kontrol jumlah tokoh aktif**
-- terutama di awal dan tengah serial
-
-## Prioritas 4
-**Uji Kael secara emosional, bukan cuma filosofis**
-
-## Prioritas 5
-**Jaga agar antagonis tetap personal**
+1. Revisi Chapter 1 agar insiden tungku lebih emosional.
+2. Revisi Chapter 2 agar Registry lebih menekan secara halus.
+3. Revisi Chapter 3 agar konflik Kael-Zhorin menjadi pusat luka.
+4. Tambahkan jalur awal Jaringan Kabar Angin.
+5. Tahan semua istilah besar yang belum perlu.
 
 ---
 
 # IV. Ringkasan Canon
 
-Risiko terbesar *Kael Drayven: The Forsaken Heir* bukan kurangnya ide, melainkan kemungkinan tenggelam oleh kekayaan idenya sendiri. Namun justru karena fondasinya sekarang sudah kuat, risiko-risiko itu bisa dikendalikan dengan disiplin: menjaga Kael tetap dekat, membuat Aether hidup di halaman, membatasi ledakan lore, mengaktifkan cast secara bertahap, dan memastikan setiap season benar-benar mengubah arah cerita. Jika dokumen ini dipakai sebagai alat revisi aktif, kualitas repo dan novel akan naik secara nyata.
+Risiko terbesar setelah reset bukan kurangnya ide, tetapi cerita kembali terlalu cepat menjadi besar.
+
+Novel ini harus menjaga urutan:
+
+> manusia dulu, rumah dulu, luka dulu, kabar dulu, catatan dulu, warisan belakangan.
+
+Jika urutan ini dijaga, Kael akan terasa lebih nyentuh dan perjalanan besarnya akan punya dasar emosional yang kuat.
