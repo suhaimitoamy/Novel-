@@ -1,14 +1,14 @@
-# Kael Drayven — Canon Reset Tahap 2
+# Kael Drayven — Canon Reset Tahap 3
 
 ## Status Canon
 
-Dokumen ini menggantikan reset tahap 1.
+Dokumen ini menggantikan reset tahap 2.
 
-Arah baru dibuat lebih emosional: Kael tidak hanya ditakuti karena berbeda, tetapi kehilangan hal kecil yang selama ini membuatnya masih ingin tinggal di Emberwake.
+Fokus baru: luka Kael harus punya bentuk yang tidak bisa diperbaiki hanya dengan penjelasan. Bukan luka besar dari perang, tetapi luka kecil yang membekas sepanjang perjalanan.
 
-Repo lama tetap menjadi bahan mentah. Canon utama sekarang mengikuti prinsip:
+Canon utama:
 
-> Luka kecil harus terasa lebih dulu sebelum nama besar punya arti.
+> Kael tidak hanya kehilangan kepercayaan Elio. Ia kehilangan kesempatan terakhir untuk memperbaikinya.
 
 ---
 
@@ -22,9 +22,9 @@ Repo lama tetap menjadi bahan mentah. Canon utama sekarang mengikuti prinsip:
 - **Status awal:** pemuda tanpa catatan resmi yang dibesarkan oleh Zhorin
 - **Status tersembunyi:** bagian dari garis Drayven yang pernah sengaja dibuat tidak utuh di catatan lama
 
-Kael tidak boleh dibuka sebagai sosok besar.
+Kael tidak dibuka sebagai sosok besar.
 
-Di awal cerita, ia hanyalah pemuda pendiam yang bekerja, mengamati, dan berusaha tidak membuat ruang di sekitarnya berubah.
+Ia dibuka sebagai pemuda yang nyaris punya tempat kecil di Emberwake, tetapi kehilangan tempat itu karena satu tindakan benar.
 
 ---
 
@@ -40,82 +40,112 @@ Ia tidak ingin Veyrath mengenalnya.
 
 Ia hanya ingin Emberwake tidak takut padanya.
 
-Namun setiap kali Kael menolong, orang-orang tidak hanya melihat kebaikannya. Mereka melihat tanda spiral, Aether yang berubah, dan kemungkinan bahwa tubuh Kael menyimpan sesuatu yang tidak aman untuk didekati.
-
 Inti emosional Kael:
 
 > Ia ingin ada satu orang yang tetap memanggil namanya dengan suara yang sama setelah melihat dirinya yang asli.
 
+Orang itu awalnya adalah Elio.
+
+Setelah insiden tungku, Elio masih hidup, tetapi suara itu berubah.
+
 ---
 
-# III. Luka Batin Utama
+# III. Luka Utama Kael
 
-Luka terdalam Kael bukan hanya ditolak.
+Luka terdalam Kael bukan sekadar ditolak.
 
-Luka terdalamnya adalah kehilangan bukti kecil bahwa ia masih bisa dipercaya.
+Lukanya adalah kehilangan bukti kecil bahwa ia masih bisa dipercaya.
 
-Sebelum insiden tungku, Elio adalah anak kecil yang masih berani mengikuti Kael, bertanya banyak hal, dan memperlakukannya seperti kakak yang aneh tapi aman.
+Sebelum insiden, Elio adalah anak yang masih berani mengikuti Kael, bertanya banyak hal, dan memperlakukannya seperti kakak yang aneh tetapi aman.
 
-Setelah Kael menyelamatkannya, Elio hidup.
+Elio pernah memberi Kael sebuah benda kecil dari bengkel Tessa:
 
-Tetapi Elio tidak lagi melihat Kael dengan cara yang sama.
+> **Paku Bulan** — paku bengkok yang dibentuk Elio seperti bulan sabit kecil.
 
-Itu luka awal yang harus membekas.
+Benda itu tidak berharga bagi orang lain.
 
-Luka Kael punya lima lapisan:
+Bagi Kael, itu bukti bahwa setidaknya satu orang kecil di Emberwake tidak takut padanya.
+
+Setelah insiden tungku, Elio tidak lagi berani memanggil Kael seperti dulu.
+
+Tidak lama kemudian, Tessa mengirim Elio ke kerabatnya di desa lain sebelum tekanan Registry membesar.
+
+Kael tidak sempat berpamitan.
+
+Yang tertinggal hanya Paku Bulan, diletakkan di dekat pintu rumah Zhorin.
+
+Canon penting:
+
+> Kael menyelamatkan Elio, tetapi kehilangan kesempatan untuk kembali menjadi orang yang Elio percaya.
+
+---
+
+# IV. Lapisan Luka Kael
+
+Luka Kael punya enam lapisan:
 
 1. Ia tidak tahu asal-usulnya secara utuh.
 2. Ia dibesarkan oleh Zhorin dengan perlindungan yang terasa seperti kurungan.
 3. Ia bisa menyelamatkan orang, tetapi tetap ditakuti.
 4. Orang yang dulu dekat bisa mundur setelah melihat kebenaran dirinya.
-5. Cerita tentang dirinya menyebar lebih cepat daripada kebenaran.
+5. Ia kehilangan kesempatan untuk memperbaiki hubungan itu.
+6. Cerita tentang dirinya menyebar lebih cepat daripada kebenaran.
 
 Kael tidak takut menjadi kuat.
 
-Kael takut kekuatannya membuat orang-orang yang ia sayangi benar saat mereka mulai menjauh.
+Kael takut kekuatannya membuat orang-orang yang ia sayangi merasa benar saat mereka mulai menjauh.
 
 ---
 
-# IV. Keinginan Awal Kael
+# V. Keinginan Awal Kael
 
-Keinginan awal Kael kecil.
-
-Ia ingin:
+Keinginan awal Kael kecil:
 
 - hidup tenang di Emberwake,
-- tetap menjadi orang yang boleh masuk ke bengkel Tessa tanpa membuat suasana berubah,
+- tetap boleh masuk ke bengkel Tessa tanpa membuat suasana berubah,
 - tetap menjadi orang yang Elio panggil tanpa takut,
 - mendengar Zhorin berkata jujur sekali saja,
-- menolong tanpa membuat orang mundur.
+- menolong tanpa membuat orang mundur,
+- mengembalikan Paku Bulan langsung kepada Elio dan mendengar Elio menyebut namanya sekali lagi.
 
-Keinginan kecil ini harus dihancurkan perlahan.
+Keinginan terakhir itu tidak tercapai.
 
-Bukan lewat ledakan besar, tetapi lewat tatapan, jeda, pintu yang ditutup lebih cepat, dan nama Kael yang mulai diucapkan dengan suara berbeda.
+Itulah luka permanen awal Kael.
 
 ---
 
-# V. Benua Veyrath
+# VI. Zhorin dan Keputusan yang Menyakitkan
+
+Zhorin melindungi Kael, tetapi caranya membuat luka baru.
+
+Saat tekanan Registry meningkat, Zhorin diam-diam menyetujui keputusan Tessa untuk mengirim Elio pergi dari Emberwake.
+
+Zhorin tidak memberi tahu Kael sampai semuanya sudah terlambat.
+
+Alasan Zhorin: jika Kael menemui Elio, Registry akan punya alasan lebih kuat untuk menekan Tessa dan anak itu.
+
+Alasan itu masuk akal.
+
+Tetapi bagi Kael, itu tetap terasa seperti pengkhianatan.
+
+Canon inti hubungan mereka:
+
+> Zhorin sering menyelamatkan hidup Kael dengan cara yang membuat Kael kehilangan sesuatu dari dirinya.
+
+---
+
+# VII. Benua Veyrath
 
 Canon awal memakai **Benua Veyrath**, bukan istilah “dunia” sebagai pusat bahasa.
 
 Veyrath adalah daratan tua yang keras, penuh desa perbatasan, rumah singgah, kota dagang, pengungsi, catatan resmi, dan kabar angin.
-
-Sebutan yang dipakai:
-
-- Benua Veyrath
-- daratan Veyrath
-- tanah tua ini
-- wilayah utara
-- jalur perbatasan
-- kota-kota selatan
-- tanah Aelarion
-- desa Emberwake
 
 Fokus awal tetap sempit:
 
 - rumah Zhorin,
 - bengkel Tessa,
 - Elio,
+- Paku Bulan,
 - rumah singgah Maeron,
 - sumur desa,
 - rumah suci Sister Vaine,
@@ -123,11 +153,11 @@ Fokus awal tetap sempit:
 
 ---
 
-# VI. Aether dalam Diri Kael
+# VIII. Aether dalam Diri Kael
 
 Aether bukan sekadar sihir.
 
-Namun di awal, Aether tidak boleh dijelaskan panjang.
+Di awal, Aether tidak boleh dijelaskan panjang.
 
 Pembaca harus merasakannya lewat tubuh Kael:
 
@@ -138,8 +168,6 @@ Pembaca harus merasakannya lewat tubuh Kael:
 - tanda spiral yang terasa seperti luka hidup,
 - darah yang bereaksi sebelum pikiran Kael mengerti.
 
-Kael berbeda karena ia membaca kerusakan sebelum orang lain tahu ada sesuatu yang akan pecah.
-
 Harga Aether bagi Kael:
 
 - rasa sakit fisik,
@@ -147,15 +175,14 @@ Harga Aether bagi Kael:
 - kelelahan yang tidak bisa ia jelaskan,
 - warga makin takut,
 - Registry makin tertarik,
-- Elio makin sulit menatapnya.
+- Elio makin sulit menatapnya,
+- Paku Bulan berubah dari hadiah kecil menjadi pengingat luka.
 
 ---
 
-# VII. Tanda Spiral
+# IX. Tanda Spiral
 
 Tanda spiral di tangan Kael adalah luka yang belum punya nama.
-
-Di awal cerita, tanda ini tidak boleh dijadikan simbol keren.
 
 Fungsinya:
 
@@ -173,11 +200,7 @@ Ia adalah alasan seseorang yang Kael selamatkan mulai mundur darinya.
 
 ---
 
-# VIII. Kabar Angin Kael
-
-Kael tidak langsung terkenal sebagai pahlawan.
-
-Ia terkenal karena satu kejadian kecil yang rusak di jalan.
+# X. Kabar Angin Kael
 
 Peristiwa asli:
 
@@ -215,29 +238,39 @@ Kael adalah pewaris lama yang kembali dari abu.
 
 Canon penting:
 
-> Kael kehilangan Elio sebagai orang pertama yang percaya, lalu Veyrath mengambil kehilangan itu dan menjadikannya cerita untuk dijual.
+> Veyrath tidak mendengar tentang anak yang Kael selamatkan. Veyrath hanya mendengar tentang anak bertanda spiral yang menyentuh api putih.
 
 ---
 
-# IX. Jaringan Kabar Angin
+# XI. Korban Pertama Kabar Angin
+
+Kabar angin harus punya akibat nyata sejak awal.
+
+Korban pertama bukan orang besar.
+
+Korban pertama adalah **Ralen**, penjaga kandang di jalur perbatasan.
+
+Ralen mendengar cerita tentang Anak Spiral sebelum bertemu Kael.
+
+Saat Kael datang meminta tempat berteduh, Ralen mengenali tanda di tangannya dan menolak membukakan pintu.
+
+Bukan karena Kael melakukan sesuatu padanya.
+
+Tetapi karena cerita tentang Kael sudah sampai lebih dulu.
+
+Fungsi Ralen:
+
+> membuktikan bahwa kabar angin bisa menutup pintu bahkan sebelum Kael bicara.
+
+---
+
+# XII. Jaringan Kabar Angin
 
 **Jaringan Kabar Angin** adalah jaringan longgar yang hidup dari kabar, gosip, cerita setengah benar, dan pamflet murah.
 
 Orang-orang yang bergerak di dalamnya disebut:
 
 > **Pembawa Angin**
-
-Mereka bisa berupa:
-
-- pedagang,
-- penyanyi jalanan,
-- pemilik rumah singgah,
-- pembawa pamflet,
-- juru tulis murah,
-- pengungsi,
-- pemabuk,
-- pekerja karavan,
-- orang bayaran yang menanam cerita tertentu.
 
 Mereka tidak selalu jahat.
 
@@ -251,13 +284,9 @@ Fungsi mereka:
 - membuat pejabat dan oportunis tertarik,
 - menjadikan luka pribadi Kael sebagai bahan cerita umum.
 
-Canon penting:
-
-> Sebelum Kael sempat menjelaskan dirinya, Jaringan Kabar Angin sudah lebih dulu menjual versi dirinya yang lebih mudah dipercaya orang.
-
 ---
 
-# X. Kepribadian Kael
+# XIII. Kepribadian Kael
 
 Kael tenang, tetapi bukan karena ia dingin.
 
@@ -267,6 +296,7 @@ Kael jarang bicara banyak, tetapi ia memperhatikan semuanya:
 
 - tangan Elio yang berhenti menarik lengan bajunya,
 - suara Tessa yang tetap berterima kasih tetapi tidak lagi dekat,
+- Paku Bulan yang kembali tanpa penjelasan,
 - Zhorin yang menghindari jawaban,
 - warga yang menutup pintu sedikit lebih cepat,
 - orang asing yang terlalu rapi saat bertanya.
@@ -277,101 +307,39 @@ Tetapi kekuatannya harus terasa seperti beban yang membuatnya makin sulit disent
 
 ---
 
-# XI. Relasi Inti Tahap Awal
+# XIV. Relasi Inti Tahap Awal
 
 ## Zhorin
 
 Zhorin adalah ayah angkat, pelatih, pelindung, dan penjara pertama Kael.
 
-Ia menyelamatkan Kael, tetapi menyembunyikan Kael bahkan dari dirinya sendiri.
-
-Konflik inti:
-
-> Kael ingin kebenaran karena ia merasa kehilangan dirinya. Zhorin menahan kebenaran karena mengira itu satu-satunya cara membuat Kael tetap hidup.
+Ia melindungi Kael dari luar, tetapi sering mengambil keputusan tanpa memberi Kael hak untuk memilih.
 
 ## Tessa Runehand
 
-Tessa adalah pandai besi Emberwake dan ibu yang berutang nyawa anaknya kepada Kael.
+Tessa adalah pandai besi Emberwake dan ibu Elio.
 
-Ia tahu Kael tidak jahat.
-
-Tetapi setelah melihat apa yang terjadi di tungku, ia tidak bisa sepenuhnya membiarkan Elio dekat dengannya seperti dulu.
-
-Fungsi Tessa:
-
-> rasa terima kasih yang tidak cukup kuat untuk mengalahkan rasa takut seorang ibu.
+Ia berterima kasih kepada Kael, tetapi tetap mengirim Elio pergi karena tidak ingin anaknya menjadi alat tekanan Registry.
 
 ## Elio Ash
 
 Elio adalah anak kecil yang dulu paling santai berada dekat Kael.
 
-Ia sering mengikuti Kael, bertanya tentang kapak, tungku, dan Zhorin.
+Ia memberi Kael Paku Bulan sebelum insiden.
 
-Setelah insiden tungku, Elio selamat tetapi berubah.
-
-Ia tidak membenci Kael.
-
-Itu yang membuatnya lebih sakit.
-
-Ia hanya takut.
-
-Fungsi Elio:
-
-> bukti bahwa orang bisa tetap hidup karena Kael, tetapi hubungan mereka tidak selalu selamat.
+Setelah insiden, ia pergi dari Emberwake tanpa sempat bicara lagi dengan Kael.
 
 ## Maeron Vell
 
 Maeron adalah pemilik rumah singgah.
 
-Ia tidak berniat menghancurkan Kael.
+Satu cerita yang dibiarkan hidup di mejanya menjadi awal nama Kael berjalan terlalu jauh.
 
-Namun satu cerita yang ia izinkan hidup di mejanya bisa berjalan lebih jauh daripada niatnya.
+## Ralen
 
-Fungsi Maeron:
+Ralen adalah penjaga kandang di jalur perbatasan.
 
-> pintu pertama antara luka lokal dan kabar benua.
-
-## Sister Vaine
-
-Sister Vaine menjaga rumah suci kecil Emberwake.
-
-Ia tidak langsung takut pada Kael, tetapi juga tidak mudah menghiburnya.
-
-Fungsi Sister Vaine:
-
-> suara sunyi yang mengingatkan bahwa tidak semua orang yang diam berarti membenci.
-
-## Corren Pike
-
-Corren adalah pedagang/kusir lokal.
-
-Ia membawa barang dan cerita.
-
-Fungsi Corren:
-
-> orang kecil yang mengira ia hanya bercanda, padahal candanya bisa menjadi awal kabar besar.
-
-## Registry-Reader
-
-Registry-Reader adalah wajah sistem resmi.
-
-Ia sopan, bersih, dan membuat orang kecil merasa bersalah hanya dengan pertanyaan.
-
-Fungsi Registry-Reader:
-
-> membuat pembaca merasa tekanan sistem sebelum sistem itu dijelaskan.
-
-## Ser Caldris
-
-Caldris adalah pendamping lapangan Registry.
-
-Ia bukan penyelamat.
-
-Ia adalah orang sistem yang mulai lelah melihat akibat dari pertanyaan resmi.
-
-Fungsi Caldris:
-
-> celah manusiawi di dalam struktur yang dingin.
+Ia menjadi bukti pertama bahwa kabar salah tentang Kael sudah bekerja sebelum Kael tiba.
 
 ## Sylvara
 
@@ -391,84 +359,49 @@ Fungsi Rowan nanti:
 
 ---
 
-# XII. Kekuatan Kael
-
-Nama teknis **Aether Resonance** tidak diumumkan di awal.
-
-Manifestasi awal:
-
-1. **Membaca tekanan Aether** — Kael merasakan gangguan sebelum orang lain sadar.
-2. **Menggeser arah tekanan** — Kael bisa mengalihkan bahaya, tetapi tubuhnya membayar harga.
-3. **Membaca pola yang salah** — Kael merasakan suara, benda, atau ruang yang terlalu tertata.
-4. **Menahan kerusakan sesaat** — Kael bisa membuat sesuatu tidak pecah, tetapi hanya sementara.
-
-Batasan:
-
-- Kael belum memahami penuh kemampuannya.
-- Ia tidak bisa menolong tanpa akibat.
-- Setiap tindakan membuatnya lebih terlihat.
-- Setiap ia terlihat, seseorang mulai bercerita.
-
----
-
-# XIII. Kelemahan Kael
-
-Kelemahan Kael bukan kurang kuat.
-
-Kelemahannya adalah ia terlalu siap ditinggalkan.
-
-Ia bisa membaca Aether, tetapi sulit membaca kasih sayang.
-
-Ia bisa merasakan bahaya, tetapi tidak tahu cara menerima orang yang ingin mendekat.
-
-Ia bisa menahan sakit fisik, tetapi hancur diam-diam saat Elio berhenti memanggilnya seperti dulu.
-
-Kelemahan emosional utama:
-
-> Kael terlalu terbiasa ditakuti sampai ia tidak tahu harus percaya siapa ketika seseorang tidak pergi.
-
----
-
-# XIV. Alur Awal Canon
+# XV. Alur Awal Canon
 
 Urutan emosional awal:
 
-1. Kael hidup tenang tetapi tidak sepenuhnya diterima di Emberwake.
-2. Elio masih menjadi salah satu orang kecil yang nyaman berada di dekatnya.
+1. Elio memberi Kael Paku Bulan.
+2. Kael mulai hampir nyaman di Emberwake.
 3. Kael merasakan gangguan Aether di bengkel Tessa.
 4. Ia menyelamatkan Elio dari tungku putih.
 5. Tanda spiral terlihat.
 6. Elio selamat, tetapi mulai takut.
 7. Tessa berterima kasih, tetapi menjaga jarak.
-8. Warga mulai berbisik.
-9. Kabar keluar lewat rumah singgah dan jalur perbatasan.
-10. Registry datang mencari anak tanpa catatan.
-11. Zhorin menolak membuka kebenaran penuh.
-12. Kael sadar ia tidak hanya kehilangan tempat, tetapi juga versi kecil dari dirinya yang pernah hampir dipercaya.
+8. Zhorin menahan jawaban.
+9. Tessa mengirim Elio pergi.
+10. Zhorin sudah tahu dan tidak memberi Kael kesempatan berpamitan.
+11. Paku Bulan tertinggal untuk Kael.
+12. Kabar keluar lewat rumah singgah dan jalur perbatasan.
+13. Registry datang mencari anak tanpa catatan.
+14. Kael meninggalkan Emberwake membawa Paku Bulan.
+15. Di luar Emberwake, pintu pertama tertutup karena kabar tentang dirinya sudah sampai lebih dulu.
 
 ---
 
-# XV. Aturan Penulisan Kael
+# XVI. Aturan Penulisan Kael
 
 - Jangan buat Kael keren sebelum pembaca peduli.
-- Jangan buat semua warga jahat.
-- Jangan jadikan Elio hanya korban; jadikan ia luka hidup.
-- Jangan jadikan Tessa pengkhianat; jadikan ia ibu yang takut.
+- Jangan buat Elio hanya korban; jadikan ia luka hidup.
+- Jangan buat Paku Bulan terlalu sentimental secara berlebihan; cukup muncul sederhana dan konsisten.
+- Jangan buat Tessa jahat; ia harus terasa sebagai ibu yang takut.
+- Jangan buat Zhorin selalu benar secara emosional.
 - Jangan buka Drayven terlalu cepat.
-- Jangan buat Aether seperti sistem teknik di awal.
 - Jangan biarkan kabar angin hanya jadi hiasan.
 
 ---
 
-# XVI. Ringkasan Canon
+# XVII. Ringkasan Canon
 
 Kael Drayven adalah pemuda tanpa catatan resmi dari Emberwake, wilayah utara Benua Veyrath.
 
 Ia bisa membaca Aether sebagai tekanan dan kerusakan yang tidak terlihat orang lain.
 
-Saat ia menyelamatkan Elio dari tungku putih, ia tidak kehilangan nyawa siapa pun.
+Saat ia menyelamatkan Elio dari tungku putih, ia tidak kehilangan Elio secara fisik.
 
-Tetapi ia kehilangan sesuatu yang lebih pelan: cara Elio memandangnya, keberanian Tessa untuk membiarkan anaknya dekat, dan kemungkinan bahwa Emberwake bisa menjadi rumah tanpa syarat.
+Tetapi ia kehilangan cara Elio memanggilnya, kehilangan kesempatan untuk berpamitan, dan membawa Paku Bulan sebagai bukti kecil bahwa ia pernah hampir dipercaya.
 
 Dari luka kecil itulah kabar angin lahir.
 
