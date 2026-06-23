@@ -1,361 +1,269 @@
-# Volume / Season Structure
+# Volume / Season Structure — Reset Tahap 1
 
-## Tujuan Dokumen
+## Status Canon
 
-Dokumen ini menetapkan struktur besar **volume / season** untuk *Kael Drayven: The Forsaken Heir*. Fungsinya adalah memberi ritme panjang pada serial agar bisa berkembang luas tanpa kehilangan arah.
+Dokumen ini menggantikan struktur season lama.
 
-Prinsip utamanya:
+Arah baru serial tetap panjang, tetapi pembukaannya harus lebih dekat, lebih manusiawi, dan lebih emosional.
 
-- Cerita boleh panjang, tetapi harus tetap bergerak.
-- Setiap season harus mengubah Kael, bukan hanya menambah lore.
-- Setiap season harus punya luka inti, benturan inti, dan penutup yang membuka fase berikutnya.
-- Worldbuilding, cast, dan organisasi antagonis dibuka bertahap sesuai napas season.
+Skala besar disimpan untuk fase lanjut.
 
 ---
 
-# I. Prinsip Umum Struktur Season
+# I. Prinsip Season Baru
 
-## 1. Satu season = satu perubahan besar
-Setiap season harus punya fungsi utama yang jelas:
-- membentuk,
-- mengguncang,
-- memperluas,
-- mematahkan,
-- atau menentukan ulang Kael.
-
-## 2. Satu season boleh berisi beberapa arc
-Canon ini tidak memaksa satu season sama dengan satu arc. Justru satu season idealnya berisi **2–4 arc** yang masih berada di bawah luka atau tema besar yang sama.
-
-## 3. Setiap season harus punya tiga puncak
-- **Puncak emosional**
-- **Puncak konflik eksternal**
-- **Puncak pengungkapan / perubahan makna**
-
-## 4. Season awal lebih sempit, season akhir lebih besar
-Cerita harus tumbuh dari:
-- lingkungan kecil,
-- wilayah,
-- kekaisaran,
-- sistem dunia,
-- lalu luka primordial dunia.
-
-## 5. Karakter pendukung dibagi bertahap
-Tidak semua tokoh besar aktif di season 1. Ensemble dibangun lapis demi lapis.
+1. Satu season harus punya satu perubahan besar pada Kael.
+2. Season awal harus dekat dengan tanah, tubuh, rumah, kabar, dan catatan.
+3. Benua Veyrath dibuka bertahap.
+4. Jaringan Kabar Angin menjadi tekanan naratif sejak awal.
+5. Registry menjadi wajah sistem awal.
+6. Fragmen, Covenant, Malakar, dan kosmologi besar ditahan sampai pembaca peduli pada Kael.
 
 ---
 
-# II. Struktur Macro Season
+# II. Delapan Season Utama
 
-Canon besar serial ini dibagi menjadi **8 season utama**.
+## Season 1 — Ashes Before the Name
 
-Struktur ini cukup panjang untuk rasa serial besar, tetapi cukup rapat untuk menjaga arah cerita.
-
----
-
-# III. Delapan Season Utama
-
-## Season 1 — **Ashes Before the Name**
 ### Fungsi Utama
-Membangun luka awal Kael, memperkenalkan Aether secara natural, dan membuat pembaca merasakan dunia dari bawah.
+
+Membangun luka awal Kael di Emberwake.
 
 ### Fokus Cerita
-- Kael sebelum diakui siapa pun.
-- Dunia kecil yang menolak atau takut padanya.
-- Pengaruh Zhorin sebagai tangan pembentuk awal.
-- Tanda-tanda pertama bahwa cara pandang Kael terhadap Aether berbeda.
+
+- Kael hidup sebagai pemuda tanpa catatan resmi.
+- Ia menyelamatkan Elio dari kecelakaan tungku Aether.
+- Warga Emberwake mulai menjaga jarak.
+- Luminal Registry datang mencari anak tanpa catatan.
+- Jaringan Kabar Angin mulai membawa cerita tentang Anak Spiral.
 
 ### Fokus Cast
+
 - Kael
 - Zhorin
-- Eira atau figur rusak awal
-- NPC jangkar seperti Maeron, Tessa, Elio, Sister Vaine, Corren
-
-### Fokus Dunia
-- Aether diperkenalkan lewat pengalaman.
-- Dunia terasa sempit, keras, dan dekat ke tanah.
-- Belum banyak geopolitik besar dibuka.
+- Tessa
+- Elio
+- Maeron
+- Sister Vaine
+- Corren
+- Harland
+- Registry-Reader
+- Ser Caldris
 
 ### Penutup Season
-Kael dipaksa keluar dari lingkaran kecilnya. Identitasnya tidak lagi bisa disembunyikan sepenuhnya.
+
+Kael meninggalkan Emberwake bukan karena ingin petualangan, tetapi karena tempat kecil itu tidak lagi aman untuk siapa pun yang dekat dengannya.
 
 ---
 
-## Season 2 — **The Hidden Bloodline**
+## Season 2 — The Road of Rumors
+
 ### Fungsi Utama
-Membuka warisan, legitimasi, dan luka darah Kael.
+
+Membuat Kael berhadapan dengan versi palsu dirinya sendiri.
 
 ### Fokus Cerita
-- Kael mulai menyadari bahwa dirinya terkait dengan sesuatu yang jauh lebih tua.
-- Sylvara mulai menjadi poros emosional penting.
-- Munculnya pihak-pihak yang melihat Kael sebagai ancaman atau aset.
-- Kael mulai bergerak melintasi wilayah dan bertemu dunia yang lebih luas.
+
+- Kabar tentang Anak Spiral menyebar di jalur perbatasan.
+- Setiap tempat mengenal Kael lewat versi berbeda.
+- Pamflet, lagu jalanan, cerita karavan, dan gosip rumah singgah mengubah satu kejadian kecil menjadi legenda awal.
+- Kael mulai memahami bahwa diam tidak menghentikan cerita.
 
 ### Fokus Cast
+
+- Kael
+- Zhorin
+- Corren / Maeron sebagai gema awal
+- Pembawa Angin
+- juru tulis pamflet
+- penyanyi murah
+- tokoh lokal jalur perbatasan
+
+### Penutup Season
+
+Nama Kael tidak lagi hanya bergerak di desa kecil. Nama itu mulai masuk ke telinga kota-kota selatan.
+
+---
+
+## Season 3 — The Hidden Record
+
+### Fungsi Utama
+
+Membuka konflik catatan, garis darah, dan penghapusan identitas.
+
+### Fokus Cerita
+
+- Registry memperkuat pencarian.
+- Kael mengetahui bahwa masalahnya bukan hanya rumor.
+- Ada arsip lama yang tidak utuh.
+- Nama Drayven mulai muncul sebagai sesuatu yang sengaja disembunyikan.
+- Sylvara mulai masuk sebagai poros emosional yang lebih jelas.
+
+### Fokus Cast
+
+- Kael
+- Zhorin
+- Sylvara
+- Ser Caldris
+- Registry-Reader / pejabat Registry lain
+- Tessa atau Elio sebagai luka yang masih membekas
+
+### Penutup Season
+
+Kael tidak lagi bisa menganggap dirinya hanya korban salah paham. Ada sesuatu dalam catatan lama yang memang mengarah padanya.
+
+---
+
+## Season 4 — Blood Without a Home
+
+### Fungsi Utama
+
+Membuka bahwa garis darah tidak selalu menjadi kehormatan; sering kali ia menjadi kurungan.
+
+### Fokus Cerita
+
+- Kael mulai melihat cara Veyrath menilai manusia melalui nama keluarga.
+- Bangsawan darah dan sistem legitimasi mulai aktif.
+- Sylvara menjadi orang pertama yang benar-benar melihat Kael sebagai manusia.
+- Ceyna dapat masuk sebagai lawan moral dari sisi sistem.
+
+### Fokus Cast
+
 - Kael
 - Sylvara
 - Zhorin
-- Tarran
-- Ceyna
-- beberapa NPC wilayah baru
-
-### Fokus Dunia
-- Aelarion mulai terasa.
-- Garis Drayven, warisan, dan legitimasi mulai dibuka.
-- Fragmen masih berupa bayangan, bukan fokus penuh.
-
-### Penutup Season
-Kael tidak lagi hanya diburu oleh nasib pribadi, tetapi oleh struktur dunia yang mulai sadar ia ada.
-
----
-
-## Season 3 — **Fragments in the Dark**
-### Fungsi Utama
-Memperluas dunia ke konflik wilayah, faksi, dan kebangkitan Fragmen.
-
-### Fokus Cerita
-- Kael mulai bersinggungan lebih langsung dengan Fragmen.
-- Rowan masuk lebih nyata sebagai cermin gelap dan ancaman ideologis.
-- Sera dan tokoh sistem lain mulai menantang Kael dari sisi “cahaya resmi.”
-- Dunia mulai menunjukkan bahwa banyak pihak rusak, bukan hanya musuh-musuh terang-terangan.
-
-### Fokus Cast
-- Kael
-- Sylvara
-- Rowan
 - Ceyna
 - Tarran
-- Sera
-- Valen / Eira / Drevon sesuai arc
-
-### Fokus Dunia
-- Kekaisaran mulai punya wajah.
-- Wilayah seperti Aelarion, Karag Thürm, Aranyel, atau Vorthael bisa aktif lebih jelas.
-- The Eclipsed Covenant mulai hadir lewat rumor, simbol, atau satu kursi.
+- beberapa tokoh darah / arsip
 
 ### Penutup Season
-Kael tidak lagi sekadar bergerak melawan keadaan. Ia mulai meninggalkan bekas pada tatanan dunia.
+
+Kael menyadari bahwa nama Drayven bukan hanya jawaban. Nama itu juga pintu menuju masalah yang lebih tua.
 
 ---
 
-## Season 4 — **Thrones in Fracture**
+## Season 5 — Fracture of Veyrath
+
 ### Fungsi Utama
-Mendorong cerita dari konflik regional ke konflik politik dan sistemik.
+
+Mengubah konflik pribadi Kael menjadi konflik sosial yang lebih luas.
 
 ### Fokus Cerita
-- Beberapa kekaisaran mulai retak dari dalam.
-- Kael terseret ke benturan legitimasi, darah, dan struktur kekuasaan.
-- Rowan makin berbahaya karena ia tidak hanya memahami Kael, tetapi juga memahami celah sistem.
-- Hubungan Kael dengan Sylvara, Zhorin, dan Ceyna diuji oleh politik dan kepercayaan.
+
+- Beberapa wilayah mulai memakai nama Kael untuk kepentingan masing-masing.
+- Jaringan Kabar Angin menjadi lebih terarah.
+- Registry tidak lagi menjadi satu-satunya tekanan.
+- Rowan mulai masuk sebagai cermin gelap yang memahami luka Kael.
 
 ### Fokus Cast
+
 - Kael
-- Rowan
 - Sylvara
+- Rowan
 - Ceyna
-- Sera
-- Drevon
-- Kaz
-- Renn mulai lebih terasa penting
-
-### Fokus Dunia
-- 2–4 kekaisaran aktif nyata.
-- Konflik antarfaksi mulai memanas.
-- Covenant mulai terasa sebagai aktor nyata di lapangan.
-
-### Penutup Season
-Kael berubah dari gangguan menjadi faktor yang benar-benar bisa memecah keseimbangan kekuasaan.
-
----
-
-## Season 5 — **The Eclipsed Covenant**
-### Fungsi Utama
-Membuka wajah penuh organisasi elit antagonis dan menjadikan mereka motor besar konflik lapangan.
-
-### Fokus Cerita
-- Beberapa kursi Covenant aktif nyata.
-- Kael diburu, diuji, digoda, atau dipelajari oleh anggota-anggota berbeda.
-- Rowan makin ambigu antara alat, sekutu, dan pengkhianat semua pihak.
-- Kael menyadari bahwa musuh-musuhnya tidak sepenuhnya salah saat mengatakan dunia lama memang cacat.
-
-### Fokus Cast
-- Kael
-- Rowan
-- anggota Covenant tahap awal
-- Sylvara
-- Sera
 - Tarran
-- Valen / Seris / Garrik / Lyssara sesuai arc
-
-### Fokus Dunia
-- Noctis Veil, Rhazareth, Iskali, atau wilayah-wilayah misterius mulai terbuka.
-- The Eclipsed Covenant menjadi wajah ancaman besar.
+- Pembawa Angin penting
+- tokoh wilayah baru
 
 ### Penutup Season
-Kael tidak lagi berhadapan hanya dengan sistem lama, tetapi juga dengan mereka yang ingin mengganti dunia lewat gerhana.
+
+Kael mulai menjadi simbol yang tidak bisa ia kendalikan sepenuhnya.
 
 ---
 
-## Season 6 — **War Against the Sacred Order**
+## Season 6 — The Name That Divides
+
 ### Fungsi Utama
-Menjadikan konflik Kael sebagai perang terbuka terhadap tatanan resmi dunia.
+
+Membuat nama Kael membelah orang-orang di Veyrath.
 
 ### Fokus Cerita
-- Benturan besar dengan struktur suci, garis darah, otoritas resmi, dan kekaisaran yang tidak bisa lagi netral.
-- Kael dipaksa memilih apa yang masih layak ia lindungi.
-- Tokoh-tokoh pendukung mendapat puncak pengujian mereka sendiri.
-- Dunia mulai runtuh bukan hanya secara politik, tetapi secara makna.
+
+- Ada yang menganggap Kael harapan.
+- Ada yang menganggap Kael kesalahan lama.
+- Ada yang ingin memakainya.
+- Rowan menekan Kael dari sisi ideologi.
+- Sylvara menguji apakah Kael masih bisa memilih dirinya sendiri.
 
 ### Fokus Cast
+
 - Kael
 - Sylvara
 - Rowan
-- Sera
+- Zhorin
 - Ceyna
-- Drevon
-- Renn
-- Zhorin kembali menjadi sangat penting
-
-### Fokus Dunia
-- Aelarion, Lykaros, dan sistem cahaya runtuh dari dalam.
-- Beberapa kursi Covenant menjadi lawan langsung.
+- tokoh sistem dan tokoh jalanan
 
 ### Penutup Season
-Kael tidak lagi bisa kembali menjadi siapa pun selain pusat perubahan dunia.
+
+Kael tidak lagi bisa hanya menolak cerita tentang dirinya. Ia harus memilih cerita mana yang akan ia patahkan dan mana yang akan ia tanggung.
 
 ---
 
-## Season 7 — **Convergence of the Broken World**
+## Season 7 — The Old Inheritance
+
 ### Fungsi Utama
-Menyatukan semua luka besar: Fragmen, darah, entitas lama, dan kebenaran dunia.
+
+Membuka lapisan warisan lama yang selama ini hanya disiratkan.
 
 ### Fokus Cerita
-- Fragmen aktif penuh.
-- Malakar naik dari bayangan menjadi ancaman nyata.
-- Rahasia besar tentang dunia, warisan, atau fungsi Kael dibuka.
-- Kael harus menghadapi kemungkinan bahwa dirinya memang simpul hidup dari bencana yang lebih tua.
+
+- Fungsi Drayven dibuka lebih dalam.
+- Aether mulai terlihat sebagai struktur yang lebih luas.
+- Fragmen boleh mulai aktif sebagai masalah besar.
+- Malakar boleh mulai naik sebagai bayangan nyata, tetapi hanya setelah konflik manusia kuat.
 
 ### Fokus Cast
+
 - Kael
+- Sylvara
 - Rowan
+- Zhorin
 - Malakar
-- Sylvara
-- Zhorin
-- Thiel
-- Nira
-- anggota Covenant yang tersisa atau berpindah posisi
-
-### Fokus Dunia
-- Lykaros, Nethrakar, dan wilayah-wilayah warisan besar aktif.
-- Dunia tidak lagi bisa ditutup kembali ke bentuk lamanya.
+- Thiel / Nira sesuai kebutuhan
 
 ### Penutup Season
-Pertanyaan akhirnya bukan lagi siapa yang menang, tetapi dunia mana yang akan dibiarkan hidup.
+
+Kael memahami bahwa dirinya bukan hanya bagian dari sejarah keluarga, tetapi simpul dari warisan yang lebih tua.
 
 ---
 
-## Season 8 — **The Forsaken Heir**
+## Season 8 — The Forsaken Heir
+
 ### Fungsi Utama
-Menjadi klimaks akhir: keputusan Kael terhadap dirinya, dunia, dan harga kebebasan.
+
+Menjadi klimaks identitas Kael.
 
 ### Fokus Cerita
-- Kael menghadapi bentuk final sistem lama, gerhana baru, dan luka terdalam dirinya.
-- Seluruh relasi besar harus mencapai titik keputusan.
-- Tidak semua tokoh harus selamat, tetapi semua poros utama harus dibayar.
-- Akhir harus terasa sekaligus personal, mitis, dan tragis bila perlu.
+
+- Kael menghadapi nama Drayven secara penuh.
+- Semua relasi besar dibayar.
+- Kabar angin, catatan resmi, dan kebenaran pribadi bertemu.
+- Kael menentukan makna dirinya sendiri.
 
 ### Fokus Cast
+
 - Kael
 - Sylvara
 - Rowan
-- Malakar
 - Zhorin
-- inti cast yang masih hidup dan relevan
-
-### Fokus Dunia
-- Konvergensi total antara Aether, Void, Fragmen, dan legitimasi dunia.
-- Bentuk akhir dunia ditentukan.
+- Malakar
+- inti cast yang masih relevan
 
 ### Penutup Season
-Cerita menjawab pertanyaan inti:
 
-**bisakah seseorang yang lahir sebagai warisan yang dibuang merebut hak untuk menjadi dirinya sendiri, dan bisakah dunia yang cacat diberi bentuk baru tanpa mengulang luka lamanya?**
+Kael tidak harus menjadi pewaris yang diterima.
 
----
-
-# IV. Pola Isi Satu Season
-
-Agar tiap season terasa utuh, pola idealnya seperti ini:
-
-## 1. Pembuka Luka
-Season dimulai dengan keadaan yang tidak stabil bagi Kael.
-
-## 2. Perluasan Lingkaran
-Masalah awal meluas ke tokoh lain, wilayah lain, atau struktur lain.
-
-## 3. Titik Balik Tengah
-Ada satu pengkhianatan, pengungkapan, atau kekalahan yang mengubah makna season.
-
-## 4. Naiknya Harga
-Apa yang dipertaruhkan jadi lebih jelas dan lebih mahal.
-
-## 5. Puncak Emosional dan Konflik
-Benturan besar terjadi: fisik, ideologis, atau keduanya.
-
-## 6. Penutup yang Mengubah Arah
-Season berakhir dengan keadaan baru, bukan kembali ke titik semula.
+Ia harus menjadi manusia yang tidak lagi ditentukan oleh catatan, rumor, atau warisan lama.
 
 ---
 
-# V. Pembagian Arc per Season
+# III. Ringkasan Canon
 
-Agar serial bisa panjang tanpa terasa liar, tiap season idealnya punya:
+Struktur season baru bergerak dari Emberwake menuju Veyrath yang lebih luas.
 
-- **Arc Pembuka** — memperkenalkan luka utama season.
-- **Arc Perluasan** — membuka wilayah, cast, atau ancaman baru.
-- **Arc Benturan Tengah** — titik patah season.
-- **Arc Puncak** — perang kecil, konfrontasi besar, atau pengungkapan utama.
+Cerita dimulai dengan luka kecil, kabar angin, dan catatan resmi sebelum masuk ke konflik darah, simbol, warisan, dan kebenaran besar.
 
-Season yang lebih besar boleh punya lebih banyak arc, tetapi empat fungsi ini harus tetap ada.
+Prinsipnya:
 
----
-
-# VI. Aturan Panjang Serial
-
-## 1. Jangan ukur dari jumlah episode, ukur dari perubahan
-Cerita panjang yang baik adalah cerita yang terus mengubah posisi Kael, bukan sekadar menambah perjalanan.
-
-## 2. Setiap season harus meninggalkan bekas
-Minimal ada satu hal yang tidak bisa diambil kembali:
-- hubungan rusak,
-- wilayah hancur,
-- kebenaran terbuka,
-- identitas berubah,
-- atau sistem retak.
-
-## 3. Satu season boleh memusat pada satu wilayah besar
-Tidak semua season harus menjelajahi banyak tempat.
-
-## 4. NPC dan empire cast dipakai sebagai napas
-Mereka menjaga season terasa besar tanpa harus selalu dipenuhi tokoh inti.
-
-## 5. Covenant dipakai bertahap
-Jangan semua kursi aktif di satu season kecuali menjelang akhir besar.
-
----
-
-# VII. Potensi Struktur Internal per Volume
-
-Kalau nanti serial ini juga dibagi per volume novel, maka 1 season bisa dipecah menjadi beberapa volume:
-
-- **Volume A** — pembuka dan pengenalan luka season
-- **Volume B** — perluasan konflik dan benturan cast
-- **Volume C** — titik balik dan puncak awal
-- **Volume D** — klimaks season dan penutup arah baru
-
-Tidak semua season harus punya empat volume penuh, tetapi pola ini bisa dipakai bila serial berkembang sangat panjang.
-
----
-
-# VIII. Ringkasan Canon
-
-Struktur *Kael Drayven: The Forsaken Heir* dibangun sebagai serial besar dengan delapan season utama: dimulai dari luka awal Kael dan dunianya yang sempit, lalu perlahan membuka darah, Fragmen, kekaisaran, organisasi gerhana, perang terhadap tatanan resmi, hingga konvergensi dunia lama dan keputusan akhir tentang bentuk baru Zerath. Dengan struktur ini, serial dapat tumbuh panjang, lebar, dan hidup, tetapi tetap bergerak pada satu garis utama: perjalanan Kael dari warisan yang dibuang menjadi penentu nasib dunia.
+> Kael harus kehilangan kemungkinan hidup biasa dulu sebelum cerita berhak membawanya ke skala besar.
