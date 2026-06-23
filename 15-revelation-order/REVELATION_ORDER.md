@@ -1,430 +1,315 @@
-# Revelation Order
+# Revelation Order — Reset Tahap 1
 
-## Tujuan Dokumen
+## Status Canon
 
-Dokumen ini menetapkan **urutan pengungkapan canon** untuk *Kael Drayven: The Forsaken Heir*. Fungsinya adalah menjaga misteri, tekanan, dan skala cerita tetap naik secara sehat.
+Dokumen ini menggantikan urutan pengungkapan lama.
 
-Karena proyek ini punya banyak elemen besar—Aether, Drayven, Fragmen, Covenant, Registry, Malakar, sejarah primordial—maka yang menentukan kualitas narasi bukan hanya apa yang ada, tetapi **kapan pembaca mengetahuinya**.
-
-Prinsip utamanya:
-
-- Pembaca tidak boleh tahu semuanya terlalu cepat.
-- Pengungkapan harus naik dari **pengalaman → kecurigaan → pola → kebenaran parsial → kebenaran besar**.
-- Setiap rahasia yang dibuka harus mengubah makna cerita, bukan sekadar menambah fakta.
-- Misteri Kael harus tetap jadi pusat gravitasi dari banyak pengungkapan awal.
+Arah baru menjaga agar pembaca mengetahui rahasia Kael secara bertahap: dari rasa, kabar, catatan, nama, warisan, lalu kebenaran besar.
 
 ---
 
-# I. Tingkat Pengungkapan
+# I. Prinsip Pengungkapan Baru
 
-Agar terstruktur, semua rahasia canon dibagi menjadi 5 tingkat:
-
-## Tingkat 1 — Felt
-Pembaca **merasakan** sesuatu sebelum memahaminya.
-
-Contoh:
-- Aether menegang.
-- Kael membaca dunia secara berbeda.
-- Dusun atau orang-orang bereaksi aneh.
-- Ada lambang, nama, atau resonansi yang mengganggu tubuh Kael.
-
-## Tingkat 2 — Named
-Sesuatu diberi nama, tapi belum diberi penjelasan utuh.
-
-Contoh:
-- Aether disebut.
-- Drayven disebut.
-- Registry disebut.
-- Fragmen disebut.
-
-## Tingkat 3 — Framed
-Pembaca mulai tahu fungsi atau posisi sesuatu dalam dunia.
-
-Contoh:
-- Aether bukan sihir biasa.
-- Drayven adalah garis darah sensitif.
-- Registry menjaga catatan yang tidak netral.
-- Fragmen terkait hukum purba dan legitimasi dunia.
-
-## Tingkat 4 — Reframed
-Pengungkapan baru membuat pembaca harus **membaca ulang** informasi lama.
-
-Contoh:
-- Kael bukan sekadar anak yang dibuang, tetapi bagian dari sesuatu yang sengaja dihapus.
-- Sistem suci ternyata dibangun di atas sejarah yang dipotong.
-- Covenant bukan sekadar kelompok jahat, tetapi hasil retakan dunia.
-
-## Tingkat 5 — Core Truth
-Kebenaran besar yang mengubah inti novel.
-
-Contoh:
-- Fungsi sebenarnya garis Drayven.
-- Hubungan Kael dengan struktur dunia lama.
-- Makna terdalam Fragmen, Malakar, atau konflik primordial.
-- Harga sebenarnya dari kebebasan Kael.
+1. Pembaca harus merasakan sebelum memahami.
+2. Kabar angin boleh menyebar lebih cepat daripada fakta.
+3. Catatan resmi boleh terasa menakutkan sebelum dijelaskan.
+4. Nama Drayven tidak boleh dibuka penuh terlalu cepat.
+5. Malakar, Fragmen, Covenant, dan kosmologi besar ditahan sampai fondasi emosional kuat.
+6. Setiap jawaban harus mengubah posisi Kael.
 
 ---
 
-# II. Aturan Umum Pengungkapan
+# II. Tingkat Pengungkapan
 
-## 1. Rasa dulu, penjelasan belakangan
-Aether, Void, Registry, dan sejarah dunia harus lebih dulu terasa dalam tubuh, ruang, dan konflik sebelum dijelaskan.
+## Tingkat 1 — Dirasakan
 
-## 2. Satu rahasia besar per fase dominan
-Setiap season boleh memegang beberapa misteri, tapi idealnya hanya satu atau dua pengungkapan besar yang dominan.
+Pembaca merasakan sesuatu salah tanpa tahu nama lengkapnya.
 
-## 3. Pengungkapan besar harus punya harga
-Setiap jawaban penting harus datang bersama:
-- kehilangan,
-- konflik,
-- pengkhianatan,
-- luka,
-- atau pecahnya kepercayaan.
+Contoh:
 
-## 4. Jangan membuka kosmologi sebelum akar emosional kuat
-Pembaca harus peduli pada Kael, Zhorin, Sylvara, dusun, dan dunia kecil dulu sebelum dibawa terlalu jauh ke sejarah primordial.
+- Aether menegang di sekitar tungku.
+- Tanda spiral muncul seperti luka.
+- Darah Kael bereaksi pada lambang Registry.
+- Warga Emberwake mundur setelah Kael menolong.
+- Zhorin menahan jawaban terlalu sering.
 
-## 5. Tiap pengungkapan harus mengubah posisi Kael
-Kalau sebuah rahasia dibuka tapi tidak mengubah keputusan, rasa takut, atau relasi Kael, maka pengungkapannya terlalu dini atau tidak perlu.
+## Tingkat 2 — Disebut
+
+Sesuatu diberi nama, tetapi belum diberi penjelasan utuh.
+
+Contoh:
+
+- Aether
+- Luminal Registry
+- Anak Spiral
+- Jaringan Kabar Angin
+- Pembawa Angin
+- Drayven
+
+## Tingkat 3 — Dibingkai
+
+Pembaca mulai memahami fungsi sosial atau emosional sesuatu.
+
+Contoh:
+
+- Aether bukan sekadar sihir, tetapi pola yang terasa di tubuh dan benda.
+- Registry bukan sekadar pejabat, tetapi sistem catatan yang menekan.
+- Kabar angin bukan sekadar gosip, tetapi jaringan sosial yang bisa mengubah nasib orang.
+- Drayven bukan sekadar nama keluarga, tetapi sesuatu yang sengaja dibuat tidak utuh.
+
+## Tingkat 4 — Dibaca Ulang
+
+Pengungkapan baru membuat pembaca membaca ulang adegan lama.
+
+Contoh:
+
+- Kael tidak hanya disembunyikan karena berbahaya, tetapi karena namanya mengganggu catatan lama.
+- Zhorin tidak hanya menahan kebenaran karena keras, tetapi karena tahu setiap jawaban punya harga.
+- Kabar tentang Kael tidak menyebar alami sepenuhnya; ada pihak yang ikut membentuknya.
+
+## Tingkat 5 — Kebenaran Inti
+
+Kebenaran besar yang mengubah inti cerita.
+
+Contoh:
+
+- fungsi penuh garis Drayven,
+- alasan Kael tidak dicatat utuh,
+- hubungan Kael dengan Aether lama,
+- makna final tanda spiral,
+- bentuk warisan yang harus ditolak Kael.
 
 ---
 
-# III. Revelation Order by Season
+# III. Pengungkapan per Season
 
 ## Season 1 — Ashes Before the Name
-### Apa yang pembaca harus tahu
+
+### Yang pembaca harus tahu
+
 - Kael berbeda.
-- Ia membaca Aether dengan cara yang tidak biasa.
-- Dunia kecil di sekitarnya tidak benar-benar menerimanya.
-- Ada nama / garis / warisan yang sengaja disembunyikan darinya.
-- Pihak resmi dari luar mulai mencarinya.
+- Ia ingin hidup biasa.
+- Emberwake tidak sepenuhnya menerima dirinya.
+- Aether terasa melalui tubuh dan benda rusak.
+- Tanda spiral adalah sesuatu yang belum punya nama jelas.
+- Registry mencari anak tanpa catatan.
+- Kabar pertama tentang Kael mulai keluar dari desa.
 
-### Apa yang baru boleh diberi nama
-- **Aether**
-- **Drayven** (atau jejak nama itu)
-- **Luminal Registry**
-- fakta bahwa Kael terkait dengan garis darah sensitif
+### Yang boleh disebut
 
-### Apa yang baru boleh dibingkai secara parsial
-- Aether adalah medium dasar dunia, bukan sekadar sihir.
-- Registry menjaga sesuatu yang lebih besar dari birokrasi biasa.
-- Zhorin menyembunyikan masa lalu dan identitas Kael.
-- Kael bukan anak biasa yang sekadar terlantar.
+- Aether
+- Luminal Registry
+- Anak Spiral
+- Drayven sebagai jejak samar
+- Jaringan Kabar Angin sebagai kemungkinan awal
 
-### Apa yang hanya boleh disiratkan
-- Liora Drayven
-- Fragmen
-- Aelarion sebagai struktur resmi besar
-- adanya konflik sejarah lama di balik penghapusan nama Kael
-- Covenant sebagai rumor, bayangan, atau simbol jauh
+### Yang hanya disiratkan
 
-### Apa yang belum boleh dibuka penuh
-- fungsi penuh garis Drayven
-- sejarah primordial utuh
-- Malakar
-- struktur 12 kekaisaran secara detail
-- tujuan besar Covenant
+- alasan penuh Zhorin menyembunyikan Kael,
+- fungsi penuh tanda spiral,
+- hubungan Drayven dengan catatan lama,
+- Aelarion sebagai pusat sistem resmi.
 
-### Fungsi season ini
-Membuat pembaca peduli pada Kael dan merasakan bahwa namanya sedang diburu oleh dunia yang lebih besar.
+### Yang belum boleh dibuka
 
----
-
-## Season 2 — The Hidden Bloodline
-### Apa yang pembaca harus tahu
-- Garis Drayven memang nyata dan penting.
-- Liora Drayven adalah nama besar dalam sejarah itu.
-- Penghapusan / pembuangan Kael bukan peristiwa kecil, tetapi tindakan yang terhubung ke stabilitas lama.
-- Sylvara masuk lebih kuat sebagai poros emosional dan jembatan ke dunia yang lebih luas.
-
-### Apa yang boleh dibuka lebih jauh
-- struktur warisan dan legitimasi darah,
-- bahwa beberapa pihak tidak sekadar mencari Kael, tetapi ingin mengklaim, menguji, atau menahannya,
-- sebagian hubungan antara garis darah dan akses terhadap warisan kuno.
-
-### Apa yang masih harus ditahan
-- fungsi akhir Kael dalam sejarah dunia,
-- kebenaran terdalam tentang Fragmen,
-- alasan final kenapa Drayven sangat ditakuti,
-- siapa saja yang aktif di balik layar selain Registry.
-
-### Fungsi season ini
-Mengubah misteri Kael dari “anak aneh yang diburu” menjadi “pewaris terbuang yang keberadaannya mengganggu struktur dunia.”
-
----
-
-## Season 3 — Fragments in the Dark
-### Apa yang pembaca harus tahu
-- Fragmen bukan mitos mati.
-- Kael punya resonansi khusus terhadap Fragmen.
-- Rowan adalah cermin gelap yang memahami luka Kael secara personal.
-- Dunia tidak dibagi sederhana antara terang dan gelap; sistem resmi juga busuk.
-
-### Apa yang boleh dibuka lebih jauh
-- hubungan Fragmen dengan kekaisaran dan legitimasi,
-- bahwa sejarah resmi telah memotong banyak kebenaran,
-- bahwa Kael bukan satu-satunya produk luka dunia ini.
-
-### Apa yang masih ditahan
-- bentuk final tujuan Covenant,
 - Malakar,
-- makna paling dalam dari hubungan Kael dan fragmen hukum purba.
-
-### Fungsi season ini
-Menggeser pembaca dari misteri darah ke misteri dunia: Kael bukan hanya diburu karena garisnya, tetapi karena posisinya terhadap simpul hukum dunia.
-
----
-
-## Season 4 — Thrones in Fracture
-### Apa yang pembaca harus tahu
-- beberapa kekaisaran dibangun di atas versi sejarah yang tidak jujur,
-- stabilitas dunia lama dipertahankan dengan pemotongan, penghapusan, dan kekerasan resmi,
-- Rowan mulai menjadi ancaman ideologis besar, bukan sekadar karakter personal.
-
-### Apa yang boleh dibuka lebih jauh
-- bagaimana struktur kekaisaran berbeda membaca Aether,
-- bahwa sistem warisan bukan hanya tradisi, tetapi alat kontrol,
-- bahwa beberapa tokoh utama tahu lebih banyak tentang Kael daripada yang mereka akui.
-
-### Apa yang masih harus ditahan
-- kebenaran terdalam tentang dunia primordial,
-- hubungan penuh Kael dengan fungsi dunia lama,
-- posisi final Malakar.
-
-### Fungsi season ini
-Membuat pembaca melihat bahwa masalah Kael tidak lagi personal atau lokal—ia kini bentrok dengan sistem sejarah dan kekuasaan.
+- Covenant,
+- Fragmen sebagai pusat konflik,
+- sejarah besar Veyrath,
+- fungsi akhir garis Drayven.
 
 ---
 
-## Season 5 — The Eclipsed Covenant
-### Apa yang pembaca harus tahu
-- Covenant benar-benar ada, aktif, dan berbahaya.
-- Mereka bukan sekadar sekte jahat; mereka lahir dari retakan dunia yang nyata.
-- Setiap kursi membawa luka dan tafsir sendiri tentang dunia.
-- Rowan berada dekat dengan wilayah abu-abu organisasi itu, tapi tidak boleh jadi bawahan biasa.
+## Season 2 — The Road of Rumors
 
-### Apa yang boleh dibuka lebih jauh
-- ideologi inti Covenant,
-- keyakinan mereka bahwa dunia lama memang cacat,
-- bahwa beberapa musuh Kael justru memahami kebenaran yang juga ia rasakan.
+### Yang pembaca harus tahu
 
-### Apa yang masih harus ditahan
-- apakah Covenant sepenuhnya salah,
-- apa bentuk dunia baru yang sesungguhnya mereka inginkan,
-- seberapa jauh mereka memahami fungsi Kael yang sebenarnya.
+- Kabar tentang Kael berubah setiap kali berpindah tempat.
+- Pembawa Angin hidup dari cerita.
+- Pamflet dan lagu bisa membuat rumor bertahan lebih lama.
+- Kael mulai dibebani versi palsu dirinya.
 
-### Fungsi season ini
-Mengubah musuh utama dari “sistem lama” menjadi benturan antara dua jawaban besar terhadap dunia yang sama-sama rusak.
+### Yang boleh disebut
 
----
+- Pembawa Angin
+- pamflet Anak Spiral
+- kota kecil jalur perbatasan
+- beberapa versi rumor Kael
 
-## Season 6 — War Against the Sacred Order
-### Apa yang pembaca harus tahu
-- struktur suci, Registry, dan kekuasaan resmi berdiri di atas sejarah yang telah dipalsukan atau dibersihkan,
-- Kael kini bukan hanya target, tetapi ancaman sah terhadap tatanan resmi,
-- pilihan moral mulai membelah cast utama.
+### Yang masih ditahan
 
-### Apa yang boleh dibuka lebih jauh
-- sejarah Orde Suci,
-- alasan kenapa sebagian nama, garis, dan warisan disingkirkan,
-- hubungan yang lebih jelas antara Aelarion, legitimasi cahaya, dan pemangkasan sejarah.
-
-### Apa yang masih ditahan
-- inti terdalam konflik primordial,
-- kebenaran utuh tentang Malakar,
-- bentuk final dari pilihan Kael.
-
-### Fungsi season ini
-Membayar banyak misteri politik dan sejarah sambil menyiapkan benturan ke level dunia.
+- siapa yang sengaja mengarahkan rumor,
+- hubungan penuh rumor dengan kepentingan politik,
+- kebenaran penuh Drayven.
 
 ---
 
-## Season 7 — Convergence of the Broken World
-### Apa yang pembaca harus tahu
-- Malakar bukan sekadar nama ancaman; ia terhubung ke luka ontologis dunia.
-- Fungsi Kael dalam perubahan dunia jauh lebih dalam daripada sekadar pewaris atau pengklaim darah.
-- Sejarah primordial yang dulu terasa mitis kini punya konsekuensi langsung pada tubuh dan pilihan Kael.
+## Season 3 — The Hidden Record
 
-### Apa yang boleh dibuka penuh
-- hubungan Fragmen dengan hukum purba,
-- hubungan Kael dengan simpul-simpul besar dunia,
-- alasan mengapa dunia tidak bisa tetap dalam bentuk lamanya.
+### Yang pembaca harus tahu
 
-### Apa yang masih harus ditahan sedikit
-- bentuk akhir pilihan Kael,
-- apakah dunia akan dihancurkan, diubah, atau dipertahankan dengan harga baru.
+- Masalah Kael bukan hanya rumor.
+- Ada catatan resmi yang hilang, tidak utuh, atau sengaja ditutup.
+- Drayven mulai menjadi nama yang jelas.
+- Zhorin tahu lebih banyak daripada yang ia katakan.
+- Sylvara mulai menjadi poros emosional penting.
 
-### Fungsi season ini
-Mengubah seluruh bacaan pembaca atas masa lalu dan menempatkan Kael di pusat konvergensi semua luka besar dunia.
+### Yang boleh dibuka
+
+- sebagian fungsi Luminal Registry,
+- sebagian alasan orang tanpa catatan dianggap berbahaya,
+- tanda awal hubungan Kael dengan garis darah lama.
+
+### Yang masih ditahan
+
+- fungsi akhir Drayven,
+- kebenaran penuh Aether lama,
+- Malakar,
+- tujuan penuh pihak besar di balik catatan.
+
+---
+
+## Season 4 — Blood Without a Home
+
+### Yang pembaca harus tahu
+
+- Darah di Veyrath bukan hanya asal-usul, tetapi alat legitimasi.
+- Nama keluarga bisa menjadi rumah atau penjara.
+- Kael mulai memahami harga menjadi Drayven.
+- Sylvara melihat Kael sebagai manusia, bukan catatan.
+
+### Yang boleh dibuka
+
+- struktur sosial bangsawan darah,
+- cara garis darah memengaruhi status,
+- alasan beberapa pihak ingin mengklaim Kael.
+
+### Yang masih ditahan
+
+- rahasia terdalam tanda spiral,
+- hubungan penuh Drayven dengan Aether lama,
+- konflik kosmik.
+
+---
+
+## Season 5 — Fracture of Veyrath
+
+### Yang pembaca harus tahu
+
+- Nama Kael mulai dipakai oleh banyak pihak.
+- Kabar angin tidak lagi bergerak acak sepenuhnya.
+- Rowan masuk sebagai cermin gelap.
+- Veyrath mulai retak secara sosial dan politik.
+
+### Yang boleh dibuka
+
+- pihak yang menanam cerita palsu,
+- tujuan sebagian kelompok terhadap nama Kael,
+- posisi Rowan sebagai tafsir gelap dari luka Kael.
+
+### Yang masih ditahan
+
+- Malakar secara penuh,
+- bentuk final warisan Drayven,
+- kebenaran tertua Aether.
+
+---
+
+## Season 6 — The Name That Divides
+
+### Yang pembaca harus tahu
+
+- Kael menjadi simbol yang membelah orang.
+- Sebagian orang melihat harapan pada dirinya.
+- Sebagian orang melihat kesalahan lama.
+- Kael harus memilih mana yang ia terima dan mana yang ia tolak.
+
+### Yang boleh dibuka
+
+- sejarah sosial yang membuat nama Drayven sensitif,
+- konflik terbuka antara catatan resmi dan kenyataan manusia,
+- alasan Rowan semakin berbahaya secara ideologis.
+
+### Yang masih ditahan
+
+- inti lama Aether,
+- Malakar penuh,
+- jawaban akhir tanda spiral.
+
+---
+
+## Season 7 — The Old Inheritance
+
+### Yang pembaca harus tahu
+
+- Warisan Drayven lebih tua dari catatan resmi.
+- Aether punya lapisan yang belum dipahami Kael.
+- Fragmen boleh mulai aktif sebagai masalah besar.
+- Malakar mulai terlihat sebagai ancaman terhadap identitas Kael.
+
+### Yang boleh dibuka
+
+- hubungan Drayven dengan Aether lama,
+- sebagian sejarah yang dipotong dari catatan,
+- bentuk awal konflik yang lebih tua.
+
+### Yang masih ditahan
+
+- keputusan akhir Kael,
+- makna final menjadi The Forsaken Heir.
 
 ---
 
 ## Season 8 — The Forsaken Heir
-### Apa yang harus dibuka penuh
-- kebenaran final tentang Kael,
-- harga terdalam dari kebebasan,
-- makna akhir garis Drayven,
-- apakah dunia yang cacat layak diberi bentuk baru,
-- dan siapa yang benar-benar menjadi warisan—atau penolakan terhadap warisan itu.
 
-### Fungsi season ini
-Semua pengungkapan yang tersisa harus berubah menjadi pilihan, bukan lagi hanya pengetahuan.
+### Yang pembaca harus tahu
 
----
+- Kebenaran penuh nama Drayven.
+- Makna penuh tanda spiral.
+- Harga penuh dari kebebasan Kael.
+- Perbedaan antara menjadi pewaris dan menjadi manusia.
 
-# IV. Revelation Order by Subject
+### Yang dibayar
 
-## A. Aether
-### Season 1
-Dirasakan dan dinamai. Pembaca tahu Kael membacanya berbeda.
-
-### Season 2–3
-Dipahami sebagai medium dasar dunia. Mulai terlihat perbedaan tafsir Aether antarwilayah dan antarsistem.
-
-### Season 4–6
-Aether dipahami sebagai dasar banyak legitimasi palsu dan konflik struktur.
-
-### Season 7–8
-Aether dipahami penuh dalam relasinya dengan Void, Fragmen, dan bentuk dunia.
+- luka Emberwake,
+- hubungan dengan Zhorin,
+- relasi dengan Sylvara,
+- cermin gelap Rowan,
+- versi palsu Kael dari Jaringan Kabar Angin,
+- warisan lama yang ingin mendefinisikan dirinya.
 
 ---
 
-## B. Drayven / Liora / Garis Darah Kael
-### Season 1
-Hanya jejak: Kael terkait nama yang disembunyikan.
+# IV. Aturan Pengungkapan
 
-### Season 2
-Nama Drayven dan Liora mulai punya bentuk sejarah dan bobot politik.
+## 1. Jangan buka jawaban tanpa harga
 
-### Season 3–4
-Pembaca tahu bahwa garis ini terkait warisan besar dan ketakutan besar.
+Setiap kebenaran harus membuat Kael kehilangan sesuatu, mengubah pilihan, atau memperumit relasi.
 
-### Season 5–7
-Fungsi garis ini dalam sejarah dunia mulai dibuka lebih dalam.
+## 2. Jangan beri nama terlalu cepat
 
-### Season 8
-Makna final garis ini dibayar secara penuh.
+Sesuatu harus terasa dulu sebelum dinamai.
 
----
+## 3. Kabar angin boleh salah
 
-## C. Luminal Registry / Sacred Order
-### Season 1
-Registry terasa seperti birokrasi berbahaya yang terlalu jauh masuk ke hidup kecil orang.
+Pembaca boleh mendengar versi yang salah selama narasi utama menjaga pusat emosional Kael tetap jelas.
 
-### Season 2–4
-Pembaca mulai tahu bahwa Registry adalah alat dari stabilitas yang dipaksakan.
+## 4. Registry harus terasa sebelum dijelaskan
 
-### Season 5–6
-Hubungannya dengan sejarah yang dipangkas dan legitimasi palsu dibuka.
+Pembaca harus merasa tidak nyaman dengan cara mereka bertanya sebelum tahu struktur lengkapnya.
 
-### Season 7–8
-Posisinya dibaca ulang sebagai bagian dari dunia lama yang harus dihadapi atau dilampaui.
+## 5. Drayven harus muncul sebagai luka, bukan informasi
+
+Nama Drayven harus terasa seperti sesuatu yang menyakitkan sebelum menjadi pengetahuan dunia.
 
 ---
 
-## D. Fragmen
-### Season 1
-Hanya bayangan atau nama jauh.
+# V. Ringkasan Canon
 
-### Season 2
-Boleh disinggung sebagai objek warisan yang sensitif.
+Urutan pengungkapan baru bergerak dari pengalaman kecil menuju kebenaran besar.
 
-### Season 3
-Menjadi pengungkapan besar: nyata, aktif, dan terhubung ke Kael.
+Season awal hanya boleh membuka Kael, Emberwake, Aether sebagai rasa, Registry sebagai tekanan, dan Jaringan Kabar Angin sebagai awal reputasi palsu.
 
-### Season 4–6
-Dipahami sebagai simpul hukum yang juga menjadi pusat perebutan dunia.
+Kebenaran besar ditahan sampai pembaca memahami hal paling penting:
 
-### Season 7–8
-Makna terdalamnya dibuka penuh.
-
----
-
-## E. The Eclipsed Covenant
-### Season 1
-Rumor, simbol, atau jejak sangat tipis saja.
-
-### Season 2
-Boleh muncul sebagai desas-desus tentang kelompok atau tangan tak terlihat.
-
-### Season 3
-Mulai terasa melalui satu anggota atau satu operasi.
-
-### Season 4
-Diakui sebagai aktor nyata yang memperburuk retakan dunia.
-
-### Season 5
-Pengungkapan besar: struktur, ideologi, kursi-kursi utama.
-
-### Season 6–8
-Mereka dibaca ulang, dipecah, diuji, dan dibayar dalam konflik besar.
-
----
-
-## F. Rowan
-### Season 1
-Boleh hanya jejak samar, nama jauh, atau aura seseorang yang belum hadir penuh.
-
-### Season 2
-Masuk nyata sebagai sosok yang memahami Kael terlalu baik.
-
-### Season 3–4
-Diungkap sebagai cermin gelap dan lawan ideologis utama.
-
-### Season 5+
-Relasinya dengan Covenant, dunia, dan interpretasi kebebasan makin rumit.
-
-### Final
-Rowan harus tetap terasa personal sampai akhir, tidak tenggelam menjadi hanya “pihak antagonis.”
-
----
-
-## G. Malakar
-### Season 1–4
-Hanya bayangan jauh, nama yang ditahan, atau jejak ontologis yang tak bisa dipahami penuh.
-
-### Season 5–6
-Boleh mulai terasa sebagai ancaman yang lebih tua dari politik biasa.
-
-### Season 7
-Naik jadi pengungkapan besar.
-
-### Season 8
-Dibayar penuh sebagai bagian dari konflik akhir dunia dan identitas Kael.
-
----
-
-# V. Teknik Pengungkapan yang Dipakai
-
-## 1. Sensory revelation
-Pembaca tahu sesuatu lewat tubuh, ruang, dan tekanan.
-
-## 2. Social revelation
-Pembaca tahu sesuatu lewat cara orang lain bereaksi terhadap Kael.
-
-## 3. Symbol revelation
-Lambang, relik, tanda, atau nama kecil membawa arti besar.
-
-## 4. Conflict revelation
-Kebenaran muncul saat benturan, bukan saat kuliah.
-
-## 5. Reversal revelation
-Pengungkapan terbaik adalah yang membuat pembaca membaca ulang informasi lama dengan makna baru.
-
----
-
-# VI. Red Flags Pengungkapan
-
-- Aether dijelaskan terlalu lengkap di awal.
-- Drayven dibuka terlalu cepat sebelum pembaca peduli pada Kael sebagai manusia.
-- Fragmen jadi fokus besar sebelum world kecil Kael punya bobot emosi.
-- Covenant muncul sebagai roster penuh terlalu dini.
-- Malakar disebut terlalu cepat tanpa rasa ancaman yang dibangun bertahap.
-- Sejarah primordial dibuka sebelum pembaca punya akar pada konflik yang membumi.
-- Semua jawaban datang lewat dialog penjelas.
-
----
-
-# VII. Ringkasan Canon
-
-Revelation Order menjaga *Kael Drayven: The Forsaken Heir* tetap bergerak dari misteri intim ke konflik besar dengan urutan yang sehat. Pembaca pertama-tama harus merasakan bahwa Kael salah tempat di dunia, lalu mengetahui bahwa namanya disembunyikan, lalu memahami bahwa darah, Aether, Fragmen, Registry, Covenant, dan sejarah dunia semuanya terhubung. Dengan urutan ini, novel tidak jatuh menjadi tumpukan lore atau ledakan kosmologi terlalu dini, tetapi tumbuh dari rasa takut kecil, ke warisan besar, lalu ke kebenaran yang cukup kuat untuk memaksa dunia berubah.
+> sebelum Kael menjadi pewaris yang ditolak, ia adalah manusia yang ingin dipercaya.
