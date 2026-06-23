@@ -1,117 +1,490 @@
-# Kael Drayven — Canon
+# Kael Drayven — Canon Reset Tahap 1
 
-## Identitas Dasar
+## Status Canon
+
+Dokumen ini menggantikan versi awal **Kael Drayven — Canon**.
+
+Repo lama tetap dianggap sebagai bahan mentah, tetapi arah karakter Kael dirombak agar lebih emosional, lebih manusiawi, dan tidak langsung terasa terlalu besar sejak awal.
+
+Fokus utama sekarang bukan lagi membuka Kael sebagai pewaris agung yang langsung diburu oleh sejarah besar, melainkan sebagai anak yang ingin hidup biasa, tetapi setiap kebaikannya justru membuat orang lain takut.
+
+---
+
+# I. Identitas Dasar
 
 - **Nama:** Kael Drayven
-- **Gelar:** The Forsaken Heir
-- **Asal:** Zerath
-- **Status:** Pewaris terbuang dari garis darah Liora Drayven, lahir sebagai bagian dari sejarah besar dunia tetapi disingkirkan dari pengakuan resminya.
+- **Nama yang dikenal di awal:** Kael
+- **Julukan awal dari desas-desus:** Anak Spiral, Bocah Tungku Putih, Si Tangan Abu, Anak yang Tidak Terbakar, Anak Zhorin
+- **Gelar jauh nanti:** The Forsaken Heir
+- **Wilayah awal:** Desa Emberwake, wilayah utara Benua Veyrath
+- **Status awal:** Anak tanpa catatan resmi yang dibesarkan dalam persembunyian oleh Zhorin
+- **Status tersembunyi:** Bagian dari garis Drayven yang sengaja dihapus dari catatan tertentu
 
-## Inti Karakter
+Kael tidak boleh langsung diperkenalkan sebagai sosok besar.
 
-Kael bukan pahlawan pilihan, bukan anak emas takdir, dan bukan sosok yang diterima dunia sejak awal. Ia adalah warisan yang dibuang sebelum sempat diakui. Sejak lahir, eksistensinya lebih dianggap ancaman daripada harapan. Karena itu, hidup Kael dibentuk oleh penolakan, pengasingan, dan kebutuhan untuk bertahan di dunia yang lebih cepat menghakimi daripada memahami.
+Di awal cerita, ia hanyalah seorang pemuda pendiam di desa perbatasan yang terlalu sering tahu sesuatu sebelum orang lain sadar ada bahaya.
 
-Yang membuat Kael kuat bukan karena ia sejak awal ditakdirkan menang, melainkan karena ia tumbuh dalam kondisi yang memaksanya memahami bahwa hidup tidak pernah memberikan tempat secara cuma-cuma. Ia harus merebut tempatnya sendiri, bahkan bila itu berarti berhadapan dengan darah, sistem, dan sejarah yang melahirkannya.
+---
 
-## Asal-Usul
+# II. Arah Utama Karakter
 
-Kael lahir dari garis darah Liora Drayven, sosok besar yang menjadi fondasi salah satu warisan terpenting di Zerath. Namun karena alasan politik, ketakutan, ramalan, atau keseimbangan kekuasaan, ia dibuang dari jalur utama garis keturunan itu. Ia tidak tumbuh sebagai pewaris yang dilindungi, melainkan sebagai pewaris yang disembunyikan.
+Kael bukan pahlawan pilihan.
 
-Setelah dijauhkan dari pusat warisannya, Kael dibesarkan dan dilatih oleh Dragonlord Zhorin. Zhorin menjadi figur ayah angkat, guru, pembentuk, sekaligus sumber ambiguitas besar dalam hidupnya. Dari tangannya, Kael belajar bertahan, membaca kekuatan, dan membentuk keteguhan. Tapi dari tangan yang sama, Kael juga belajar bahwa perlindungan dan pengendalian sering kali memakai wajah yang sama.
+Kael bukan anak emas takdir.
 
-## Kepribadian
+Kael bukan orang yang sejak awal ingin mengguncang Benua Veyrath.
 
-Kael adalah sosok yang tenang, logis, dan introspektif. Ia tidak mudah bereaksi secara impulsif, jarang menunjukkan isi batinnya secara terbuka, dan lebih sering menyimpan beban dalam diam. Ia bukan orang yang mudah terpesona oleh kekuasaan, ramalan, atau bahasa suci yang dipakai dunia untuk membenarkan tatanannya.
+Kael adalah seseorang yang ingin diterima oleh satu tempat saja.
 
-Ia tidak dingin karena gaya, tetapi karena dunia telah berkali-kali membuktikan bahwa emosi yang salah bisa dipakai orang lain untuk mengikat, memanipulasi, atau menghancurkan. Meski begitu, Kael bukan sosok tanpa empati. Justru karena ia masih punya empati, ia menjadi lebih rumit: ia cukup keras untuk bertahan, tetapi tidak cukup rusak untuk menutup mata terhadap penderitaan orang lain.
+Namun di Emberwake, bahkan saat ia menolong, orang-orang tetap menjaga jarak. Mereka tidak melihat kebaikannya lebih dulu. Mereka melihat keanehannya, tanda di tangannya, dan cara udara berubah setiap kali ia memakai Aether.
 
-## Cara Pandang terhadap Dunia
+Inti emosional Kael:
 
-Kael tidak memandang Aether sebagai sihir dalam arti sempit. Baginya, **Aether adalah medium dasar eksistensi** — unsur halus yang menyusun, menghubungkan, dan mengalirkan hukum realitas di Zerath.
+> Ia ingin ada satu orang yang tidak mundur saat melihat dirinya yang asli.
 
-Apa yang oleh dunia disebut sihir, mukjizat, kutukan, warisan, atau kehendak langit, dalam pandangan Kael hanyalah manifestasi berbeda dari hukum yang sama: **resonansi Aether**. Ia melihat dunia bukan sebagai panggung takdir, melainkan sebagai jaringan pola, tekanan, keteraturan, dan gangguan yang bisa dipahami.
+---
 
-Karena itu, Kael tidak mudah tunduk pada dewa, tidak menganggap takdir suci, dan tidak percaya bahwa sesuatu menjadi benar hanya karena dibungkus dalam bahasa ilahi. Ia tidak menolak dunia gaib; ia menolak kepatuhan buta pada dunia gaib.
+# III. Luka Batin Utama
 
-## Luka Batin Utama
+Luka terdalam Kael bukan sekadar karena ia ditolak.
 
-Luka terdalam Kael bukan sekadar karena ia ditolak, tetapi karena ia takut dirinya tidak pernah benar-benar menjadi manusia utuh. Ia takut dirinya hanyalah wadah: bagi warisan lama, bagi kehendak darah, bagi Fragmen, atau bagi ambisi orang-orang yang melihat potensi dalam dirinya.
+Lukanya adalah rasa takut bahwa penolakan itu mungkin benar.
 
-Luka ini punya tiga lapisan:
+Ia takut dirinya memang bukan manusia yang pantas dicintai, melainkan sesuatu yang harus disembunyikan, dipakai, dikendalikan, atau dihancurkan.
 
-- Ia ditolak sebagai anak.
-- Ia dipakai sebagai pewaris.
-- Ia ditakuti sebagai ancaman.
+Luka ini punya empat lapisan:
 
-Karena itulah Kael sangat sensitif pada segala bentuk penguasaan. Ia bisa menerima rasa sakit, pengasingan, bahkan kebencian. Tapi yang paling sulit ia terima adalah saat seseorang mencoba menentukan apa dirinya, apa tujuannya, dan untuk siapa ia harus hidup.
+1. Ia tidak tahu asal-usulnya secara utuh.
+2. Ia dibesarkan oleh Zhorin dengan perlindungan yang terasa seperti kurungan.
+3. Ia bisa menyelamatkan orang, tetapi tetap ditakuti.
+4. Cerita tentang dirinya menyebar lebih cepat daripada kebenaran.
 
-## Tujuan Hidup
+Kael tidak takut menjadi kuat.
 
-Di awal cerita, tujuan Kael sederhana: bertahan hidup dan mencari tahu siapa dirinya sebenarnya. Namun seiring berkembangnya konflik, tujuannya bergeser menjadi sesuatu yang jauh lebih besar: memutus kendali sistem, warisan, dan kehendak lama atas hidupnya.
+Kael takut kekuatannya membuat semua orang benar saat mereka menyebutnya ancaman.
 
-Pada tahap lebih lanjut, tujuan Kael bukan lagi sekadar membebaskan diri sendiri, tetapi meruntuhkan tatanan dunia yang berdiri di atas kebohongan takdir, sistem pahlawan, dan legitimasi palsu para entitas. Pada akhirnya, Kael bukan ingin menjadi yang terkuat. Ia ingin merebut hak atas dirinya sendiri, lalu menentukan apakah dunia lama masih layak dipertahankan atau harus dipatahkan untuk memberi ruang bagi bentuk keseimbangan yang baru.
+---
 
-## Kekuatan Utama
+# IV. Keinginan Awal Kael
 
-### Nama Inti Kekuatan: Aether Resonance
+Di awal cerita, Kael tidak ingin membalas dendam.
 
-Aether Resonance adalah kemampuan Kael untuk membaca, menembus, dan memaksa ulang hubungan resonansi antara tubuh, ruang, energi, dan kehendak. Kael tidak "melempar sihir" seperti penyihir biasa; ia mengintervensi cara realitas menyusun dirinya sendiri melalui Aether.
+Ia tidak ingin menjadi yang terkuat.
 
-Manifestasi utamanya:
+Ia tidak ingin menghancurkan sistem.
 
-- **Perception of Resonance** — menangkap gangguan halus dalam medan eksistensi: niat, tekanan, ketidakstabilan sihir, dan cacat struktur.
-- **Vector Imposition** — memaksakan arah, laju, dan tekanan pada gerak tubuh atau objek.
-- **Field Compression** — membuat ruang terasa berat dan menekan dengan meningkatkan kepadatan resonansi.
-- **Structural Disruption** — merusak kohesi teknik, perisai, ritual, dan bentuk kekuatan lain.
-- **Equilibrium Resonance** — keadaan sinkronisasi penuh saat tubuh, jiwa, dan Aether Kael menyatu tanpa celah.
+Keinginan awalnya kecil:
 
-## Kelemahan
+- ingin hidup tenang di Emberwake,
+- ingin Zhorin jujur sekali saja,
+- ingin menolong tanpa membuat orang takut,
+- ingin dipercaya tanpa harus menjelaskan semua hal tentang dirinya.
 
-Kelemahan Kael tidak datang dari kurangnya kekuatan, tetapi dari cara dirinya dibangun.
+Keinginan kecil ini penting karena dari sinilah luka besar tumbuh.
 
-Semakin dalam ia menyelaraskan diri dengan Aether, semakin tipis batas antara "Kael sebagai manusia" dan "Kael sebagai medium hukum." Bahayanya bukan hanya tubuh rusak, tetapi identitasnya bisa terkikis. Ia berisiko menjadi sangat sempurna sebagai alat kekuatan, tetapi semakin jauh dari dirinya sendiri.
+Saat semua itu direnggut, pembaca akan mengerti kenapa Kael akhirnya berubah.
 
-Selain itu, Kael terlalu terbiasa membaca segalanya melalui struktur. Dalam pertarungan, itu membuatnya unggul. Dalam hubungan manusia, itu bisa membuatnya terasing. Hal-hal seperti kasih sayang, pengampunan, iman, atau loyalitas yang irasional sulit ia terima dengan cepat, karena semuanya tidak tunduk pada logika bersih.
+---
 
-Darahnya sendiri juga merupakan kerentanan. Karena berasal dari garis besar Zerath, Kael punya akses terhadap hukum-hukum tua dunia, tetapi hukum-hukum itu pun punya akses terhadap dirinya. Tempat, ritual, atau warisan primordial dapat bereaksi padanya dengan cara yang tidak selalu bisa ia kendalikan.
+# V. Benua Veyrath
 
-Dan yang paling penting: Kael bukan lemah karena tidak tega, tetapi karena ia punya standar batin yang sangat tajam tentang kapan kekerasan dibenarkan dan kapan ia berubah menjadi kebusukan. Itu membuatnya tidak pernah bisa menjadi monster sepenuhnya.
+Istilah utama bukan lagi “dunia Zerath” sebagai pembuka.
 
-## Relasi Inti
+Canon awal memakai **Benua Veyrath**.
 
-### Zhorin
-Zhorin adalah ayah angkat, pembentuk, pelatih, dan sumber luka besar Kael. Dalam dirinya, Kael melihat kasih sayang yang tak pernah lembut dan kekuasaan yang selalu menyamar sebagai perlindungan. Hubungan mereka bukan sekadar cinta atau benci. Zhorin adalah sosok yang berjasa membentuk Kael, dan justru karena itulah ia juga menjadi salah satu luka terdalamnya.
+Veyrath adalah daratan tua yang penuh desa perbatasan, kota dagang, jalur pengungsi, reruntuhan lama, tanah suci, dan kekuasaan resmi yang sering datang terlambat tetapi menindas terlalu cepat.
 
-### Sylvara
-Sylvara adalah jangkar emosional Kael. Ia bukan sekadar pasangan, tetapi bukti bahwa Kael masih bisa dilihat sebagai manusia, bukan instrumen. Sylvara penting bukan karena melembutkan Kael, melainkan karena memaksanya menghadapi pertanyaan yang paling ia hindari: jika dunia tidak pernah memberinya tempat, masihkah ia sanggup membangun tempat untuk orang lain?
+Sebutan yang dipakai dalam narasi:
 
-### Rowan
-Rowan adalah teman, pengkhianat, cermin gelap, dan lawan ideologis Kael. Ia memahami luka Kael bukan dari luar, tetapi dari titik patah yang serupa. Kalau Zhorin membentuk Kael melalui kekuasaan, Rowan menggoda Kael melalui pengertian. Ia tahu kebencian Kael terhadap sistem dan tahu betapa mudahnya kebenaran berubah menjadi pembenaran bagi kehancuran. Karena itu, Rowan bukan hanya musuh, tetapi tafsir alternatif atas apa Kael bisa menjadi.
+- Benua Veyrath
+- daratan Veyrath
+- tanah tua ini
+- wilayah utara
+- jalur perbatasan
+- kota-kota selatan
+- tanah Aelarion
+- desa Emberwake
 
-### Malakar the Hollow
-Malakar tidak melihat Kael sebagai individu, tetapi sebagai bentuk yang belum selesai, wadah yang bisa dibuka, disempurnakan, atau dimiliki. Jika Rowan adalah ancaman ideologis, maka Malakar adalah ancaman ontologis: ia menyerang dasar keberadaan Kael itu sendiri.
+Kata “dunia” boleh dipakai, tetapi tidak menjadi istilah utama yang diulang terus-menerus.
 
-## Penampilan
+Fokus awal tetap sempit: Emberwake, jalan berlumpur, bengkel Tessa, rumah Zhorin, rumah singgah Maeron, rumah suci kecil Sister Vaine, dan ketakutan warga biasa.
 
-Kael canon paling kuat memakai identitas visual berikut:
+---
 
-- Rambut abu-abu gelap keperakan.
-- Mata merah-keperakan.
-- Kulit agak pucat.
-- Jubah hitam bernuansa murim-modern.
-- Spiral bercahaya di tangan kanan.
-- Aura stabil, berat, dan menekan.
+# VI. Aether dalam Diri Kael
 
-## Catatan Penting untuk Alur Awal
+Aether bukan sekadar sihir.
 
-Di awal cerita, Aether harus dijelaskan secara natural.
+Namun di tahap awal, Aether tidak boleh dijelaskan seperti buku pelajaran.
 
-Bukan lewat kuliah lore panjang, tetapi lewat pengalaman, pengamatan, atau dialog yang membuat pembaca langsung paham bahwa:
+Pembaca harus merasakannya melalui tubuh Kael.
 
-- Aether adalah medium dasar dunia.
-- Semua sihir dan fenomena besar lahir dari resonansi Aether.
-- Kael berbeda karena ia melihat Aether sebagai hukum, bukan mukjizat.
+Bagi Kael, Aether terasa seperti pola tekanan dalam udara, getaran halus pada ruang, tarikan di bawah kulit, atau benang tak terlihat yang menegang sebelum sesuatu rusak.
 
-## Ringkasan Identitas
+Kael berbeda bukan karena ia punya nama teknik yang keren.
 
-Kael Drayven adalah anak asli Zerath dan pewaris terbuang dari garis Liora Drayven. Ia tumbuh jauh dari pengakuan, dibentuk oleh Zhorin, dan memandang Aether sebagai medium dasar eksistensi, bukan mukjizat. Tenang, logis, dan tertutup, Kael hidup dengan luka utama: takut dirinya hanya akan menjadi wadah bagi kehendak orang lain. Saat Fragmen bangkit dan dunia mulai bergerak untuk memakainya, Kael memilih jalan sebaliknya — bukan tunduk pada takdir, tetapi merebut dirinya kembali dan memaksa dunia menghadapi kebenaran yang selama ini disembunyikan.
+Kael berbeda karena ia bisa membaca kerusakan sebelum orang lain tahu ada sesuatu yang salah.
+
+Contoh bentuk awal:
+
+- ia tahu tungku Tessa akan meledak karena udara di sekitar batu Aether terasa seperti tulang retak,
+- ia tahu seseorang berbohong karena resonansi suaranya terlalu rapi,
+- ia tahu lambang Registry berbahaya karena darahnya bereaksi sebelum pikirannya mengerti,
+- ia bisa mengalihkan tekanan Aether, tetapi tubuhnya membayar harga.
+
+Aether harus selalu punya harga.
+
+Jika Kael menolong, harus ada akibat:
+
+- sakit di tangan,
+- tanda spiral makin jelas,
+- warga makin takut,
+- Registry makin curiga,
+- desas-desus makin liar.
+
+---
+
+# VII. Tanda Spiral
+
+Tanda spiral di tangan Kael adalah simbol awal yang paling mudah menyebar sebagai rumor.
+
+Di awal cerita, tanda ini belum dijelaskan penuh.
+
+Fungsinya:
+
+- bukti visual bahwa Kael berbeda,
+- sumber ketakutan warga,
+- pemicu pembacaan Registry,
+- bahan desas-desus di penjuru Veyrath,
+- pengingat bagi Kael bahwa tubuhnya menyimpan sesuatu yang belum ia pahami.
+
+Tanda spiral tidak boleh langsung dipakai sebagai lambang keren.
+
+Ia harus terasa seperti luka yang belum punya nama.
+
+---
+
+# VIII. Desas-desus Kael
+
+Kael tidak langsung terkenal sebagai pahlawan.
+
+Ia terkenal karena kabar yang rusak.
+
+Peristiwa asli:
+
+> Kael menyelamatkan Elio dari kecelakaan tungku Aether di bengkel Tessa.
+
+Namun setelah kabar itu keluar dari Emberwake, cerita mulai berubah.
+
+## Versi desa sebelah
+
+Kael menahan ledakan dengan tangan kosong.
+
+## Versi kota dagang
+
+Kael membelah api putih dan membuat besi meleleh tanpa menyentuhnya.
+
+## Versi selatan
+
+Kael punya tanda spiral yang bisa memerintah Aether.
+
+## Versi Registry
+
+Kael adalah individu tanpa catatan yang berbahaya bagi stabilitas garis darah.
+
+## Versi rakyat takut
+
+Kael bukan anak manusia, tetapi kutukan yang dibesarkan Zhorin.
+
+## Versi orang kagum
+
+Kael adalah pewaris lama yang kembali dari abu.
+
+## Versi yang dilebih-lebihkan
+
+Kael pernah membunuh satu regu pemburu hanya dengan membuka telapak tangan.
+
+Padahal itu belum tentu benar.
+
+Canon penting:
+
+> Sebelum Kael sempat menjelaskan siapa dirinya, Benua Veyrath sudah lebih dulu menciptakan versi dirinya yang ingin mereka takuti, kagumi, manfaatkan, atau bunuh.
+
+---
+
+# IX. Penyulam Kabar
+
+**Penyulam Kabar** bukan organisasi resmi besar di awal cerita.
+
+Mereka adalah jaringan longgar yang hidup dari cerita:
+
+- pedagang,
+- penyanyi jalanan,
+- pemilik rumah singgah,
+- pembawa pamflet,
+- juru tulis murah,
+- pengungsi,
+- pemabuk,
+- pekerja karavan,
+- pembawa pesan setengah resmi.
+
+Mereka tidak selalu jahat.
+
+Namun mereka tahu bahwa cerita tentang anak bertanda spiral jauh lebih mahal daripada kebenaran sederhana.
+
+Fungsi naratif mereka:
+
+- menyebarkan nama Kael lebih cepat daripada tubuh Kael bergerak,
+- membuat sebagian orang takut sebelum bertemu Kael,
+- membuat sebagian orang kagum tanpa tahu faktanya,
+- membuat pemburu, pejabat, dan oportunis tertarik,
+- mengubah kebaikan kecil Kael menjadi legenda berbahaya.
+
+Penyulam Kabar membuat Kael berhadapan bukan hanya dengan musuh nyata, tetapi dengan versi palsu dirinya sendiri.
+
+---
+
+# X. Kepribadian Kael
+
+Kael tenang, tetapi bukan karena ia keren.
+
+Ia tenang karena sejak kecil ia belajar bahwa reaksi yang salah bisa membuat orang makin takut.
+
+Kael logis, tetapi bukan tanpa perasaan.
+
+Ia memakai logika karena emosi terlalu sering menjadi sesuatu yang bisa dipakai orang lain untuk mengendalikannya.
+
+Kael jarang bicara banyak, tetapi ia memperhatikan semuanya:
+
+- tangan orang yang gemetar,
+- pintu yang ditutup terlalu cepat,
+- nada suara yang terlalu sopan,
+- anak kecil yang mundur setelah diselamatkan,
+- Zhorin yang menghindari jawaban,
+- orang-orang yang memakai kata “demi keamanan” saat mereka sebenarnya ingin mengurung seseorang.
+
+Kael boleh kuat.
+
+Tapi ia tidak boleh terasa tidak tersentuh.
+
+Ia harus bisa salah membaca manusia.
+
+Ia harus bisa terluka oleh hal kecil.
+
+Ia harus bisa diam bukan karena tidak peduli, tetapi karena terlalu takut kalau bicara akan membuat semuanya pecah.
+
+---
+
+# XI. Relasi Inti Tahap Awal
+
+## Zhorin
+
+Zhorin adalah ayah angkat, pelatih, pelindung, dan penjara pertama Kael.
+
+Ia menyelamatkan Kael, tetapi juga menyembunyikan Kael.
+
+Ia membentuk Kael agar mampu bertahan, tetapi cara perlindungannya membuat Kael merasa seperti sesuatu yang harus dijaga dari semua orang, termasuk dari dirinya sendiri.
+
+Konflik inti Kael dan Zhorin:
+
+> Kael ingin kebenaran. Zhorin ingin Kael tetap hidup. Keduanya benar, dan itulah yang membuat hubungan mereka sakit.
+
+## Tessa Runehand
+
+Tessa adalah pandai besi Emberwake.
+
+Ia ingin percaya pada Kael karena Kael menyelamatkan Elio. Namun ia juga takut, karena percaya pada Kael berarti menyeret anaknya lebih dekat ke bahaya.
+
+Fungsi Tessa:
+
+> orang dewasa yang tahu Kael tidak jahat, tetapi belum cukup berani melindunginya secara terbuka.
+
+## Elio Ash
+
+Elio adalah anak kecil yang diselamatkan Kael dari kecelakaan Aether.
+
+Ia penting karena reaksinya melukai Kael lebih dalam daripada luka fisik.
+
+Fungsi Elio:
+
+> bukti bahwa Kael bisa menyelamatkan seseorang dan tetap menjadi hal yang ditakuti orang itu.
+
+## Registry-Reader
+
+Registry-Reader adalah wajah kekuasaan resmi yang bersih, sopan, dan kejam.
+
+Ia tidak perlu berteriak untuk menakutkan.
+
+Ia menekan orang dengan bahasa rapi, catatan, lambang, dan prosedur.
+
+Fungsi Registry-Reader:
+
+> membuat pembaca membenci sistem sebelum sistem dijelaskan.
+
+## Ser Caldris
+
+Ser Caldris adalah orang dari sistem yang mulai melihat kebusukan sistem itu sendiri.
+
+Ia bukan sekutu bersih.
+
+Ia bukan orang baik sepenuhnya.
+
+Ia hanya seseorang yang sudah terlalu sering melihat pertanyaan resmi menghancurkan orang kecil.
+
+Fungsi Caldris:
+
+> celah manusiawi di dalam struktur yang dingin.
+
+## Sylvara
+
+Sylvara tidak masuk besar di awal.
+
+Ia disimpan untuk fase setelah Kael meninggalkan Emberwake.
+
+Fungsi Sylvara nanti:
+
+> orang pertama yang melihat Kael bukan sebagai ancaman, bukan alat, bukan pewaris, tetapi manusia.
+
+## Rowan
+
+Rowan belum aktif di awal.
+
+Ia disimpan sebagai cermin gelap Kael.
+
+Fungsi Rowan nanti:
+
+> menunjukkan apa yang bisa terjadi jika luka Kael berubah menjadi pembenaran untuk menghancurkan segalanya.
+
+## Malakar
+
+Malakar tidak muncul di awal.
+
+Ia hanya boleh terasa sebagai bayangan jauh, mimpi buruk yang belum punya nama, atau efek lama dari sesuatu yang lebih besar.
+
+Fungsi Malakar nanti:
+
+> ancaman terhadap keberadaan Kael sebagai manusia.
+
+---
+
+# XII. Kekuatan Utama Kael
+
+Nama teknis lama **Aether Resonance** masih boleh dipertahankan, tetapi tidak langsung diumumkan di awal.
+
+Manifestasi awal cukup sederhana:
+
+1. **Membaca tekanan Aether**  
+   Kael merasakan gangguan sebelum orang lain tahu ada bahaya.
+
+2. **Menggeser arah tekanan**  
+   Kael bisa mengalihkan ledakan, gerak, atau tekanan kecil agar tidak menghantam target utama.
+
+3. **Membaca kebohongan pola**  
+   Kael dapat merasakan ketika resonansi seseorang terlalu tertata, terlalu kosong, atau terlalu dipaksa.
+
+4. **Menahan kerusakan sesaat**  
+   Kael bisa menahan sesuatu yang seharusnya pecah, tetapi tubuhnya membayar harga.
+
+Batasan awal:
+
+- Kael belum mengerti penuh apa yang ia lakukan.
+- Ia tidak bisa memakai kekuatannya tanpa konsekuensi.
+- Semakin ia menolong, semakin ia terlihat berbahaya.
+- Semakin ia menyembunyikan diri, semakin desas-desus membentuk dirinya di luar sana.
+
+---
+
+# XIII. Kelemahan Kael
+
+Kelemahan Kael bukan kurang kuat.
+
+Kelemahannya adalah hubungan dengan manusia.
+
+Ia bisa membaca Aether, tetapi sulit membaca kasih sayang.
+
+Ia bisa merasakan bahaya, tetapi tidak selalu tahu kapan seseorang sedang mencoba peduli.
+
+Ia bisa menahan rasa sakit fisik, tetapi hancur diam-diam saat anak kecil mundur darinya.
+
+Ia bisa memahami pola kekuasaan, tetapi sulit menerima bahwa tidak semua perlindungan adalah kurungan.
+
+Kelemahan emosional utama:
+
+> Kael terlalu siap dibenci, sampai ia tidak tahu harus bagaimana ketika seseorang benar-benar ingin tinggal.
+
+---
+
+# XIV. Alur Awal Canon
+
+Pembuka novel harus dimulai dari Emberwake.
+
+Urutan emosional awal:
+
+1. Kael merasakan gangguan Aether sebelum orang lain sadar.
+2. Ia menyelamatkan Elio dari ledakan tungku di bengkel Tessa.
+3. Tessa berterima kasih, tetapi takut.
+4. Elio selamat, tetapi mundur dari Kael.
+5. Warga mulai berbisik.
+6. Luminal Registry datang mencari anak tanpa catatan.
+7. Zhorin menolak memberi kebenaran penuh.
+8. Desas-desus mulai keluar dari Emberwake.
+9. Kael sadar tempat kecil yang ia sebut rumah sebenarnya adalah tempat persembunyian.
+10. Kael harus pergi bukan untuk petualangan, tetapi agar orang kecil di Emberwake tidak dihancurkan karena dirinya.
+
+---
+
+# XV. Aturan Penulisan Kael
+
+## Jangan tulis Kael sebagai sosok keren dulu.
+
+Tulis Kael sebagai sosok yang kesepian dulu.
+
+## Jangan buat pembaca kagum sebelum peduli.
+
+Pembaca harus kasihan, dekat, dan sakit dulu sebelum melihat Kael besar.
+
+## Jangan jelaskan rahasia Kael terlalu cepat.
+
+Biarkan pembaca merasakan bahwa ada sesuatu yang salah sebelum diberi nama.
+
+## Jangan buat semua orang langsung takut tanpa alasan.
+
+Ketakutan harus lahir dari hal kecil:
+
+- tatapan Elio,
+- tangan Tessa yang menahan anaknya,
+- pintu warga yang menutup terlalu cepat,
+- bisik-bisik di rumah singgah,
+- pamflet pertama yang menyebut Kael lebih buruk dari aslinya.
+
+## Jangan jadikan Kael pusat legenda terlalu cepat.
+
+Legenda tentang Kael harus tumbuh dari kebohongan kecil yang terus diperbesar.
+
+---
+
+# XVI. Ringkasan Canon Baru
+
+Kael Drayven adalah pemuda tanpa catatan resmi yang hidup di desa Emberwake, wilayah utara Benua Veyrath, di bawah perlindungan keras Zhorin.
+
+Ia bisa membaca Aether sebagai tekanan, pola, dan kerusakan yang tidak terlihat orang lain. Kemampuan itu membuatnya mampu menyelamatkan orang, tetapi juga membuatnya tampak seperti ancaman.
+
+Saat ia menyelamatkan Elio dari ledakan tungku Aether, warga Emberwake mulai melihatnya dengan cara berbeda. Ketika Luminal Registry datang mencari anak tanpa catatan, rahasia yang selama ini disembunyikan Zhorin mulai retak.
+
+Namun bahaya terbesar bukan hanya Registry.
+
+Bahaya terbesar adalah cerita tentang Kael yang mulai menyebar.
+
+Di penjuru Benua Veyrath, orang-orang mulai membicarakan Anak Spiral, Bocah Tungku Putih, anak yang katanya bisa memerintah Aether dan tidak terbakar api.
+
+Sebagian takut.
+
+Sebagian kagum.
+
+Sebagian ingin memanfaatkannya.
+
+Sebagian ingin membunuhnya sebelum desas-desus itu menjadi nyata.
+
+Kael tidak hanya harus mencari siapa dirinya.
+
+Ia juga harus bertahan dari versi dirinya yang diciptakan orang lain.
