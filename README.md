@@ -4,7 +4,7 @@ Repository ini adalah rumah kerja utama untuk membangun ulang canon novel **Kael
 
 Status lama repo: **bahan mentah**.
 
-Status baru repo: **reset canon bertahap**.
+Status baru repo: **reset canon tahap 3**.
 
 ---
 
@@ -16,7 +16,13 @@ Kael dimulai sebagai pemuda tanpa catatan resmi dari desa kecil Emberwake di Ben
 
 Ia ingin hidup biasa, tetapi kemampuannya membaca Aether membuat orang-orang di sekitarnya menjaga jarak.
 
-Setelah insiden tungku di bengkel Tessa, nama Kael mulai bergerak lewat Jaringan Kabar Angin.
+Luka pembuka bukan perang besar, melainkan benda kecil:
+
+> **Paku Bulan** — paku bengkok dari Elio yang menjadi bukti bahwa Kael pernah hampir dipercaya.
+
+Setelah insiden tungku di bengkel Tessa, Elio selamat tetapi hubungan mereka berubah. Tessa mengirim Elio pergi sebelum tekanan Registry membesar, dan Zhorin tidak memberi Kael kesempatan berpamitan.
+
+Dari luka itu, nama Kael mulai bergerak lewat Jaringan Kabar Angin.
 
 Cerita tentang dirinya menjadi lebih cepat daripada kebenaran.
 
@@ -26,12 +32,14 @@ Cerita tentang dirinya menjadi lebih cepat daripada kebenaran.
 
 1. Emosi dulu, lore belakangan.
 2. Kael harus terasa manusia sebelum terasa besar.
-3. Emberwake menjadi luka awal.
-4. Veyrath dibuka lewat desa, jalan, rumah singgah, catatan, dan kabar angin.
-5. Aether terasa lewat tubuh, benda rusak, tanda spiral, dan konsekuensi.
-6. Luminal Registry menjadi tekanan resmi.
-7. Jaringan Kabar Angin menjadi tekanan sosial.
-8. Konflik besar disimpan untuk fase lanjut.
+3. Paku Bulan menjadi simbol luka awal.
+4. Emberwake menjadi hampir-rumah yang hilang.
+5. Veyrath dibuka lewat desa, jalan, rumah singgah, catatan, dan kabar angin.
+6. Aether terasa lewat tubuh, benda rusak, tanda spiral, dan konsekuensi.
+7. Luminal Registry menjadi tekanan resmi.
+8. Jaringan Kabar Angin menjadi tekanan sosial.
+9. Ralen menjadi bukti awal bahwa rumor punya akibat nyata.
+10. Konflik besar disimpan untuk fase lanjut.
 
 ---
 
@@ -107,11 +115,13 @@ File utama:
 
 - **Benua Veyrath** — daratan utama cerita.
 - **Emberwake** — desa pembuka dan luka awal Kael.
+- **Paku Bulan** — paku bengkok pemberian Elio, simbol bahwa Kael pernah hampir dipercaya.
 - **Aether** — medium halus yang terasa sebagai tekanan, pola, dan kerusakan.
 - **Tanda Spiral** — tanda di tangan Kael yang menjadi bahan kabar angin.
 - **Luminal Registry** — lembaga pencatat garis darah dan orang tanpa catatan.
 - **Jaringan Kabar Angin** — jaringan longgar penyebar cerita, gosip, pamflet, dan rumor.
 - **Pembawa Angin** — orang-orang yang membawa, membumbui, atau menjual kabar.
+- **Ralen** — penjaga kandang yang menutup pintu karena percaya kabar tentang Anak Spiral.
 
 ---
 
@@ -130,7 +140,8 @@ File utama:
 
 # Fokus Pengerjaan Berikutnya
 
-1. Menyesuaikan semua dokumen lama dengan reset Veyrath.
-2. Menulis ulang Chapter 1–3 agar sesuai canon baru.
-3. Menyiapkan outline novel pertama.
-4. Menulis draft naskah Season 1.
+1. Menyesuaikan draft Chapter 1–3 dengan Paku Bulan, Elio, Tessa, dan Zhorin.
+2. Menulis ulang Chapter 1 agar pembaca melihat Elio percaya pada Kael sebelum insiden.
+3. Menulis ulang Chapter 2 agar Registry menekan desa secara halus.
+4. Menulis ulang Chapter 3 agar Kael kehilangan kesempatan berpamitan.
+5. Menyiapkan Chapter 4 sebagai adegan Ralen dan pintu pertama yang tertutup.
