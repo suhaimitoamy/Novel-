@@ -1,224 +1,433 @@
-# World Core Canon
+# Veyrath Core Canon
 
-## Tujuan Dokumen
+## Status Canon
 
-Dokumen ini menetapkan fondasi dunia untuk **Kael Drayven: The Forsaken Heir**. Fokusnya bukan membuat ensiklopedia penuh, tetapi menyaring hanya bagian dunia yang benar-benar diperlukan agar alur utama, konflik Kael, dan cast inti dapat berdiri dengan kuat.
+Dokumen ini menggantikan arah lama **World Core Canon**.
 
-Prinsip utamanya:
+Fokus canon baru bukan membangun dunia luas secara ensiklopedia, tetapi membangun **Benua Veyrath** sebagai tanah hidup yang dekat dengan luka Kael.
 
-- Dunia harus terasa besar, tetapi tidak menenggelamkan cerita.
-- Lore hanya dipertahankan bila langsung memengaruhi Kael, konflik utama, atau struktur dunia.
-- Detail tambahan di luar inti ini dipindahkan ke arsip lore, bukan ke canon utama.
+Istilah “dunia” tidak menjadi pusat bahasa pembuka. Cerita dimulai dari benua, jalan, desa, rumah singgah, tungku, catatan resmi, dan kabar angin.
 
 ---
 
-# I. Fondasi Eksistensi Dunia
+# I. Prinsip Utama Veyrath
 
-## 1. Aether
-**Aether** adalah medium dasar eksistensi di Zerath.
+Benua Veyrath harus terasa tua, keras, dan hidup.
 
-Aether bukan sekadar sihir, melainkan unsur halus yang menyusun, menghubungkan, dan mengalirkan hukum realitas. Seluruh fenomena yang oleh masyarakat Zerath disebut sebagai sihir, mukjizat, kutukan, warisan darah, kontrak suci, atau kehendak langit pada dasarnya adalah manifestasi dari **resonansi Aether**.
+Namun Veyrath tidak boleh langsung dijelaskan seperti peta besar.
 
-Bagi kebanyakan orang, Aether dipahami melalui tradisi, agama, teknik, atau warisan ras masing-masing.
-Bagi Kael, Aether adalah struktur hukum dunia yang dapat diamati, dipahami, dan pada tingkat tertentu dipaksa ulang.
+Pembaca mengenal Veyrath dari bawah:
 
-## 2. Resonansi
-**Resonansi** adalah cara Aether bergerak, berinteraksi, selaras, bertabrakan, menguat, atau rusak.
+- lumpur di jalan Emberwake,
+- batu Aether retak di bengkel Tessa,
+- kereta Registry yang datang terlalu bersih untuk desa miskin,
+- rumah singgah yang menyimpan kabar lebih cepat daripada surat resmi,
+- pedagang yang menjual cerita sambil menakar garam,
+- pengungsi yang membawa luka dari wilayah lain,
+- anak kecil yang takut pada nama yang belum ia pahami.
 
-Perbedaan antara mantra, teknik, ritual, kontrak, atau kemampuan darah bukan terletak pada sumber yang benar-benar berbeda, melainkan pada pola resonansi yang berbeda.
+Canon inti:
 
-Dengan kata lain:
-- sihir adalah resonansi yang dibentuk,
-- kutukan adalah resonansi yang terdistorsi,
-- warisan darah adalah resonansi yang diwariskan,
-- mukjizat adalah resonansi yang dibungkus tafsir suci,
-- kehancuran adalah resonansi yang dipaksa melewati batas alami.
-
-## 3. Void
-**Void** adalah kondisi Aether yang rusak, terputus, terbalik, atau terlepas dari keteraturan alaminya.
-
-Void bukan elemen tandingan yang sepenuhnya terpisah dari Aether; ia adalah bentuk Aether yang kehilangan keseimbangan dan menjadi asing terhadap hukum dunia. Karena itu, Void memiliki sifat:
-- merusak kohesi realitas,
-- mengganggu identitas dan memori,
-- memutus hubungan alami antara tubuh, jiwa, dan dunia,
-- membuka kemungkinan kekuatan besar dengan harga yang sangat tinggi.
-
-Void menjadi ancaman besar karena ia bukan hanya menghancurkan tubuh, tetapi juga merusak makna, bentuk, dan keterikatan sesuatu pada dunia.
+> Veyrath bukan latar luas untuk dipamerkan. Veyrath adalah tanah yang membuat Kael tidak pernah bisa hidup netral.
 
 ---
 
-# II. Asal Usul Zerath
+# II. Benua Veyrath
 
-## 1. Tiga Entitas Primordial
-Zerath lahir dari benturan tiga entitas primordial:
+**Veyrath** adalah benua tua yang dibentuk oleh jalur dagang, garis darah, reruntuhan lama, kepercayaan terhadap Aether, dan catatan resmi yang tidak selalu jujur.
 
-- **Aelarion** — prinsip cahaya, keteraturan, dan manifestasi luhur Aether.
-- **Zhorak** — prinsip bumi, bentuk, daya tahan, dan fondasi dunia material.
-- **Malgorath** — prinsip kegelapan, peluruhan, kedalaman, dan kecenderungan menuju kehancuran.
+Di Veyrath, seseorang bisa hidup tanpa nama besar.
 
-Tiga entitas ini tidak hanya dianggap dewa atau pencipta. Dalam canon inti, mereka lebih tepat dipahami sebagai **wujud purba dari hukum eksistensi** yang mengambil bentuk dan kehendak.
+Tetapi seseorang yang tidak punya catatan resmi jauh lebih berbahaya daripada seseorang yang punya dosa.
 
-Benturan mereka melahirkan Zerath, tetapi juga meninggalkan luka mendasar pada realitas dunia.
+Karena dosa masih bisa dicatat.
 
-## 2. Warisan Primordial
-Setelah benturan primordial, energi dan hukum dari ketiga entitas itu tidak hilang. Mereka tertinggal sebagai warisan yang menyusup ke:
-- tanah,
-- darah,
-- ras,
-- reruntuhan,
-- ritual,
-- dan pusat-pusat kekuatan dunia.
-
-Karena itulah Zerath bukan dunia yang stabil sepenuhnya. Ia adalah dunia yang lahir dari keseimbangan yang sudah cacat sejak awal.
+Yang tidak tercatat berarti pernah sengaja dihapus.
 
 ---
 
-# III. Fragmen Zerath
+# III. Wilayah Pembuka
 
-## 1. Hakikat Fragmen
-**Fragmen Zerath** adalah pecahan inti hukum primordial yang tertinggal setelah benturan besar awal dunia.
+## 1. Wilayah Utara
 
-Fragmen bukan sekadar artefak kuat. Mereka adalah simpul hukum dunia yang dipadatkan. Tiap Fragmen membawa jejak salah satu atau beberapa aspek eksistensi purba yang membentuk Zerath.
+Wilayah utara adalah bagian Veyrath yang dingin, keras, miskin, dan sering diabaikan.
 
-## 2. Fungsi Fragmen
-Dalam canon utama, Fragmen punya beberapa fungsi besar:
-- menjadi pusat kekuatan wilayah atau garis darah tertentu,
-- memengaruhi sejarah, politik, dan legitimasi kekaisaran,
-- membangkitkan atau memperkuat resonansi tertentu dalam individu terpilih,
-- membuka jalan ke warisan lama atau ancaman lama,
-- menjadi sumber konflik karena siapa pun yang menguasainya berpotensi mengubah keseimbangan dunia.
+Tempat ini penuh desa kecil, bengkel tua, jalur kayu, rumah singgah, ladang buruk, pengungsi, dan orang-orang yang belajar bertahan tanpa berharap banyak dari kota besar.
 
-## 3. Hubungan Fragmen dengan Kael
-Kael bukan hanya pemburu atau pengumpul Fragmen.
+Fungsi wilayah utara:
 
-Ia adalah individu yang memiliki resonansi khusus terhadap Fragmen, sehingga banyak pihak memandangnya sebagai:
-- pewaris,
-- alat,
-- kunci,
-- ancaman,
-- atau bentuk yang belum selesai.
+- tempat Kael belajar menjadi kecil,
+- tempat warga takut pada hal yang tidak bisa mereka pahami,
+- tempat kabar pertama tentang Kael lahir,
+- tempat Registry mulai menyadari bahwa ada sesuatu yang disembunyikan.
 
-Karena itu, keberadaan Kael selalu bersinggungan dengan konflik Fragmen, baik secara politik, spiritual, maupun ontologis.
+## 2. Emberwake
 
----
+Emberwake adalah desa pembuka.
 
-# IV. Struktur Besar Dunia
+Desa ini tidak penting di peta, tetapi penting secara emosional.
 
-## 1. Dua Belas Kekaisaran
-Zerath terbagi ke dalam **12 kekaisaran besar**, yang masing-masing berdiri di atas sejarah, warisan ras, dan hubungan tertentu terhadap Aether, Fragmen, atau hukum primordial.
+Emberwake harus terasa seperti tempat yang bisa ditinggali, tetapi tidak sepenuhnya menerima Kael.
 
-Dalam canon utama, 12 kekaisaran dipertahankan sebagai struktur geopolitik besar, tetapi tidak semua harus dijelaskan detail sejak awal.
+Elemen penting Emberwake:
 
-Fungsi mereka dalam cerita utama adalah:
-- memperlihatkan skala dunia,
-- menjadi pusat konflik kekuasaan,
-- menyediakan latar bagi berbagai tokoh dan ideologi,
-- menunjukkan bahwa dunia Kael jauh lebih besar dari luka pribadinya,
-- menjadi medan tempat sejarah lama dan konflik baru bertabrakan.
+- rumah kayu Zhorin,
+- bengkel Tessa Runehand,
+- rumah singgah Maeron Vell,
+- sumur batu di alun-alun kecil,
+- rumah suci kecil Sister Vaine,
+- jalan berlumpur,
+- pagar tua,
+- warga yang tahu terlalu banyak tetapi jarang bicara langsung.
 
-## 2. Prinsip Pemakaian 12 Kekaisaran
-Dalam badan cerita utama:
-- hanya kekaisaran yang relevan dengan alur Kael yang dibuka lebih dalam,
-- kekaisaran lain cukup disebut, disiratkan, atau muncul lewat tokoh,
-- detail penuh tiap wilayah dipindahkan ke lore arsip, bukan canon inti.
+Fungsi Emberwake:
 
-Dengan begitu, dunia tetap terasa luas tanpa membuat narasi melebar tidak terkendali.
+> tempat yang hampir menjadi rumah bagi Kael, sampai akhirnya terbukti hanya tempat persembunyian.
 
----
+## 3. Jalur Perbatasan
 
-# V. Sejarah Besar yang Wajib Canon
+Jalur perbatasan menghubungkan desa kecil, rumah singgah, kota dagang, dan wilayah resmi.
 
-## 1. Benturan Primordial
-Peristiwa purba saat Aelarion, Zhorak, dan Malgorath saling berbenturan dan melahirkan dunia yang terluka.
+Di sinilah kabar bergerak.
 
-## 2. Lahirnya Fragmen
-Dampak dari benturan primordial yang meninggalkan simpul-simpul hukum dunia dalam bentuk Fragmen.
+Di sinilah orang hilang, nama berubah, barang diselundupkan, dan cerita dibesar-besarkan.
 
-## 3. Bangkitnya Kekaisaran
-Peradaban besar tumbuh dengan memanfaatkan, menyembah, menjaga, atau memperebutkan warisan primordial itu.
+Jalur perbatasan adalah nadi awal Jaringan Kabar Angin.
 
-## 4. Perang Besar Masa Lalu
-Dalam sejarah dunia pernah terjadi konflik besar yang memecah keseimbangan lama, memperdalam luka dunia, dan meninggalkan jejak yang masih memengaruhi generasi sekarang.
+## 4. Kota-kota Selatan
 
-Perang-perang ini penting bukan untuk dirinci semuanya sejak awal, tetapi untuk memberi bobot bahwa dunia Zerath dibentuk oleh siklus perebutan, pengkhianatan, dan trauma kolektif.
+Kota selatan lebih terang, lebih rapi, lebih kaya, dan lebih berbahaya.
 
-## 5. Zaman Kael
-Cerita utama berlangsung di masa ketika:
-- resonansi dunia mulai goyah,
-- Fragmen kembali aktif,
-- warisan lama mulai bergerak lagi,
-- dan tatanan dunia lama mulai retak dari dalam.
+Di sana, bahasa kekuasaan terdengar sopan.
 
-Kael lahir tepat di tengah momen rapuh ini, sehingga keberadaannya terasa seperti ancaman sekaligus gejala dari perubahan yang lebih besar.
+Orang tidak selalu mengancam dengan pedang.
+
+Mereka mengancam dengan arsip, hukum, silsilah, segel, dan catatan.
+
+Kota selatan menjadi tempat kabar tentang Kael berubah dari gosip desa menjadi isu politik.
+
+## 5. Tanah Aelarion
+
+Aelarion adalah wilayah resmi yang terhubung dengan Luminal Registry.
+
+Untuk tahap awal, Aelarion tidak dibuka penuh.
+
+Ia cukup terasa sebagai sumber kekuasaan yang bersih, terang, tertib, dan menekan.
+
+Fungsi Aelarion:
+
+- asal simbol Registry,
+- asal bahasa resmi yang menindas,
+- pusat catatan garis darah,
+- tempat yang menganggap kerapian sebagai kebenaran.
 
 ---
 
-# VI. Darah, Warisan, dan Legitimasi
+# IV. Struktur Sosial Veyrath
 
-## 1. Garis Darah Penting
-Di Zerath, darah bukan sekadar faktor biologis. Darah dapat membawa:
-- legitimasi politik,
-- resonansi terhadap Aether,
-- akses pada warisan kuno,
-- hubungan dengan Fragmen,
-- atau kutukan yang diwariskan turun-temurun.
+## 1. Warga biasa
 
-## 2. Garis Drayven
-Garis Drayven adalah salah satu garis darah penting yang terkait dengan warisan besar dunia, khususnya melalui Liora Drayven.
+Warga biasa tidak jahat.
 
-Status Kael sebagai bagian dari garis ini menjadikannya tidak pernah netral. Bahkan sebelum ia memilih jalan hidupnya sendiri, darahnya sudah lebih dulu menempatkannya di pusat ketakutan, harapan, dan perebutan klaim.
+Mereka hanya takut.
 
-## 3. Warisan sebagai Penjara
-Salah satu tema utama dunia adalah bahwa warisan tidak selalu membebaskan. Sering kali warisan justru menjadi bentuk paling tua dari penjara:
-- garis darah menentukan nasib,
-- sejarah menentukan identitas,
-- dan dunia memaksa seseorang mengulangi fungsi leluhurnya.
+Mereka hidup dekat dengan lapar, utang, musim buruk, penyakit, pejabat, dan rumor.
 
-Kael menjadi pusat tema ini karena ia menolak dijadikan alat oleh darah dan warisan yang mengalir dalam dirinya.
+Karena itu, saat melihat sesuatu yang tidak bisa mereka pahami, mereka memilih menjaga jarak.
+
+Fungsi warga biasa:
+
+> membuat konflik Kael terasa manusiawi, bukan sekadar pertarungan besar.
+
+## 2. Pedagang dan Kusir
+
+Pedagang dan kusir membawa barang, tetapi juga membawa cerita.
+
+Mereka tahu kabar mana yang bisa membuat orang membuka pintu, memberi makan, memberi tumpangan, atau membayar lebih.
+
+Di tangan mereka, cerita Kael mulai berubah.
+
+## 3. Pemilik Rumah Singgah
+
+Rumah singgah adalah tempat Veyrath berbicara.
+
+Di satu meja, bisa ada pengungsi, pemburu, pedagang, pemabuk, penyanyi jalanan, dan orang resmi yang pura-pura hanya lewat.
+
+Rumah singgah bukan hanya tempat tidur.
+
+Ia adalah tempat kabar lahir, mati, atau diberi bentuk baru.
+
+## 4. Pengungsi
+
+Pengungsi membawa luka wilayah lain.
+
+Mereka membuat Veyrath terasa lebih luas tanpa harus membuka peta besar.
+
+Lewat mereka, pembaca tahu bahwa penderitaan tidak hanya terjadi di Emberwake.
+
+## 5. Juru Tulis Murah
+
+Juru tulis murah menulis pamflet, surat palsu, catatan karavan, iklan barang, pengumuman lokal, atau kabar yang dibayar seseorang.
+
+Mereka penting karena kabar lisan bisa hilang, tetapi tulisan murah bisa menyebar lebih jauh.
+
+## 6. Bangsawan Darah
+
+Bangsawan darah belum menjadi fokus awal.
+
+Namun keberadaan mereka harus terasa sebagai lapisan atas yang percaya bahwa nama keluarga, silsilah, dan catatan kelahiran menentukan nilai seseorang.
+
+Fungsi mereka:
+
+> membuat status Kael sebagai anak tanpa catatan menjadi ancaman.
+
+## 7. Luminal Registry
+
+Luminal Registry adalah lembaga resmi yang mengurus catatan garis darah, pemindahan, arsip lama, warisan, dan individu yang tidak tercatat.
+
+Mereka tidak tampil sebagai penjahat yang berteriak.
+
+Mereka tampil bersih, sopan, dan prosedural.
+
+Justru itu yang membuat mereka menakutkan.
+
+Fungsi Registry:
+
+- mencari celah dalam identitas Kael,
+- menekan Emberwake lewat pertanyaan resmi,
+- membuat warga kecil merasa bersalah meski belum melakukan apa-apa,
+- mengubah masalah pribadi Kael menjadi urusan benua.
 
 ---
 
-# VII. Aturan Naratif Dunia
+# V. Jaringan Kabar Angin
 
-## 1. Dunia dijelaskan lewat pengalaman, bukan kuliah lore
-Aether, Void, Fragmen, kekaisaran, dan sejarah harus diperlihatkan lewat:
-- benturan,
-- pengalaman,
-- pengamatan,
-- relasi,
-- dan konsekuensi.
+Di Veyrath, kabar angin bukan sekadar desas-desus.
 
-## 2. Lore hanya masuk jika mengubah sesuatu
-Sebuah informasi dunia hanya layak masuk badan cerita jika ia:
-- mengubah keputusan Kael,
-- memperjelas konflik utama,
-- membentuk tokoh penting,
-- atau menaikkan taruhan cerita.
+Ia adalah jaringan longgar yang bergerak lewat orang-orang jalanan, rumah singgah, karavan, pasar, pamflet murah, dan api unggun pengungsi.
 
-## 3. Skala membesar bertahap
-Cerita dimulai dari konflik yang terasa personal dan sempit, lalu perlahan membuka sejarah, geopolitik, dan ancaman besar dunia.
+Orang-orang yang hidup dari jaringan ini disebut:
 
-## 4. Dunia tetap bergerak di luar Kael
-Meski Kael pusat cerita, Zerath harus terasa hidup. Kekaisaran, kelompok, dan tokoh lain tetap punya agenda sendiri, sehingga dunia tidak terasa kosong saat Kael tidak ada di suatu tempat.
+> **Pembawa Angin**
+
+Mereka bukan satu organisasi rapi.
+
+Tidak ada markas besar di awal.
+
+Tidak ada seragam.
+
+Tidak ada sumpah megah.
+
+Yang mereka punya adalah telinga, mulut, rute perjalanan, dan naluri untuk tahu cerita mana yang bisa dijual.
+
+## Fungsi Pembawa Angin
+
+- membawa kabar dari desa ke desa,
+- mengubah fakta kecil menjadi cerita menarik,
+- menjual nama orang sebagai bahan hiburan atau peringatan,
+- menerima bayaran untuk menanam cerita tertentu,
+- membuat seseorang terkenal sebelum ia siap,
+- membuat seseorang dibenci sebelum ia sempat bicara.
+
+## Hubungan dengan Kael
+
+Peristiwa asli:
+
+> Kael menyelamatkan Elio dari ledakan tungku Aether.
+
+Setelah melewati Jaringan Kabar Angin, cerita itu berubah menjadi banyak versi:
+
+- Kael menahan ledakan dengan tangan kosong,
+- Kael tidak bisa terbakar api,
+- Kael bisa memerintah Aether,
+- Kael membawa kutukan Zhorin,
+- Kael adalah anak tanpa catatan yang harus dilaporkan,
+- Kael adalah pewaris lama yang kembali dari abu,
+- Kael pernah membunuh pemburu hanya dengan membuka telapak tangan.
+
+Canon penting:
+
+> Di Veyrath, kebenaran jarang sampai utuh. Ia berubah menjadi kabar angin sebelum tiba di telinga orang lain.
 
 ---
 
-# VIII. Hal yang Dikeluarkan dari World Core Canon
+# VI. Aether di Veyrath
 
-Hal-hal berikut tidak masuk ke canon inti dunia, tetapi tetap boleh disimpan di arsip lore:
+Aether adalah unsur halus yang membuat benda, tubuh, ruang, suara, darah, api, logam, dan tanah saling terhubung.
 
-- 100 pulau aktif sebagai pusat narasi,
-- sistem tier monster sebagai bahasa utama dunia,
-- hunter quest, bounty, reputation, dan progression system,
-- reward, unlock, material drop, dan struktur game-like,
-- appendix lore yang tidak menyentuh alur utama secara langsung.
+Namun di tahap awal, Aether tidak boleh dijelaskan panjang.
 
-Semua itu bukan dibuang sebagai ide, tetapi dipindahkan dari canon utama ke arsip pendukung.
+Aether harus dirasakan lewat hal konkret:
+
+- tungku yang terlalu putih,
+- batu retak yang masih dipakai orang miskin,
+- udara yang menegang sebelum ledakan,
+- suara pejabat yang terlalu tertata,
+- tangan Kael yang sakit setelah menolong,
+- tanda spiral yang muncul seperti luka,
+- darah yang bereaksi pada lambang tertentu.
+
+## Cara warga biasa melihat Aether
+
+Warga biasa tidak punya bahasa teknis.
+
+Mereka menyebutnya dengan cara sederhana:
+
+- panas yang salah,
+- tanda buruk,
+- api putih,
+- kutukan logam,
+- angin mati,
+- napas tanah,
+- sisa perang lama.
+
+## Cara Registry melihat Aether
+
+Registry melihat Aether sebagai pola yang bisa dibaca, dicatat, diklasifikasi, dan dipakai sebagai bukti.
+
+Bagi mereka, Aether bukan misteri.
+
+Aether adalah data.
+
+## Cara Kael melihat Aether
+
+Kael tidak melihat Aether sebagai mukjizat.
+
+Ia merasakannya seperti tekanan, pola, dan kerusakan.
+
+Kael tidak langsung paham semuanya.
+
+Tetapi tubuhnya sering tahu lebih dulu daripada pikirannya.
 
 ---
 
-# IX. Ringkasan World Core Canon
+# VII. Catatan Resmi dan Orang Tanpa Catatan
 
-Zerath adalah dunia yang lahir dari benturan tiga entitas primordial: Aelarion, Zhorak, dan Malgorath. Luka dari benturan itu melahirkan dunia yang tidak pernah benar-benar stabil, serta meninggalkan Fragmen-Fragmen Zerath sebagai simpul hukum primordial yang dipadatkan. Seluruh realitas Zerath disusun dan dihubungkan oleh Aether, medium dasar eksistensi, sementara Void adalah bentuk Aether yang rusak atau terlepas dari keseimbangan alaminya.
+Di Veyrath, catatan resmi sangat penting.
 
-Di atas warisan purba itu berdirilah 12 kekaisaran, masing-masing dengan sejarah, darah, dan klaimnya sendiri terhadap dunia. Dalam zaman Kael, resonansi dunia mulai goyah, Fragmen kembali aktif, dan warisan lama bangkit lagi. Kael tidak hidup di dunia netral, tetapi di dunia yang sejak awal dibangun dari luka, perebutan, dan penafsiran paksa terhadap takdir.
+Nama kelahiran, garis darah, tempat asal, izin pindah, lambang keluarga, dan catatan kematian bisa menentukan apakah seseorang dilindungi atau dicurigai.
+
+Orang miskin bisa tidak punya banyak harta.
+
+Tetapi jika namanya masih ada di catatan, ia masih bisa dibuktikan pernah ada.
+
+Kael berbeda.
+
+Masalah Kael bukan hanya ia tidak dikenal.
+
+Masalahnya adalah ada tanda bahwa ia pernah sengaja tidak dicatat, dihapus, atau dipindahkan dari arsip yang seharusnya menjaganya.
+
+Canon penting:
+
+> Di Veyrath, orang tanpa nama bisa dikasihani. Orang tanpa catatan bisa diburu.
+
+---
+
+# VIII. Konflik Awal Veyrath
+
+Konflik awal tidak dimulai dari perang besar.
+
+Konflik awal dimulai dari tiga hal kecil:
+
+1. Kael menyelamatkan Elio.
+2. Warga mulai takut.
+3. Registry datang mencari anak tanpa catatan.
+
+Dari tiga hal ini, benua mulai bergerak pelan.
+
+Bukan karena semua orang tahu siapa Kael.
+
+Justru karena semua orang mulai mendengar versi Kael yang berbeda.
+
+---
+
+# IX. Cara Kabar Menyebar
+
+Urutan penyebaran kabar awal:
+
+1. Emberwake melihat insiden tungku.
+2. Corren Pike atau pedagang lokal membawa cerita ke jalur perbatasan.
+3. Rumah singgah Maeron menjadi tempat cerita pertama kali dibumbui.
+4. Kusir dan karavan membawa cerita ke desa tetangga.
+5. Juru tulis murah menulis versi pamflet.
+6. Pembawa Angin menjual versi yang lebih menarik.
+7. Registry mendengar versi yang berbeda dari laporan resmi.
+8. Pemburu, oportunis, dan orang kagum mulai mencari Anak Spiral.
+
+Semakin jauh kabar bergerak, semakin sedikit Kael di dalamnya.
+
+Yang tersisa hanya legenda kecil yang makin berbahaya.
+
+---
+
+# X. Aturan Worldbuilding Baru
+
+## 1. Jangan buka peta besar terlalu cepat
+
+Season awal cukup memakai Emberwake, jalur perbatasan, kota kecil, dan bayangan Aelarion.
+
+## 2. Jangan jelaskan sejarah panjang sebelum pembaca peduli
+
+Sejarah hanya masuk jika melukai karakter atau mengubah keputusan.
+
+## 3. Jangan pakai istilah besar terlalu sering
+
+Nama besar harus terasa mahal.
+
+Jika semuanya diberi istilah besar, tidak ada yang terasa penting.
+
+## 4. Bangun Veyrath lewat benda kecil
+
+Gunakan:
+
+- tungku,
+- pamflet,
+- segel,
+- jalan berlumpur,
+- botol obat Zhorin,
+- batu Aether murah,
+- pengumuman miring di alun-alun,
+- tangan Tessa yang menahan Elio.
+
+## 5. Setiap lore harus punya harga
+
+Jika ada informasi baru, harus ada akibat:
+
+- Kael makin tidak aman,
+- Zhorin makin terdesak,
+- warga makin takut,
+- Registry makin dekat,
+- kabar angin makin rusak.
+
+---
+
+# XI. Hal yang Ditahan Dulu
+
+Untuk tahap awal, hal-hal berikut tidak boleh dibuka penuh:
+
+- sejarah primordial,
+- Malakar,
+- struktur penuh kekaisaran,
+- Covenant sebagai organisasi besar,
+- fungsi penuh garis Drayven,
+- Fragmen sebagai pusat konflik,
+- perang besar benua,
+- kosmologi Aether.
+
+Semua itu boleh disimpan sebagai bayangan jauh.
+
+Pembaca harus mencintai atau kehilangan Emberwake dulu sebelum dibawa ke skala besar.
+
+---
+
+# XII. Ringkasan Canon
+
+Benua Veyrath adalah daratan tua yang keras, penuh jalur perbatasan, rumah singgah, catatan resmi, kabar angin, dan kekuasaan yang menilai manusia lewat nama serta arsip.
+
+Kael memulai cerita di Emberwake, desa kecil di wilayah utara yang hampir menjadi rumah baginya. Namun setelah ia menyelamatkan Elio dari ledakan tungku Aether, ketakutan warga, kedatangan Luminal Registry, dan Jaringan Kabar Angin membuat hidupnya berubah.
+
+Veyrath belum mengenal Kael yang sebenarnya.
+
+Veyrath mengenal cerita tentang dirinya.
+
+Dan cerita itu lebih cepat, lebih liar, dan lebih berbahaya daripada Kael sendiri.
