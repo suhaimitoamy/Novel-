@@ -1,10 +1,14 @@
-# Story Risks and Fixes — Reset Tahap 1
+# Story Risks and Fixes — Reset Tahap 2
 
 ## Status Canon
 
-Dokumen ini menggantikan risiko lama.
+Dokumen ini menggantikan reset tahap 1.
 
-Arah baru novel lebih emosional, lebih lokal, dan lebih bertahap. Karena itu, risiko utama juga berubah.
+Arah baru menekankan luka kecil: Elio, Tessa, Emberwake, Zhorin, Registry, dan Jaringan Kabar Angin.
+
+Prioritas utama:
+
+> pembaca harus merasakan Kael kehilangan kemungkinan untuk dipercaya sebelum ia berhadapan dengan skala yang lebih besar.
 
 ---
 
@@ -12,261 +16,260 @@ Arah baru novel lebih emosional, lebih lokal, dan lebih bertahap. Karena itu, ri
 
 ## 1. Risiko: Kael terlalu cepat terlihat besar
 
-### Bentuk masalah
+### Masalah
 
-Kael punya nama, tanda spiral, Aether, Drayven, dan hubungan dengan Registry. Semua itu mudah membuatnya terlihat seperti figur besar sejak awal.
+Kael punya nama Drayven, Aether, tanda spiral, Registry, dan kabar angin. Semua ini mudah membuatnya terasa besar terlalu cepat.
 
 ### Gejala
 
-- Kael terlalu sering menang secara tenang.
+- Kael selalu tampak tenang dan keren.
 - Pembaca kagum sebelum peduli.
-- Warga tampak hanya sebagai latar untuk menunjukkan betapa spesial Kael.
-- Adegan terasa seperti trailer, bukan kehidupan.
+- Warga hanya jadi alat untuk menunjukkan Kael berbeda.
+- Insiden tungku terasa seperti adegan aksi, bukan luka karakter.
 
 ### Perbaikan
 
-- Tunjukkan Kael ingin hidup biasa.
-- Buat ia terluka oleh reaksi kecil orang lain.
-- Buat kemenangan kecil selalu punya akibat sosial.
-- Ingat: Kael harus terasa kesepian sebelum terasa kuat.
+- Tunjukkan Kael ingin hal kecil.
+- Buat Elio penting sebelum insiden.
+- Buat reaksi Elio setelah diselamatkan menjadi luka utama.
+- Pastikan setiap kekuatan Kael punya harga sosial.
 
 ---
 
-## 2. Risiko: Emberwake terasa hanya tempat pembuka
+## 2. Risiko: Elio hanya menjadi korban plot
 
-### Bentuk masalah
+### Masalah
 
-Emberwake bisa gagal jika hanya dipakai sebagai titik awal lalu dilupakan.
+Jika Elio hanya muncul untuk diselamatkan, luka Kael tidak akan terasa dalam.
 
 ### Gejala
 
-- Pembaca tidak ingat warga lokal.
-- Tessa dan Elio terasa seperti alat plot.
-- Kepergian Kael tidak terasa berat.
-- Desa tidak punya suara sendiri.
+- Elio tidak punya hubungan hangat dengan Kael sebelum insiden.
+- Pembaca tidak tahu apa yang berubah setelah insiden.
+- Elio hanya dipakai untuk membuat Tessa takut.
 
 ### Perbaikan
 
-- Beri detail kecil yang hidup: sumur, rumah singgah, bengkel, jalan berlumpur, rumah suci kecil.
-- Jadikan warga takut dengan alasan manusiawi.
-- Buat Tessa, Elio, Maeron, Sister Vaine, Corren, dan Harland punya fungsi emosional.
-- Pastikan kepergian Kael terasa seperti kehilangan, bukan perpindahan lokasi.
+- Tunjukkan Elio nyaman bersama Kael sebelum tungku putih.
+- Buat Elio punya kebiasaan kecil: memanggil Kael, mengikuti Kael, bertanya hal remeh.
+- Setelah insiden, jangan buat Elio membenci Kael.
+- Buat Elio hanya takut. Itu lebih sakit.
 
 ---
 
-## 3. Risiko: Jaringan Kabar Angin terasa tempelan
+## 3. Risiko: Tessa terlihat seperti pengkhianat
 
-### Bentuk masalah
+### Masalah
 
-Kabar angin bisa terasa hanya sebagai ide keren jika tidak mengubah alur.
+Tessa bisa terasa jahat kalau ia langsung menjauh dari Kael setelah Kael menyelamatkan Elio.
 
 ### Gejala
 
-- Rumor hanya disebut, tidak berdampak.
-- Orang-orang tidak memperlakukan Kael berbeda karena cerita yang mereka dengar.
-- Pembawa Angin terasa seperti organisasi biasa.
-- Pamflet dan lagu tidak mengubah situasi.
+- Tessa tidak menunjukkan rasa terima kasih.
+- Ia hanya tampak takut.
+- Pembaca membencinya terlalu cepat.
 
 ### Perbaikan
 
-- Buat setiap kabar salah memicu reaksi nyata.
-- Satu rumor harus membuat pintu tertutup, harga naik, orang mengikuti, atau Registry makin tertarik.
-- Pembawa Angin harus terasa seperti orang jalanan, bukan sekte rapi.
-- Tunjukkan kabar berubah dari mulut ke mulut.
+- Tessa harus jelas berterima kasih.
+- Ia harus sadar Kael tidak berniat buruk.
+- Reaksi menjauh harus muncul dari naluri ibu, bukan kebencian.
+- Tunjukkan konflik batinnya lewat gerakan kecil: tangan menahan Elio, suara tertahan, tatapan bersalah.
 
 ---
 
-## 4. Risiko: Registry terlalu seperti penjahat biasa
+## 4. Risiko: Emberwake terasa tidak layak ditinggalkan dengan berat
 
-### Bentuk masalah
+### Masalah
 
-Luminal Registry bisa jadi lemah jika ditulis terlalu kasar atau terlalu jelas jahat.
+Jika Emberwake hanya terasa dingin sejak awal, pembaca tidak akan merasa kehilangan saat Kael pergi.
+
+### Gejala
+
+- Semua warga sejak awal menolak Kael.
+- Tidak ada momen hangat kecil.
+- Desa terasa seperti latar muram biasa.
+
+### Perbaikan
+
+- Buat Emberwake hampir menjadi rumah.
+- Tunjukkan hal kecil yang Kael kenal: suara tungku, sumur, rumah singgah, langkah Elio, teguran Tessa.
+- Tunjukkan warga tidak selalu jahat, hanya takut.
+- Buat pembaca paham kenapa Kael masih ingin tinggal.
+
+---
+
+## 5. Risiko: Zhorin terlalu mentor keren
+
+### Masalah
+
+Zhorin bisa jatuh menjadi guru kuat yang selalu benar.
+
+### Gejala
+
+- Semua kalimat Zhorin terdengar seperti nasihat bijak.
+- Kael selalu terlihat seperti murid yang harus belajar.
+- Zhorin tidak pernah tampak salah secara emosional.
+
+### Perbaikan
+
+- Buat perlindungan Zhorin terasa menekan.
+- Buat Kael punya alasan kuat untuk marah.
+- Zhorin boleh benar secara strategi tetapi salah secara hubungan.
+- Setiap rahasia yang ia tahan harus melukai kepercayaan Kael.
+
+---
+
+## 6. Risiko: Registry seperti musuh biasa
+
+### Masalah
+
+Registry akan lemah jika tampil seperti antagonis kasar.
 
 ### Gejala
 
 - Mereka mengancam secara terang-terangan.
-- Mereka bicara seperti musuh generik.
-- Tidak terasa resmi, rapi, dan prosedural.
-- Pembaca tidak merasakan tekanan arsip dan catatan.
+- Mereka terlalu mudah dibenci.
+- Tidak terasa resmi.
 
 ### Perbaikan
 
 - Buat mereka sopan.
-- Gunakan bahasa administrasi, segel, lambang, daftar, dan pertanyaan.
-- Buat warga merasa bersalah meski belum terbukti salah.
-- Registry-Reader harus menekan tanpa perlu menaikkan suara.
+- Gunakan bahasa catatan, daftar, izin, garis darah, pemindahan, dan prosedur.
+- Registry-Reader harus menekan tanpa marah.
+- Warga harus merasa kecil di depan kalimat resmi.
 
 ---
 
-## 5. Risiko: Aether dijelaskan terlalu teknis
+## 7. Risiko: Jaringan Kabar Angin hanya tempelan
 
-### Bentuk masalah
+### Masalah
 
-Aether bisa kembali terasa seperti sistem sihir biasa jika terlalu banyak dijelaskan.
+Kabar angin harus menjadi mesin konflik, bukan dekorasi.
+
+### Gejala
+
+- Rumor hanya disebut sekali.
+- Tidak ada orang yang berubah sikap karena kabar.
+- Pembawa Angin terasa seperti organisasi terlalu rapi.
+
+### Perbaikan
+
+- Setiap rumor harus punya akibat.
+- Satu kabar harus membuat pintu tertutup, harga berubah, orang mengikuti, atau Registry makin dekat.
+- Pembawa Angin harus terasa seperti orang biasa.
+- Tunjukkan perubahan dari fakta menjadi cerita.
+
+---
+
+## 8. Risiko: Aether terlalu teknis
+
+### Masalah
+
+Aether bisa terasa seperti sistem sihir biasa jika dijelaskan terlalu cepat.
 
 ### Gejala
 
 - Bab awal penuh definisi.
-- Kael menjelaskan Aether seperti guru.
-- Semua tokoh memakai istilah yang sama.
-- Aether terasa seperti energi, bukan bagian dari kehidupan.
+- Kael menjelaskan Aether secara teoritis.
+- Semua orang memakai istilah sama.
 
 ### Perbaikan
 
-- Tunjukkan Aether lewat benda rusak.
-- Gunakan sensasi tubuh Kael.
-- Biarkan warga menyebutnya dengan bahasa sederhana.
-- Kael boleh tahu pola, tetapi belum harus tahu teori penuh.
+- Tunjukkan Aether lewat tungku, logam, kulit, suara, dan tanda spiral.
+- Warga memakai istilah sederhana.
+- Registry memakai bahasa klasifikasi.
+- Kael merasakan pola, bukan menjelaskan teori.
 
 ---
 
-## 6. Risiko: Zhorin terlalu mentor keren
+## 9. Risiko: Sylvara masuk terlalu cepat
 
-### Bentuk masalah
+### Masalah
 
-Zhorin bisa jatuh menjadi figur guru kuat yang hanya berfungsi melatih Kael.
+Sylvara bisa melemahkan luka Emberwake jika masuk sebelum Kael kehilangan fondasi kecilnya.
 
 ### Gejala
 
-- Zhorin selalu benar.
-- Konfliknya dengan Kael terasa seperti nasihat.
-- Perlindungannya tidak terasa menyakitkan.
-- Rahasianya tidak punya dampak emosional.
+- Relasi emosional baru muncul sebelum luka lama matang.
+- Sylvara langsung menjadi penyembuh.
+- Pembaca belum paham kenapa Kael sulit percaya.
 
 ### Perbaikan
 
-- Zhorin harus melindungi dan melukai secara bersamaan.
-- Kael harus merasa dijaga sekaligus dikurung.
-- Setiap jawaban Zhorin yang ditahan harus membuat Kael makin retak secara batin.
-- Hubungan mereka harus terasa seperti keluarga yang tidak tahu cara bicara jujur.
+- Simpan Sylvara sampai Kael keluar dari Emberwake.
+- Biarkan Kael membawa luka Elio dulu.
+- Sylvara harus menjadi orang yang tinggal, bukan langsung jawaban romantis.
 
 ---
 
-## 7. Risiko: Tokoh lokal terlalu datar
+## 10. Risiko: Skala besar dibuka terlalu cepat
 
-### Bentuk masalah
+### Masalah
 
-Warga Emberwake bisa terasa hanya sebagai kerumunan takut.
+Nama besar seperti Fragmen, Covenant, Malakar, dan konflik lama bisa mengalahkan luka awal.
 
 ### Gejala
 
-- Semua warga bereaksi sama.
-- Tidak ada suara lokal yang khas.
-- Mereka tampak bodoh atau jahat.
-- Pembaca tidak merasakan dilema mereka.
+- Banyak istilah sebelum pembaca peduli.
+- Season 1 terasa seperti ringkasan sejarah.
+- Emberwake tidak membekas.
 
 ### Perbaikan
 
-- Tessa takut karena Elio.
-- Harland takut karena desa.
-- Maeron realistis karena rumah singgah hidup dari kabar.
-- Corren bicara ringan untuk menutupi cemas.
-- Sister Vaine melihat lebih banyak daripada yang ia katakan.
+- Tahan istilah besar.
+- Pakai bayangan tipis saja.
+- Buat satu anak yang mundur dari Kael lebih penting daripada sepuluh nama kuno.
 
 ---
 
-## 8. Risiko: Sylvara masuk terlalu cepat
+# II. Kekuatan yang Harus Dijaga
 
-### Bentuk masalah
+## 1. Elio sebagai luka kecil
 
-Sylvara penting, tetapi jika masuk terlalu awal, luka Emberwake bisa kehilangan ruang.
+Ini harus menjadi inti emosional awal.
 
-### Gejala
+## 2. Tessa sebagai rasa takut yang masuk akal
 
-- Relasi romantis muncul sebelum Kael punya akar emosional.
-- Sylvara langsung menjadi penyembuh luka.
-- Pembaca belum melihat cukup alasan kenapa Kael sulit percaya.
+Tessa tidak boleh jahat. Ia harus manusiawi.
 
-### Perbaikan
+## 3. Emberwake sebagai hampir-rumah
 
-- Simpan Sylvara untuk fase setelah Emberwake.
-- Masukkan ia saat Kael sudah membawa beban kabar angin.
-- Jadikan Sylvara orang yang tinggal, bukan langsung pasangan.
+Pembaca harus paham kenapa Kael ingin tinggal.
 
----
+## 4. Zhorin sebagai cinta yang salah bentuk
 
-## 9. Risiko: Skala besar dibuka terlalu cepat
+Relasi ini harus rumit.
 
-### Bentuk masalah
+## 5. Jaringan Kabar Angin sebagai musuh sosial
 
-Fragmen, Malakar, Covenant, dan sejarah besar bisa membuat Season 1 kehilangan rasa intim.
+Versi palsu Kael harus berjalan lebih jauh daripada Kael.
 
-### Gejala
+## 6. Registry sebagai sistem yang sopan
 
-- Nama besar muncul terlalu banyak.
-- Emberwake terasa kecil secara buruk, bukan emosional.
-- Pembaca tahu taruhannya besar, tapi belum peduli pada siapa pun.
-
-### Perbaikan
-
-- Tahan konflik besar.
-- Gunakan hanya bayangan tipis.
-- Biarkan pembaca kehilangan Emberwake dulu.
-- Buat satu luka kecil lebih penting daripada sepuluh istilah besar.
-
----
-
-## 10. Risiko: Kabar angin terlalu lucu atau ringan
-
-### Bentuk masalah
-
-Karena istilah kabar angin terdengar sehari-hari, ia bisa terasa terlalu ringan jika tidak diberi akibat.
-
-### Gejala
-
-- Rumor hanya jadi candaan.
-- Tidak ada harga sosial.
-- Kael tidak benar-benar berubah karena reputasi palsu.
-
-### Perbaikan
-
-- Buat kabar angin menutup jalan.
-- Buat kabar angin membuat orang takut duluan.
-- Buat kabar angin membuat orang salah berharap pada Kael.
-- Buat Kael sakit karena ia tidak bisa membela diri dari cerita yang sudah berjalan.
-
----
-
-# II. Kekuatan Utama yang Harus Dijaga
-
-## 1. Kael sebagai manusia yang ingin diterima
-
-Ini fondasi utama. Jangan tertutup oleh gelar atau kekuatan.
-
-## 2. Emberwake sebagai luka awal
-
-Tempat ini harus membekas sepanjang serial.
-
-## 3. Zhorin sebagai cinta yang salah bentuk
-
-Relasi ini harus rumit, bukan hitam putih.
-
-## 4. Jaringan Kabar Angin
-
-Ini pembeda penting dari alur generik. Reputasi palsu Kael harus menjadi musuh sosial.
-
-## 5. Registry sebagai tekanan resmi
-
-Sistem harus terasa dingin, bersih, dan sulit dilawan karena ia tampak sah.
+Tekanan harus terasa melalui kata-kata resmi.
 
 ---
 
 # III. Prioritas Revisi
 
-1. Revisi Chapter 1 agar insiden tungku lebih emosional.
-2. Revisi Chapter 2 agar Registry lebih menekan secara halus.
-3. Revisi Chapter 3 agar konflik Kael-Zhorin menjadi pusat luka.
-4. Tambahkan jalur awal Jaringan Kabar Angin.
-5. Tahan semua istilah besar yang belum perlu.
+1. Revisi pembuka agar Elio dan Kael punya hubungan kecil sebelum insiden.
+2. Perkuat insiden tungku sebagai luka sosial, bukan aksi.
+3. Tambahkan momen Tessa menarik Elio dengan rasa bersalah.
+4. Perkuat konflik Kael-Zhorin setelah tanda spiral muncul.
+5. Buat kabar pertama keluar dari rumah singgah.
+6. Pastikan Season 1 berakhir dengan Kael membawa luka Elio, bukan hanya misteri Drayven.
 
 ---
 
 # IV. Ringkasan Canon
 
-Risiko terbesar setelah reset bukan kurangnya ide, tetapi cerita kembali terlalu cepat menjadi besar.
+Risiko terbesar bukan kurangnya ide.
 
-Novel ini harus menjaga urutan:
+Risiko terbesar adalah cerita terlalu cepat menjadi besar.
 
-> manusia dulu, rumah dulu, luka dulu, kabar dulu, catatan dulu, warisan belakangan.
+Urutan wajib:
 
-Jika urutan ini dijaga, Kael akan terasa lebih nyentuh dan perjalanan besarnya akan punya dasar emosional yang kuat.
+> Elio dulu, Tessa dulu, Emberwake dulu, Zhorin dulu, kabar angin dulu, Registry dulu, Drayven belakangan.
+
+Jika urutan ini dijaga, Kael akan lebih dekat dengan pembaca sebelum ia menjadi sosok besar di Veyrath.
