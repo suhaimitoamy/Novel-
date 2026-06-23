@@ -1,14 +1,14 @@
-# Cast Core Canon — Reset Tahap 2
+# Cast Core Canon — Reset Tahap 3
 
 ## Status Canon
 
-Dokumen ini menggantikan reset tahap 1.
+Dokumen ini menggantikan reset tahap 2.
 
-Fokus baru: karakter awal harus membuat luka Kael lebih dekat, lebih manusiawi, dan lebih sulit dilupakan.
+Fokus baru: cast awal harus membawa luka yang tidak bisa selesai hanya dengan permintaan maaf.
 
 Prinsip utama:
 
-> Cast awal bukan untuk memperluas cerita, tetapi untuk membuat Kael punya sesuatu yang terasa hampir seperti rumah sebelum ia kehilangan tempatnya.
+> Cast awal bukan untuk memperluas cerita, tetapi untuk membuat Kael hampir punya rumah sebelum ia kehilangan hak untuk tinggal di dalamnya.
 
 ---
 
@@ -32,6 +32,7 @@ Cast dibagi menjadi 5 lapisan:
 - **Fungsi:** pusat luka, pusat rumor, pusat konflik identitas.
 - **Keinginan awal:** ingin tetap menjadi bagian kecil dari Emberwake.
 - **Luka awal:** orang yang ia selamatkan tidak lagi melihatnya dengan cara yang sama.
+- **Benda emosional:** Paku Bulan dari Elio.
 
 Kael harus terasa sebagai orang yang sudah terbiasa menjaga jarak, tetapi diam-diam masih berharap ada yang tetap tinggal.
 
@@ -41,42 +42,42 @@ Kael harus terasa sebagai orang yang sudah terbiasa menjaga jarak, tetapi diam-d
 - **Fungsi:** cinta yang salah bentuk.
 - **Relasi dengan Kael:** Zhorin melindungi Kael dari luar, tetapi menutup terlalu banyak pintu dari dalam.
 
-Zhorin tidak boleh hanya menjadi mentor kuat.
+Keputusan penting Zhorin:
 
-Ia harus menjadi orang yang membuat pembaca paham bahwa perlindungan bisa terasa seperti kurungan.
+> Zhorin mengetahui bahwa Tessa akan mengirim Elio pergi dan tidak memberi Kael kesempatan untuk berpamitan.
 
-Konflik inti:
+Zhorin melakukan itu untuk melindungi Elio, Tessa, dan Kael dari tekanan Registry.
 
-> Kael ingin diberi kebenaran agar bisa hidup sebagai dirinya. Zhorin menahan kebenaran karena takut Kael tidak akan selamat setelah mengetahuinya.
+Namun bagi Kael, keputusan itu terasa seperti pengkhianatan kecil yang tidak bisa ditarik kembali.
 
 ## 3. Tessa Runehand
 
 - **Peran:** pandai besi Emberwake, ibu Elio.
-- **Fungsi:** rasa terima kasih yang kalah oleh rasa takut.
+- **Fungsi:** rasa terima kasih yang kalah oleh rasa takut seorang ibu.
 - **Relasi dengan Kael:** Tessa tahu Kael menyelamatkan Elio, tetapi setelah melihat tanda spiral, ia tidak bisa membiarkan Elio sedekat dulu.
 
-Tessa tidak boleh ditulis sebagai pengkhianat.
+Keputusan penting Tessa:
 
-Ia harus terasa sebagai ibu yang baik, justru karena itu reaksinya menyakiti Kael.
+> Tessa mengirim Elio ke kerabatnya di desa lain sebelum Registry memakai anak itu sebagai titik tekan.
 
-Konflik Tessa:
+Tessa tidak jahat.
 
-> Ia ingin membalas kebaikan Kael, tetapi naluri seorang ibu membuat tangannya lebih cepat menarik Elio menjauh.
+Ia justru manusiawi karena ia tahu Kael baik, tetapi tetap memilih menjaga anaknya menjauh.
 
 ## 4. Elio Ash
 
 - **Peran:** anak kecil yang diselamatkan Kael.
 - **Fungsi:** luka paling kecil tetapi paling tajam.
-- **Relasi awal:** sebelum insiden, Elio adalah anak yang masih berani mengikuti Kael, bertanya, dan memanggil namanya tanpa beban.
+- **Relasi awal:** Elio adalah anak yang berani mengikuti Kael dan memanggil namanya tanpa beban.
 - **Relasi setelah insiden:** Elio tetap hidup, tetapi cara ia memandang Kael berubah.
 
-Elio tidak membenci Kael.
+Benda emosional Elio:
 
-Itu justru yang membuatnya lebih sakit.
+> **Paku Bulan** — paku bengkok dari bengkel Tessa yang Elio bentuk seperti bulan sabit kecil dan berikan kepada Kael.
 
-Ia hanya takut.
+Setelah insiden, Paku Bulan kembali kepada Kael tanpa pertemuan langsung.
 
-Fungsi emosional Elio:
+Fungsi Elio:
 
 > Bukti bahwa Kael bisa menyelamatkan tubuh seseorang, tetapi belum tentu menyelamatkan hubungan mereka.
 
@@ -88,9 +89,7 @@ Fungsi emosional Elio:
 
 Maeron tidak harus jahat.
 
-Ia cukup realistis.
-
-Satu cerita yang dibiarkan hidup di mejanya bisa menjadi awal nama Kael berjalan terlalu jauh.
+Ia cukup membiarkan cerita berjalan.
 
 ## 6. Sister Vaine
 
@@ -100,17 +99,13 @@ Satu cerita yang dibiarkan hidup di mejanya bisa menjadi awal nama Kael berjalan
 
 Sister Vaine penting karena diamnya berbeda dari diam warga lain.
 
-Ia bukan diam karena takut.
-
-Ia diam karena sedang menimbang sesuatu.
-
 ## 7. Corren Pike
 
 - **Peran:** pedagang/kusir lokal.
 - **Fungsi:** mulut pertama yang membuat kejadian kecil menjadi cerita jalanan.
 - **Relasi dengan Kael:** cukup akrab untuk bercanda, tidak cukup peka untuk tahu candanya bisa melukai.
 
-Corren adalah contoh bahwa kabar besar sering lahir dari orang kecil yang tidak merasa sedang melakukan sesuatu yang penting.
+Corren adalah contoh bahwa kabar besar sering lahir dari orang kecil yang merasa hanya sedang bercerita.
 
 ## 8. Harland
 
@@ -133,8 +128,6 @@ Ia adalah orang lemah yang dipaksa menjadi wajah desa saat kekuasaan resmi datan
 - **Cara kerja:** bertanya, mencatat, membaca pola, memakai segel, dan membuat orang kecil merasa bersalah.
 
 Registry-Reader harus terasa menakutkan tanpa perlu kasar.
-
-Ia membuat satu desa berubah hanya dengan kalimat yang terlalu rapi.
 
 ## 2. Ser Caldris
 
@@ -175,8 +168,6 @@ Justru itu yang membuatnya sulit dihentikan.
 
 Pamflet pertama tentang Kael harus terasa sebagai momen penting.
 
-Sejak ditulis, rumor tidak lagi hanya lewat mulut.
-
 ## 4. Penyanyi Murah
 
 - **Peran:** pengubah kabar menjadi lagu.
@@ -186,6 +177,18 @@ Lagu tentang Kael tidak harus benar.
 
 Justru semakin sederhana dan salah, semakin cepat menyebar.
 
+## 5. Ralen
+
+- **Peran:** penjaga kandang di jalur perbatasan.
+- **Fungsi:** korban sosial pertama dari kabar salah tentang Kael.
+- **Relasi dengan Kael:** belum mengenal Kael, tetapi sudah takut karena cerita yang datang lebih dulu.
+
+Ralen menolak memberi Kael tempat berteduh setelah mengenali tanda di tangannya.
+
+Fungsi Ralen:
+
+> membuktikan bahwa kabar angin bukan latar, tetapi kekuatan yang bisa menutup pintu sebelum Kael bicara.
+
 ---
 
 # V. Jangkar Lanjutan
@@ -194,7 +197,7 @@ Justru semakin sederhana dan salah, semakin cepat menyebar.
 
 - **Peran:** orang pertama yang berani tinggal setelah Kael yakin semua orang akan mundur.
 - **Fungsi:** jangkar emosional lanjutan.
-- **Waktu masuk:** setelah Kael membawa luka Emberwake.
+- **Waktu masuk:** setelah Kael membawa luka Emberwake dan Paku Bulan.
 
 Sylvara tidak boleh langsung menjadi pasangan.
 
@@ -267,17 +270,23 @@ Mereka ditahan agar luka Emberwake punya ruang bernapas.
 
 1. Tokoh awal harus punya fungsi emosional langsung.
 2. Elio harus menjadi luka hidup, bukan korban plot.
-3. Tessa harus terasa sebagai ibu, bukan pengkhianat.
-4. Zhorin harus melindungi dan menyakiti secara bersamaan.
-5. Registry harus sopan, bukan kasar.
-6. Pembawa Angin harus terasa biasa, bukan terlalu megah.
-7. Tokoh besar masuk setelah pembaca peduli pada Kael.
+3. Paku Bulan harus menjadi simbol kecil, bukan benda magis besar.
+4. Tessa harus terasa sebagai ibu, bukan pengkhianat.
+5. Zhorin harus melindungi dan menyakiti secara bersamaan.
+6. Registry harus sopan, bukan kasar.
+7. Ralen harus membuktikan kabar angin punya akibat nyata.
+8. Tokoh besar masuk setelah pembaca peduli pada Kael.
 
 ---
 
 # IX. Ringkasan Canon
 
 Cast awal Kael Drayven berpusat pada Emberwake: Kael, Zhorin, Tessa, Elio, Maeron, Sister Vaine, Corren, Harland, Registry-Reader, dan Ser Caldris.
+
+Tahap 3 menambahkan dua jangkar penting:
+
+- **Paku Bulan** sebagai simbol kecil bahwa Kael pernah hampir dipercaya.
+- **Ralen** sebagai bukti pertama bahwa kabar salah tentang Kael sudah berjalan lebih cepat daripada dirinya.
 
 Season awal berhasil jika pembaca merasa bahwa Kael tidak kehilangan sebuah kerajaan.
 
