@@ -1,21 +1,22 @@
-# Revelation Order — Reset Tahap 1
+# Revelation Order — Reset Tahap 3
 
 ## Status Canon
 
-Dokumen ini menggantikan urutan pengungkapan lama.
+Dokumen ini menggantikan reset tahap 1.
 
-Arah baru menjaga agar pembaca mengetahui rahasia Kael secara bertahap: dari rasa, kabar, catatan, nama, warisan, lalu kebenaran besar.
+Arah baru menjaga agar pembaca mengetahui rahasia Kael secara bertahap: dari benda kecil, luka kecil, kabar, catatan, nama, warisan, lalu kebenaran besar.
 
 ---
 
 # I. Prinsip Pengungkapan Baru
 
 1. Pembaca harus merasakan sebelum memahami.
-2. Kabar angin boleh menyebar lebih cepat daripada fakta.
-3. Catatan resmi boleh terasa menakutkan sebelum dijelaskan.
-4. Nama Drayven tidak boleh dibuka penuh terlalu cepat.
-5. Malakar, Fragmen, Covenant, dan kosmologi besar ditahan sampai fondasi emosional kuat.
-6. Setiap jawaban harus mengubah posisi Kael.
+2. Paku Bulan harus muncul sebelum tanda besar atau nama besar.
+3. Kabar angin boleh menyebar lebih cepat daripada fakta.
+4. Catatan resmi boleh terasa menakutkan sebelum dijelaskan.
+5. Nama Drayven tidak boleh dibuka penuh terlalu cepat.
+6. Malakar, Fragmen, Covenant, dan kosmologi besar ditahan sampai fondasi emosional kuat.
+7. Setiap jawaban harus mengubah posisi Kael.
 
 ---
 
@@ -27,10 +28,11 @@ Pembaca merasakan sesuatu salah tanpa tahu nama lengkapnya.
 
 Contoh:
 
+- Elio memberi Kael Paku Bulan.
 - Aether menegang di sekitar tungku.
 - Tanda spiral muncul seperti luka.
+- Elio mulai melihat Kael berbeda.
 - Darah Kael bereaksi pada lambang Registry.
-- Warga Emberwake mundur setelah Kael menolong.
 - Zhorin menahan jawaban terlalu sering.
 
 ## Tingkat 2 — Disebut
@@ -39,6 +41,7 @@ Sesuatu diberi nama, tetapi belum diberi penjelasan utuh.
 
 Contoh:
 
+- Paku Bulan
 - Aether
 - Luminal Registry
 - Anak Spiral
@@ -52,6 +55,7 @@ Pembaca mulai memahami fungsi sosial atau emosional sesuatu.
 
 Contoh:
 
+- Paku Bulan adalah bukti kecil bahwa Kael pernah hampir dipercaya.
 - Aether bukan sekadar sihir, tetapi pola yang terasa di tubuh dan benda.
 - Registry bukan sekadar pejabat, tetapi sistem catatan yang menekan.
 - Kabar angin bukan sekadar gosip, tetapi jaringan sosial yang bisa mengubah nasib orang.
@@ -63,8 +67,9 @@ Pengungkapan baru membuat pembaca membaca ulang adegan lama.
 
 Contoh:
 
-- Kael tidak hanya disembunyikan karena berbahaya, tetapi karena namanya mengganggu catatan lama.
-- Zhorin tidak hanya menahan kebenaran karena keras, tetapi karena tahu setiap jawaban punya harga.
+- Kael tidak hanya sedih karena Elio takut; ia juga kehilangan kesempatan berpamitan.
+- Zhorin tidak hanya keras, tetapi sering mengambil pilihan tanpa memberi Kael ruang memilih.
+- Ralen menolak Kael bukan karena kejahatan Kael, tetapi karena cerita yang datang lebih dulu.
 - Kabar tentang Kael tidak menyebar alami sepenuhnya; ada pihak yang ikut membentuknya.
 
 ## Tingkat 5 — Kebenaran Inti
@@ -87,21 +92,26 @@ Contoh:
 
 ### Yang pembaca harus tahu
 
+- Kael ingin hidup biasa.
+- Elio pernah percaya pada Kael.
+- Paku Bulan adalah simbol kecil kepercayaan itu.
 - Kael berbeda.
-- Ia ingin hidup biasa.
-- Emberwake tidak sepenuhnya menerima dirinya.
 - Aether terasa melalui tubuh dan benda rusak.
 - Tanda spiral adalah sesuatu yang belum punya nama jelas.
+- Elio pergi sebelum Kael sempat memperbaiki hubungan mereka.
 - Registry mencari anak tanpa catatan.
 - Kabar pertama tentang Kael mulai keluar dari desa.
+- Ralen menjadi bukti bahwa kabar angin punya akibat nyata.
 
 ### Yang boleh disebut
 
+- Paku Bulan
 - Aether
 - Luminal Registry
 - Anak Spiral
 - Drayven sebagai jejak samar
-- Jaringan Kabar Angin sebagai kemungkinan awal
+- Jaringan Kabar Angin
+- Pembawa Angin
 
 ### Yang hanya disiratkan
 
@@ -128,6 +138,7 @@ Contoh:
 - Pembawa Angin hidup dari cerita.
 - Pamflet dan lagu bisa membuat rumor bertahan lebih lama.
 - Kael mulai dibebani versi palsu dirinya.
+- Paku Bulan tetap mengingatkan bahwa legenda itu lahir dari luka kecil.
 
 ### Yang boleh disebut
 
@@ -272,6 +283,7 @@ Contoh:
 ### Yang dibayar
 
 - luka Emberwake,
+- Paku Bulan,
 - hubungan dengan Zhorin,
 - relasi dengan Sylvara,
 - cermin gelap Rowan,
@@ -286,30 +298,34 @@ Contoh:
 
 Setiap kebenaran harus membuat Kael kehilangan sesuatu, mengubah pilihan, atau memperumit relasi.
 
-## 2. Jangan beri nama terlalu cepat
+## 2. Jangan beri nama besar terlalu cepat
 
 Sesuatu harus terasa dulu sebelum dinamai.
 
-## 3. Kabar angin boleh salah
+## 3. Paku Bulan harus tetap kecil
+
+Paku Bulan tidak boleh menjadi artefak besar di awal. Nilainya emosional, bukan teknis.
+
+## 4. Kabar angin boleh salah
 
 Pembaca boleh mendengar versi yang salah selama narasi utama menjaga pusat emosional Kael tetap jelas.
 
-## 4. Registry harus terasa sebelum dijelaskan
+## 5. Registry harus terasa sebelum dijelaskan
 
 Pembaca harus merasa tidak nyaman dengan cara mereka bertanya sebelum tahu struktur lengkapnya.
 
-## 5. Drayven harus muncul sebagai luka, bukan informasi
+## 6. Drayven harus muncul sebagai luka, bukan informasi
 
-Nama Drayven harus terasa seperti sesuatu yang menyakitkan sebelum menjadi pengetahuan dunia.
+Nama Drayven harus terasa seperti sesuatu yang menyakitkan sebelum menjadi pengetahuan besar.
 
 ---
 
 # V. Ringkasan Canon
 
-Urutan pengungkapan baru bergerak dari pengalaman kecil menuju kebenaran besar.
+Urutan pengungkapan baru bergerak dari benda kecil menuju kebenaran besar.
 
-Season awal hanya boleh membuka Kael, Emberwake, Aether sebagai rasa, Registry sebagai tekanan, dan Jaringan Kabar Angin sebagai awal reputasi palsu.
+Season awal hanya boleh membuka Paku Bulan, Elio, Emberwake, Aether sebagai rasa, Registry sebagai tekanan, dan Jaringan Kabar Angin sebagai awal reputasi palsu.
 
 Kebenaran besar ditahan sampai pembaca memahami hal paling penting:
 
-> sebelum Kael menjadi pewaris yang ditolak, ia adalah manusia yang ingin dipercaya.
+> sebelum Kael menjadi pewaris yang ditolak, ia adalah manusia yang pernah hampir dipercaya.
