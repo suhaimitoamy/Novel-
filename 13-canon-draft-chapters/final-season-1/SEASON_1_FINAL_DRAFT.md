@@ -4,20 +4,20 @@
 
 # DAFTAR ISI
 
-- [BAB 01 — Paku Bulan](#bab-01--paku-bulan)
-- [BAB 02 — Cara Orang Mundur](#bab-02--cara-orang-mundur)
-- [BAB 03 — Kereta dari Selatan](#bab-03--kereta-dari-selatan)
-- [BAB 4](#bab-4)
-- [BAB 5](#bab-5)
-- [BAB 6](#bab-6)
-- [BAB 07 — Penjara Tanpa Jeruji](#bab-07--penjara-tanpa-jeruji)
-- [BAB 08 — Lahirnya Sebuah Rumor](#bab-08--lahirnya-sebuah-rumor)
-- [BAB 09 — Tembok Zhorin](#bab-09--tembok-zhorin)
-- [BAB 10](#bab-10)
-- [BAB 11](#bab-11)
-- [BAB 12](#bab-12)
-- [BAB 13 — Kepergian yang Sunyi](#bab-13--kepergian-yang-sunyi)
-- [BAB 14 — Pintu Pertama yang Tertutup](#bab-14--pintu-pertama-yang-tertutup)
+- [BAB 01 — Paku Bulan](#bab-01-paku-bulan)
+- [BAB 02 — Cara Orang Mundur](#bab-02-cara-orang-mundur)
+- [BAB 03 — Kereta dari Selatan](#bab-03-kereta-dari-selatan)
+- [BAB 04 — Lingkaran yang Menyempit](#bab-04-lingkaran-yang-menyempit)
+- [BAB 05 — Sisa Abu](#bab-05-sisa-abu)
+- [BAB 06 — Jarak Seorang Ibu](#bab-06-jarak-seorang-ibu)
+- [BAB 07 — Penjara Tanpa Jeruji](#bab-07-penjara-tanpa-jeruji)
+- [BAB 08 — Lahirnya Sebuah Rumor](#bab-08-lahirnya-sebuah-rumor)
+- [BAB 09 — Tembok Zhorin](#bab-09-tembok-zhorin)
+- [BAB 10 — Resonansi Paksaan](#bab-10-resonansi-paksaan)
+- [BAB 11 — Titik Patah](#bab-11-titik-patah)
+- [BAB 12 — Tidak Ada Pelabuhan Aman](#bab-12-tidak-ada-pelabuhan-aman)
+- [BAB 13 — Kepergian yang Sunyi](#bab-13-kepergian-yang-sunyi)
+- [BAB 14 — Pintu Pertama yang Tertutup](#bab-14-pintu-pertama-yang-tertutup)
 
 ---
 
@@ -343,7 +343,6 @@ Tessa memeluknya.
 
 Dan Kael, untuk pertama kalinya sejak pagi itu, merasa Paku Bulan di sakunya menekan dadanya lebih sakit daripada bara di tangannya.
 
-
 ---
 
 # BAB 02 — Cara Orang Mundur
@@ -639,7 +638,6 @@ Ia menutup jari-jarinya di atas paku itu.
 Di luar, Emberwake berbisik.
 
 Dan untuk pertama kalinya, Kael merasa namanya tidak lagi sepenuhnya miliknya.
-
 
 ---
 
@@ -1015,8 +1013,9 @@ Namun yang ia rasakan di balik kulitnya hanyalah Tarikan yang sunyi, siap membak
 
 Tetapi yang ia rasakan hanya udara dingin, lumpur basah, dan suara roda kecil yang disiapkan diam-diam sebelum fajar.
 
-
 ---
+
+# BAB 04 — Lingkaran yang Menyempit
 
 Pagi turun di Emberwake bukan dengan kehangatan dari ufuk timur, melainkan dengan kabut kelabu yang mencekik. Udara terasa jauh lebih tipis dari biasanya, seolah bernapas saja membutuhkan izin dari para pendatang yang kini memblokir jalan utama.
 
@@ -1090,8 +1089,9 @@ Kael akhirnya menyadari satu kenyataan mutlak pagi itu. Zhorin tidak sedang beru
 
 Lingkaran di sekitar Kael semakin menyempit, dan jika ia tidak melakukan sesuatu, ia akan menjadi pusat yang menghancurkan satu-satunya tempat yang bisa ia sebut rumah.
 
-
 ---
+
+# BAB 05 — Sisa Abu
 
 Malam jatuh menutupi Emberwake, membawa hawa dingin musiman yang biasa membuat penduduk desa merapatkan selimut. Namun di dalam kamarnya, Kael justru bermandi peluh.
 
@@ -1155,8 +1155,9 @@ Kael ditinggalkan sendirian dalam keheningan kamar yang menyiksa. Denyut spiral 
 
 Rasanya seperti menelan abu kuburan, namun setidaknya, untuk malam ini, abu itu memadamkan apinya.
 
-
 ---
+
+# BAB 06 — Jarak Seorang Ibu
 
 Dinding-dinding kayu di rumah Zhorin terasa semakin lama semakin menyempit. Udara di dalam bangunan tua itu pengap oleh ketegangan, bau ramuan peredam, dan kebisuan bapak angkatnya yang menyesakkan dada. Pada hari ketiga pengepungan diam-diam dari Luminal Registry, Kael akhirnya tidak tahan lagi. Ia harus keluar. Ia harus merasakan udara dingin dan meyakinkan dirinya bahwa dunia luar belum sepenuhnya kiamat.
 
@@ -1212,7 +1213,6 @@ Saat ini, di tengah desa yang secara harfiah sedang menutup pintunya untuk Kael,
 
 Tanpa mengucapkan sepatah kata pun, Kael memutar tumitnya. Ia melangkah kembali menembus jalan berlumpur, menjauh dari ibu dan anak itu, menjauh dari ilusi bahwa ia pernah menjadi bagian dari Emberwake. Langkahnya mantap, ditelan oleh kabut kelabu pagi dan kesunyian desa yang menunggu kepergiannya.
 
-
 ---
 
 # BAB 07 — Penjara Tanpa Jeruji
@@ -1267,7 +1267,6 @@ Pada hari itu, Kael menyadari satu kebenaran yang akan terus melekat di kepalany
 
 Emberwake telah berubah menjadi penjara tanpa jeruji, dan Kael adalah kunci yang menahan gemboknya.
 
-
 ---
 
 # BAB 08 — Lahirnya Sebuah Rumor
@@ -1317,7 +1316,6 @@ Sensasi panas yang familiar mulai merayap dari pergelangan tangan kanannya. *Tar
 Kael menggertakkan giginya hingga rahangnya sakit. Ia mengepalkan tangan kirinya erat-erat, memaksa kukunya menancap ke telapak tangan. Rasa sakit fisik yang tajam menarik kewarasannya kembali. Ia menelan paksa gejolak energi itu, memaksanya kembali ke dasar jiwanya, menguncinya di balik Tahap Rekahan.
 
 Ia berbalik dari dinding kedai. Hujan es terus menghantam wajahnya. Di bawah bayang-bayang Emberwake, Kael menyadari bahwa rumor itu telah mengalahkannya bahkan sebelum ia melangkah keluar dari desa. Ia adalah musuh dunia. Dan malam itu, ia memutuskan bahwa desa ini tidak pantas menanggung beban dari keberadaannya.
-
 
 ---
 
@@ -1383,10 +1381,9 @@ Kael menatap pria itu untuk terakhir kalinya. Ia tidak membantah. Ia berbalik da
 
 Di dalam kepalanya, keputusannya telah bulat. Sangkar ini mungkin telah menahannya selama bertahun-tahun, tetapi malam ini, Kael bersumpah bahwa ia akan mematahkannya sendiri. Pagi tidak akan pernah melihatnya lagi di rumah ini.
 
-
 ---
 
-### Bab 10 — Resonansi Paksaan
+# BAB 10 — Resonansi Paksaan
 
 Langit di atas Emberwake tidak pernah tampak lebih abu-abu. Gumpalan awan tebal bergerak lambat, seolah udara itu sendiri sedang menahan napas. Kael berlutut di tanah lembap ruang bawah tanah rumah Zhorin, dikelilingi oleh rak-rak kayu yang menyimpan perkakas berkarat dan jaring laba-laba. Aroma tanah basah dan besi tua tidak cukup untuk menyembunyikan bau ketegangan yang menguar dari pori-porinya sendiri.
 
@@ -1470,10 +1467,9 @@ Langkah kaki Voss menjauh. Pintu depan tertutup perlahan.
 
 Kael memutar tubuhnya untuk menatap langit-langit berdebu. Matanya terasa panas. Ia menyeka sisa darah hitam dari bibirnya menggunakan lengan baju. Ia selamat hari ini. Ia berhasil menahan frekuensi itu tanpa meledak. Namun, Kael menyadari satu kenyataan mutlak. Relik itu adalah batas akhirnya. Jika resonansi itu diulang besok, tidak ada lagi yang bisa menahannya. Emberwake bukan lagi tempat persembunyian. Desa ini telah menjadi penjara yang menghitung mundur eksekusinya.
 
-
 ---
 
-### Bab 11 — Titik Patah
+# BAB 11 — Titik Patah
 
 Malam merayap turun dengan membawa angin perbatasan yang menggigit tulang. Namun, rasa dingin di luar tidak ada apa-apanya dibandingkan dengan keheningan mencekam di dalam rumah Zhorin. Kael duduk bersandar pada dinding kamarnya yang gelap. Luka di tangan kanannya telah dibalut ulang dengan perban bersih, meskipun kain putih itu mulai memunculkan noda kuning dari getah obat.
 
@@ -1547,10 +1543,9 @@ Emberwake telah mati malam ini. Desa ini bukan lagi rumah bagi Kael. Ini adalah 
 
 Ia memandangi tangannya yang terbalut kain kotor. Tanda di balik kain itu seolah berakar semakin dalam ke ototnya. Tidak ada lagi perlindungan di sini. Satu-satunya jalan adalah pergi, sebelum Zhorin membunuh orang lain di desa ini, atau sebelum warga desa membunuh Kael dalam tidurnya.
 
-
 ---
 
-### Bab 12 — Tidak Ada Pelabuhan Aman
+# BAB 12 — Tidak Ada Pelabuhan Aman
 
 Hujan badai menghantam atap rumah dengan ritme yang memekakkan telinga. Air mata langit seolah ditumpahkan secara paksa untuk membilas noda darah di halaman depan Zhorin, meski Kael tahu kenangan malam itu tidak akan pernah terhapus.
 
@@ -1608,7 +1603,6 @@ Kael memperbaiki letak tudungnya. Ia memalingkan wajah dari rumah mungil itu.
 
 Langkahnya dilanjutkan kembali. Membelakangi desa kayu kecil yang membesarkannya. Ia menembus jalan setapak berbatu menuju jalur selatan, menuju perbatasan Veyrath yang tak berujung. Tidak ada perasaan epik yang mengiringi kepergiannya. Tidak ada rasa heroisme yang memberat di dadanya. Di bawah hujan lebat yang mencuci jejak kakinya, Kael hanya merasa seperti seorang pengecut—pencuri yang melarikan diri dari dosa-dosa dan rasa bersalahnya sendiri. Di luar sana, di bawah langit malam yang luas dan mengancam, Kael tahu tidak akan ada pelabuhan yang aman bagi seseorang dengan darah yang mendidih.
 
-
 ---
 
 # BAB 13 — Kepergian yang Sunyi
@@ -1652,7 +1646,6 @@ Tangan kirinya tetap di dalam saku, menjaga agar Paku Bulan itu tidak jatuh. Kae
 Ia memutar tubuh. Kael membelakangi rumah Tessa, membelakangi bengkel Corren, membelakangi batas wilayah Emberwake. 
 
 Ia mulai melangkah menembus lumpur, menyusuri jalur selatan yang berbatasan dengan hutan pinus. Tidak ada perasaan epik yang memenuhi dadanya. Tidak ada panggilan takdir yang mulia atau kebanggaan seorang pahlawan. Malam itu, di bawah guyuran badai yang kejam, Kael hanyalah seorang pemuda yang berlari kencang dari dosa-dosanya sendiri, meninggalkan kehidupan yang hancur karena keberadaannya.
-
 
 ---
 
@@ -1715,7 +1708,6 @@ Kael berdiri sendirian. Derai hujan perbatasan Veyrath menyambutnya tanpa belas 
 Ia memasukkan tangan kirinya ke dalam saku mantel. Jari-jarinya meraba dan menggenggam Paku Bulan yang dingin. 
 
 Benda itu jelek. Pahatannya berantakan dan potongannya tidak simetris. Paku kayu itu tidak bisa memancarkan panas untuk melindunginya dari hujan perbatasan. Benda itu juga tidak bisa mengubah takdir, atau membukakan pintu yang terkunci untuk memberinya tempat berlindung. Tetapi malam itu, saat Kael kembali melangkah menembus badai menjauhi sedikit sisa peradaban, paku di tangannya itu menjadi satu-satunya jangkar yang ia miliki. Benda itu menjadi satu-satunya bukti bisu bahwa sebelum dunia memutuskan ia adalah sesosok monster, sebelum cerita tentang darahnya membakar segalanya, ia pernah memiliki tempat untuk pulang.
-
 
 ---
 
