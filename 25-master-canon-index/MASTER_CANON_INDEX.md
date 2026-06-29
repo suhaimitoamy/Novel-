@@ -28,6 +28,7 @@ Berisi fondasi metafisika, sejarah dunia, dan wajah geopolitik Zerath.
 - `03-world-core-canon/WORLD_CORE_CANON.md`
 - `06-empire-cast-canon/EMPIRE_CAST_CANON.md`
 - `14-world-timeline-canon/WORLD_TIMELINE_CANON.md`
+- `30-power-system-canon/AETHER_SYSTEM_AND_PROGRESSION.md`
 
 ## 3. Core Plot Zone
 Berisi arah cerita utama, ritme serial, dan urutan pengungkapan.
@@ -51,6 +52,7 @@ Berisi lapisan dunia yang menjaga Zerath tetap terasa dihuni, bukan hanya dipeta
 ## 6. Execution and Writing Zone
 Berisi alat untuk menjaga kualitas penulisan saat fondasi canon mulai masuk ke tahap prosa.
 
+- `STYLE_GUIDE.md`
 - `09-execution-standards/PROSE_AND_CHAPTER_STANDARDS.md`
 - `10-story-risks-and-fixes/STORY_RISKS_AND_FIXES.md`
 - `12-scene-engine/SCENE_ENGINE_AND_BEAT_TEMPLATE.md`
@@ -82,7 +84,8 @@ Baca urut ini:
 2. `02-cast-core-canon/CAST_CORE_CANON.md`
 3. `03-world-core-canon/WORLD_CORE_CANON.md`
 4. `14-world-timeline-canon/WORLD_TIMELINE_CANON.md`
-5. `04-alur-utama-canon/ALUR_UTAMA_CANON.md`
+5. `30-power-system-canon/AETHER_SYSTEM_AND_PROGRESSION.md`
+6. `04-alur-utama-canon/ALUR_UTAMA_CANON.md`
 6. `08-volume-season-structure/VOLUME_SEASON_STRUCTURE.md`
 7. `15-revelation-order/REVELATION_ORDER.md`
 8. `18-faction-relations-canon/FACTION_RELATIONS_CANON.md`
@@ -125,7 +128,8 @@ Baca urut ini:
 ## E. Kalau mau masuk ke tahap penulisan nyata
 Baca urut ini:
 
-1. `09-execution-standards/PROSE_AND_CHAPTER_STANDARDS.md`
+1. `STYLE_GUIDE.md`
+2. `09-execution-standards/PROSE_AND_CHAPTER_STANDARDS.md`
 2. `10-story-risks-and-fixes/STORY_RISKS_AND_FIXES.md`
 3. `12-scene-engine/SCENE_ENGINE_AND_BEAT_TEMPLATE.md`
 4. `11-season-1-arc-breakdown/SEASON_1_ARC_BREAKDOWN.md`
@@ -144,6 +148,9 @@ Menentukan siapa yang benar-benar penting dalam tubuh serial utama.
 ## `WORLD_CORE_CANON.md`
 Menentukan hukum dasar dunia yang relevan ke cerita inti.
 
+## `AETHER_SYSTEM_AND_PROGRESSION.md`
+Menentukan batas mutlak kekuatan, harga fisik, dan jenjang progresi (Rekahan hingga Primordial).
+
 ## `ALUR_UTAMA_CANON.md`
 Menentukan tulang punggung cerita dari awal sampai akhir.
 
@@ -159,8 +166,11 @@ Menentukan denyut dunia kecil dan manusia biasa.
 ## `VOLUME_SEASON_STRUCTURE.md`
 Menentukan ritme serial panjang.
 
+## `STYLE_GUIDE.md`
+Menentukan pedoman mutlak eksekusi narasi, diksi, dan penceritaan.
+
 ## `PROSE_AND_CHAPTER_STANDARDS.md`
-Menentukan standar kualitas eksekusi tulisan.
+Menentukan standar kualitas eksekusi tulisan tingkat chapter.
 
 ## `STORY_RISKS_AND_FIXES.md`
 Menentukan titik rawan proyek dan cara menghindarinya.
@@ -193,6 +203,7 @@ Agar revisi tidak merusak fondasi lain, urutan dependensi canon harus dipahami s
 - Kael canon
 - cast core canon
 - world core canon
+- aether system & progression
 
 Kalau level ini berubah, banyak dokumen lain ikut terdampak.
 
@@ -212,6 +223,7 @@ Kalau level ini berubah, season breakdown harus dicek ulang.
 Kalau level ini berubah, draft chapter atau mapping scene harus disesuaikan.
 
 ## Level 4 — Eksekusi
+- style guide mutlak
 - prose standards
 - story risks
 - scene engine

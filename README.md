@@ -109,6 +109,22 @@ File utama:
 
 - `REVELATION_ORDER.md`
 
+## 30-power-system-canon/
+
+Mekanika, batasan, dan harga dari kekuatan dunia.
+
+File utama:
+
+- `AETHER_SYSTEM_AND_PROGRESSION.md`
+
+## Style Guide (Root)
+
+Aturan mutlak penulisan dan standar gaya bahasa.
+
+File utama:
+
+- `STYLE_GUIDE.md`
+
 ---
 
 # Istilah Canon Baru
@@ -134,7 +150,9 @@ File utama:
 5. `11-season-1-arc-breakdown/SEASON_1_ARC_BREAKDOWN.md`
 6. `08-volume-season-structure/VOLUME_SEASON_STRUCTURE.md`
 7. `15-revelation-order/REVELATION_ORDER.md`
-8. `10-story-risks-and-fixes/STORY_RISKS_AND_FIXES.md`
+8. `30-power-system-canon/AETHER_SYSTEM_AND_PROGRESSION.md`
+9. `STYLE_GUIDE.md`
+10. `10-story-risks-and-fixes/STORY_RISKS_AND_FIXES.md`
 
 ---
 

@@ -38,9 +38,9 @@ Ia mengambil tiga botol kecil dari rak belakang, membungkusnya dengan kain, lalu
 
 Di sudut ruangan, Corren Pike duduk bersama dua pedagang asing. Topinya basah. Sepatunya penuh lumpur. Ia sedang menceritakan sesuatu saat Kael masuk, tetapi cerita itu patah di tengah kalimat.
 
-“Api putih itu rupanya pilih-pilih tangan, ya?” kata Corren akhirnya, mencoba tertawa.
+Corren menggaruk tengkuknya yang tidak gatal. “Api putih itu rupanya pilih-pilih tangan, ya?”
 
-Tidak ada yang ikut tertawa.
+Tidak ada yang tertawa.
 
 Corren sendiri menyesal bahkan sebelum kalimatnya selesai.
 
@@ -144,7 +144,7 @@ Sebelum pagi itu, posisi seperti itu tidak pernah terasa seperti pernyataan.
 
 Sekarang terasa.
 
-“Pulanglah,” kata Tessa pelan. “Zhorin pasti menunggu.”
+Tessa menurunkan suaranya. “Pulanglah. Zhorin pasti menunggu.”
 
 Kael mengangguk.
 
@@ -166,7 +166,7 @@ Kael duduk.
 
 Zhorin mengambil tangan kanannya.
 
-Tidak ada kelembutan pada cara pria itu bekerja. Ia membersihkan kulit yang memerah, menekan bagian dekat pergelangan, lalu berhenti saat melihat sisa garis spiral yang belum sepenuhnya hilang.
+Tidak ada kelembutan pada cara pria itu bekerja. Ia membersihkan kulit yang melepuh, menekan pembuluh darah Kael yang terasa kaku dan berpasir dari dalam, lalu berhenti saat melihat sisa garis gelap spiral yang menolak pudar.
 
 Diamnya berubah.
 
@@ -188,11 +188,11 @@ Kael menarik tangannya, tetapi Zhorin menahannya lebih kuat.
 
 “Jangan seperti anak kecil.”
 
-Kael menatapnya.
+Kael menatapnya tajam.
 
-“Lucu. Kau menyembunyikan hidupku dariku, lalu marah saat aku tidak bersikap dewasa terhadap rahasia yang tidak pernah kau jelaskan.”
+“Lucu. Kau menyembunyikan hidupku. Lalu kau marah saat aku tidak bersikap dewasa terhadap rahasia yang kau tolak jelaskan.”
 
-Tangan Zhorin berhenti.
+Tangan Zhorin terhenti di udara.
 
 Di luar, angin menekan dinding kayu. Rumah itu berderit pelan.
 
@@ -240,11 +240,11 @@ Tetapi matanya, hanya sesaat, terlihat lelah.
 
 Kael menatap tangan kanannya.
 
-Garis spiral sudah hampir hilang.
+Garis spiral sudah memudar.
 
-Rasanya belum.
+Namun rasa ngilu seperti abu batu di pergelangannya belum.
 
-“Dan apa yang tersisa dariku karena itu?”
+“Dan apa yang tersisa dariku karena hal itu?”
 
 Zhorin tidak menjawab.
 
@@ -256,9 +256,9 @@ Pada mulanya, seseorang hanya berkata bahwa Kael menyentuh Aether dan tidak jatu
 
 Lalu seseorang lain berkata api itu seperti mengenal tangannya.
 
-Corren, yang ingin memperbaiki candaan buruknya, justru membuatnya lebih buruk.
+Corren, yang ingin memperbaiki lelucon buruknya, justru memperparah keadaan.
 
-“Bukan begitu,” katanya pada dua pedagang asing. “Dia tidak menyentuh api. Api itu yang minggir.”
+“Bukan begitu.” Corren mencondongkan badan ke arah dua pedagang asing. “Dia tidak sekadar menyentuh api. Apinya terisap mati, lalu dibuang begitu saja.”
 
 Kalimat itu membuat meja terdiam.
 

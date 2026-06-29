@@ -112,11 +112,11 @@ Kael memilih menolong meski tahu tindakan itu akan membuatnya terlihat.
 
 1. Tungku menyala terlalu putih.
 2. Suara logam seperti menahan napas.
-3. Kael merasakan tekanan di bawah kulit.
+3. Kael merasakan *Tarikan (Draw)* Aether untuk pertama kalinya, merobek pembuluh darahnya dari dalam.
 4. Tessa memanggil Elio.
-5. Kael menggerakkan Aether tanpa memahami penuh caranya.
-6. Elio jatuh selamat.
-7. Elio melihat tangan Kael dan mulai takut.
+5. Kael secara refleks melepas energi (*Release*) tanpa kendali, mendorong Kael ke ambang **Tahap 1: Rekahan**.
+6. Elio jatuh selamat akibat vakum kinetik kecil.
+7. Elio melihat tangan Kael (kemerahan seperti abu panas) dan mulai takut.
 8. Kael menyentuh Paku Bulan di sakunya setelah sadar cara Elio memandangnya berubah.
 
 ## Titik Balik Arc
@@ -155,7 +155,7 @@ Kael mulai merasa Emberwake berubah karena ia melakukan hal benar.
 2. Tessa berkata terima kasih, tetapi berdiri di antara Elio dan Kael.
 3. Corren menyebut api putih dengan nada bercanda.
 4. Di rumah singgah, cerita mulai berubah.
-5. Zhorin melihat tanda spiral terlalu lama.
+5. Zhorin melihat tangan Kael yang menunjukkan tanda awal Sindrom Abu Darah dan Tanda Spiral yang bereaksi.
 6. Kael menuntut jawaban.
 7. Zhorin memberi peringatan, bukan penjelasan.
 8. Kael mengeluarkan Paku Bulan, lalu menyimpannya lagi tanpa tahu harus berbuat apa.

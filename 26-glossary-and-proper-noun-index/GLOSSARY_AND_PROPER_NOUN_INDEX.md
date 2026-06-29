@@ -35,9 +35,23 @@ Tapi istilah canon pusat tetap harus satu agar repo tidak pecah.
 # II. Core Cosmology Terms
 
 ## Aether
-Medium dasar eksistensi di Zerath. Semua fenomena yang oleh dunia disebut sihir, warisan, mukjizat, kutukan, atau kehendak langit pada dasarnya adalah manifestasi berbeda dari resonansi Aether.
+Medium dasar eksistensi di Zerath, sisa logika Primordial. Aether bukanlah "sihir", melainkan kekuatan fisik yang membakar tubuh fana jika diserap. Ia memiliki harga mutlak (Ash-Blood Syndrome) dan tahapan efek pada penggunanya.
 
 **Status canon:** istilah energi utama dunia.
+
+## Ash-Blood Syndrome (Sindrom Abu Darah)
+Harga mutlak penggunaan Aether. Residu pembakaran Aether di dalam tubuh yang mengkristalkan pembuluh darah menjadi batu abu-abu, membunuh atau melumpuhkan pengguna secara perlahan.
+
+## Tahapan Progresi Aether
+- **Tahap 1: Rekahan (The Fractured)**: Awal mula Aether menembus urat nadi, menghasilkan ledakan insting dan suhu.
+- **Tahap 2: Tungku (The Furnace)**: Tubuh menjadi wadah penyalur tekanan Aether tanpa hancur.
+- **Tahap 3: Resonansi (The Resonant)**: Mengubah frekuensi hukum dunia kecil (seperti suhu atau kepadatan).
+- **Tahap 4: Jangkar (The Anchor)**: Menjadi paksaan atas hukum realitas di wilayah sekitar.
+- **Tahap 5: Tirani (The Tyrant/Domain)**: Menciptakan realitas sakunya sendiri.
+- **Tahap 6: Primordial**: Penguasa mutlak yang meninggalkan wujud fana.
+
+## Resonance Print (Jejak Resonansi)
+Sidik jari frekuensi Aether unik dari setiap pengguna yang digunakan Luminal Registry untuk melacak, mengidentifikasi, dan memburu orang-orang tanpa catatan.
 
 ## Resonance
 Cara Aether bergetar, merespons, menyatu, atau bertabrakan dengan tubuh, ruang, relik, darah, dan hukum dunia.

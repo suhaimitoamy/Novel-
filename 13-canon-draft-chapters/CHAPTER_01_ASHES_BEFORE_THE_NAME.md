@@ -226,41 +226,37 @@ Jika ia berhenti, Elio akan terkena tekanan pertama.
 
 Kael mengangkat tangan kanan.
 
-Tanda spiral muncul di kulitnya.
+Tanda spiral di kulitnya bereaksi lebih dulu dari kesadarannya.
 
-Tipis pada awalnya. Lalu terang. Garis-garisnya berputar dari pangkal ibu jari ke pergelangan, seperti luka lama yang tiba-tiba ingat bagaimana rasanya terbuka.
+Garis-garis gelap itu meminum panas dari udara, berputar dari pangkal ibu jari ke pergelangan seperti urat nadi yang mendadak terisi bara.
+
+*Tarikan (Draw)* terjadi paksa.
+
+Kael menghirup napas, paru-parunya seakan diisi pecahan es, sementara suhu bengkel turun drastis dalam radius setengah meter di sekitarnya. Udara mendistorsi cahaya.
 
 Tekanan Aether menghantam.
 
-Kael menarik napas dan menggeser tangannya ke samping.
+Kael tidak menahannya. Menahan berarti tulang dan pembuluh darahnya akan pecah. Ia hanya membiarkan energi itu lewat, menahan rasa sakit yang merobek bagian dalam lengannya, lalu mengubah arah dorongan itu ke samping.
 
-Bukan menahan.
+Sebuah *Pelepasan (Release)* mentah. Ambang batas Tahap Rekahan.
 
-Menahan berarti tubuhnya pecah.
+Vakum kinetik tercipta. Suara di dalam bengkel terisap mati selama setengah detik, sebelum meledak keluar dalam gelombang tekanan tak terlihat.
 
-Ia hanya mengubah arah.
-
-Sedikit.
-
-Cukup.
-
-Cahaya putih membelok.
-
-Rak besi di belakang Elio terangkat dan menghantam dinding. Kaca pecah. Paku, kait, dan serpihan arang beterbangan seperti hujan hitam. Tessa jatuh berlutut. Elio terlempar ke samping, berguling di lantai, lalu berhenti di dekat karung batu bara.
+Rak besi di belakang Elio terlempar menghantam dinding. Kaca pecah. Paku, kait, dan serpihan arang beterbangan seperti hujan peluru buta. Tessa jatuh berlutut, melindungi kepalanya. Elio terdorong ke samping, berguling di lantai berbatu, lalu berhenti di dekat karung batu bara.
 
 Hidup.
 
 Kael masih berdiri.
 
-Tangannya terasa seperti diisi bara dari dalam.
+Napasnya memburu. Lengannya terasa seperti dialiri timah mendidih, sementara pembuluh darah di punggung tangannya menghitam kaku—peringatan paling awal dari Sindrom Abu Darah.
 
-Ia menutup jari-jarinya, tetapi tanda spiral tidak langsung hilang.
+Ia menutup jari-jarinya kuat-kuat, menahan rasa ngilu, tetapi tanda spiral itu tidak langsung memudar.
 
-Ruangan menjadi sunyi.
+Ruangan menjadi sunyi, hanya menyisakan dering tajam di telinga.
 
-Tungku meredup.
+Tungku meredup paksa, apinya kehilangan bentuk.
 
-Asap putih menipis.
+Asap putih menipis, digantikan bau tajam tembaga dan ozon.
 
 Tessa merangkak ke arah Elio. “Elio!”
 
