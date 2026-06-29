@@ -6,9 +6,9 @@ Tidak ada yang perlu mengatakan dari mana asalnya. Emberwake tidak punya kereta 
 
 Kael melihatnya dari balik jendela rumah Zhorin.
 
-Darahnya bereaksi sebelum pikirannya sempat mengenali lambang itu.
+Residu Aether di dalam darahnya bereaksi sebelum matanya mengenali lambang itu.
 
-Tanda spiral di tangannya berdenyut sekali di balik kain pembalut.
+Urat di punggung tangannya mengeras sejenak seperti membatu—sisa Sindrom Abu Darah—sementara Tanda Spiral berdenyut pasif di balik kain pembalut.
 
 Zhorin berdiri di belakangnya.
 
@@ -158,7 +158,7 @@ Kain pembalut di tangan kanannya mulai hangat.
 
 Voss menatapnya tanpa terkejut.
 
-“Ah,” katanya pelan. “Kau pasti Kael.”
+Voss merendahkan suaranya. “Ah, kau pasti Kael.”
 
 Kael berhenti beberapa langkah dari Tessa dan Elio.
 
@@ -192,7 +192,7 @@ Untuk pertama kalinya, senyum Voss berubah. Bukan hilang. Hanya menjadi lebih ti
 
 Ser Caldris maju satu langkah.
 
-“Reader Voss,” katanya pelan. “Desa ini baru mengalami insiden. Pemeriksaan bisa dilakukan bertahap.”
+Ser Caldris mencondongkan badan sedikit. “Reader Voss. Desa ini baru mengalami insiden. Pemeriksaan bisa dilakukan bertahap.”
 
 Voss tidak menoleh. “Aku belum memintamu memberi nasihat, Ser Caldris.”
 
@@ -348,7 +348,7 @@ Karena Zhorin biasanya selalu bergerak lebih dulu.
 
 Kali ini pria itu hanya berdiri, menatapnya dengan wajah yang tidak lagi keras sepenuhnya.
 
-“Kalau kau menemuinya,” kata Zhorin pelan, “Tessa akan membayar harga yang tidak bisa kau bayar untuknya.”
+Zhorin memelankan suaranya, membuang semua ketegangan dari nadanya. “Kalau kau menemuinya, Tessa akan membayar harga yang tidak bisa kau bayar untuknya.”
 
 Kalimat itu tidak terdengar seperti ancaman.
 
@@ -364,8 +364,8 @@ Kael tidak kehilangan benda itu.
 
 Ia hanya kehilangan anak yang memberikannya.
 
-Malam itu, untuk pertama kalinya, Kael berharap Aether di dalam dirinya bisa membaca sesuatu selain kerusakan.
+Malam itu, untuk pertama kalinya, Kael berharap Aether—hukum murni yang hanya tahu cara merobek dan menekan realitas—bisa digunakan untuk memperbaiki sesuatu tanpa merusak yang lain.
 
-Ia ingin membaca jalan yang tidak menyakiti siapa pun.
+Namun yang ia rasakan di balik kulitnya hanyalah Tarikan yang sunyi, siap membakar.
 
 Tetapi yang ia rasakan hanya udara dingin, lumpur basah, dan suara roda kecil yang disiapkan diam-diam sebelum fajar.
