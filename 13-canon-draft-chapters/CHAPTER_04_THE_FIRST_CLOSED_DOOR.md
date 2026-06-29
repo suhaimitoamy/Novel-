@@ -112,4 +112,4 @@ Jari-jarinya menemukan Paku Bulan.
 
 Paku itu tetap kasar dan jelek. Ia tidak bisa melindunginya dari hujan. Ia tidak bisa membukakan pintu untuknya.
 
-Tetapi malam itu, saat Kael mulai berjalan kembali ke arah lumpur dan kegelapan, paku itu adalah satu-satunya hal yang menahannya agar tidak benar-benar membakar dunia yang baru saja menolaknya.
+Tetapi malam itu, saat Kael melangkah menjauh dari pintu yang terkunci dan kembali menembus hujan, paku dingin di tangannya itu menjadi satu-satunya hal yang membuktikan bahwa ia pernah punya tempat, sesaat sebelum cerita tentang dirinya menghancurkan semuanya.
