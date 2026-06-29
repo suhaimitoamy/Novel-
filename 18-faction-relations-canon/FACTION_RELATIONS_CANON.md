@@ -2,9 +2,9 @@
 
 ## Tujuan Dokumen
 
-Dokumen ini menetapkan **peta hubungan antar faksi utama** dalam *Kael Drayven: The Forsaken Heir*. Fungsinya bukan membuat daftar politik yang kaku, tetapi menjelaskan bagaimana kekuatan-kekuatan besar Zerath saling membaca, saling menggunakan, saling takut, dan saling menunggu celah.
+Dokumen ini menetapkan **peta hubungan antar faksi utama** dalam *Kael Drayven: The Forsaken Heir*. Fungsinya bukan membuat daftar politik yang kaku, tetapi menjelaskan bagaimana kekuatan-kekuatan besar Veyrath saling membaca, saling menggunakan, saling takut, dan saling menunggu celah.
 
-Karena dunia Zerath dibentuk oleh darah, Aether, Fragmen, sejarah yang dipotong, dan struktur resmi yang retak, maka konflik besar novel ini harus terasa seperti **jaringan tegangan**, bukan sekadar perang dua kubu.
+Karena dunia Veyrath dibentuk oleh darah, Aether, Fragmen, sejarah yang dipotong, dan struktur resmi yang retak, maka konflik besar novel ini harus terasa seperti **jaringan tegangan**, bukan sekadar perang dua kubu.
 
 Prinsip utamanya:
 
@@ -24,7 +24,7 @@ Untuk tahap canon sekarang, hubungan dunia dipusatkan pada **8 blok kekuatan uta
 3. **House Drayven and Blood Legitimacy Network**
 4. **The Eclipsed Covenant**
 5. **Fragment Seekers / Relic and Ruin Networks**
-6. **Imperial Powers of Zerath**
+6. **Imperial Powers of Veyrath**
 7. **Independent Grey Actors**
 8. **Kael and His Orbit**
 
@@ -98,7 +98,7 @@ Sebagian dari mereka netral, sebagian menjual informasi, sebagian fanatik, sebag
 
 ---
 
-## 6. Imperial Powers of Zerath
+## 6. Imperial Powers of Veyrath
 Ini adalah blok kekaisaran-kekaisaran besar sebagai struktur geopolitik.
 
 Mereka tidak bertindak sebagai satu kerajaan tunggal, tetapi sebagai lanskap kekuasaan yang saling:
@@ -448,4 +448,4 @@ NPC, kota, wilayah, dan orang biasa harus merasakan harga dari permainan kekuata
 
 # IX. Ringkasan Canon
 
-Dunia *Kael Drayven: The Forsaken Heir* digerakkan oleh jaringan tegangan antara struktur suci, birokrasi pencatatan, legitimasi darah, pemburu relik, kekaisaran-kekaisaran besar, aktor abu-abu, dan organisasi gerhana yang ingin mempercepat runtuhnya tatanan lama. Kael berdiri di tengah semua itu bukan sebagai pengamat, melainkan sebagai variabel yang mengganggu keseimbangan hampir semua pihak sekaligus. Dengan peta relasi ini, konflik dunia tidak jatuh menjadi perang hitam-putih, tetapi menjadi benturan sistem, makna, warisan, dan cara berbeda dalam membaca masa depan Zerath.
+Dunia *Kael Drayven: The Forsaken Heir* digerakkan oleh jaringan tegangan antara struktur suci, birokrasi pencatatan, legitimasi darah, pemburu relik, kekaisaran-kekaisaran besar, aktor abu-abu, dan organisasi gerhana yang ingin mempercepat runtuhnya tatanan lama. Kael berdiri di tengah semua itu bukan sebagai pengamat, melainkan sebagai variabel yang mengganggu keseimbangan hampir semua pihak sekaligus. Dengan peta relasi ini, konflik dunia tidak jatuh menjadi perang hitam-putih, tetapi menjadi benturan sistem, makna, warisan, dan cara berbeda dalam membaca masa depan Veyrath.

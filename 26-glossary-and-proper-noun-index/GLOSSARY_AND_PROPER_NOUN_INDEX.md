@@ -8,7 +8,7 @@ Dokumen ini bukan ensiklopedia lore penuh. Fungsinya lebih praktis:
 - membantu penulisan tetap konsisten,
 - mencegah istilah tumpang tindih,
 - memudahkan revisi dan pembacaan ulang,
-- dan menjaga agar kata-kata besar di dunia Zerath tetap punya fungsi jelas.
+- dan menjaga agar kata-kata besar di dunia Veyrath tetap punya fungsi jelas.
 
 ---
 
@@ -35,7 +35,7 @@ Tapi istilah canon pusat tetap harus satu agar repo tidak pecah.
 # II. Core Cosmology Terms
 
 ## Aether
-Medium dasar eksistensi di Zerath, sisa logika Primordial. Aether bukanlah "sihir", melainkan kekuatan fisik yang membakar tubuh fana jika diserap. Ia memiliki harga mutlak (Ash-Blood Syndrome) dan tahapan efek pada penggunanya.
+Medium dasar eksistensi di Veyrath, sisa logika Primordial. Aether bukanlah "sihir", melainkan kekuatan fisik yang membakar tubuh fana jika diserap. Ia memiliki harga mutlak (Ash-Blood Syndrome) dan tahapan efek pada penggunanya.
 
 **Status canon:** istilah energi utama dunia.
 
@@ -57,7 +57,7 @@ Sidik jari frekuensi Aether unik dari setiap pengguna yang digunakan Luminal Reg
 Cara Aether bergetar, merespons, menyatu, atau bertabrakan dengan tubuh, ruang, relik, darah, dan hukum dunia.
 
 ## Void
-Aspek ketiadaan, peluruhan, luka realitas, dan kehampaan yang berdiri berseberangan namun tetap terikat pada Aether dalam struktur dunia Zerath.
+Aspek ketiadaan, peluruhan, luka realitas, dan kehampaan yang berdiri berseberangan namun tetap terikat pada Aether dalam struktur dunia Veyrath.
 
 ## Fragmen
 Simpul hukum purba yang terpadatkan. Bukan sekadar benda kuat, tetapi pusat konvergensi makna, warisan, dan perubahan besar dunia.
@@ -72,7 +72,7 @@ Keadaan sinkronisasi tinggi antara tubuh, kehendak, dan Aether. Dalam jalur Kael
 
 # III. Primordial and Ontological Terms
 
-## Zerath
+## Veyrath
 Nama dunia utama tempat seluruh cerita berlangsung. Dunia yang lahir dari benturan primordial dan sejak awal membawa cacat di dalam fondasinya.
 
 ## Aelarion
@@ -82,13 +82,13 @@ Salah satu entitas primordial / nama besar yang terhubung ke sisi cahaya, ketera
 Salah satu entitas primordial yang terlibat dalam benturan awal pembentukan dunia.
 
 ## Malgorath
-Salah satu entitas primordial yang ikut melahirkan luka besar pada fondasi realitas Zerath.
+Salah satu entitas primordial yang ikut melahirkan luka besar pada fondasi realitas Veyrath.
 
 ## Malakar
 Ancaman ontologis besar yang naik menjadi lawan nyata pada fase akhir serial. Ia menyerang dasar keberadaan dan identitas, bukan hanya tubuh atau kekuasaan.
 
 ## Primordial Sundering
-Istilah untuk benturan awal entitas primordial yang melahirkan Zerath dalam bentuk cacatnya.
+Istilah untuk benturan awal entitas primordial yang melahirkan Veyrath dalam bentuk cacatnya.
 
 ---
 
@@ -164,7 +164,7 @@ Zaman cerita utama, saat sejarah yang ditahan terlalu lama mulai pecah dan menca
 # VII. Empire and Region Terms
 
 ## Twelve Empires / 12 Kekaisaran
-Blok geopolitik besar dunia Zerath. Tidak harus selalu bergerak serempak, tetapi bersama-sama membentuk lanskap kuasa dunia.
+Blok geopolitik besar dunia Veyrath. Tidak harus selalu bergerak serempak, tetapi bersama-sama membentuk lanskap kuasa dunia.
 
 ## Aelarion (Imperial / Symbolic Context)
 Dalam konteks wilayah dan tatanan resmi, nama ini juga terhubung ke pusat cahaya, keteraturan, dan legitimasi tinggi.
@@ -332,4 +332,4 @@ Mereka boleh bertahan sebagai ide arsip, eksperimen lama, atau kemungkinan spin-
 
 # XIII. Ringkasan Canon
 
-**GLOSSARY_AND_PROPER_NOUN_INDEX** adalah kamus kerja utama untuk menjaga konsistensi istilah, nama, gelar, dan konsep dunia dalam repo *Kael Drayven: The Forsaken Heir*. Dengan glossary ini, repo yang semakin besar tetap bisa dibaca dengan jernih, direvisi dengan aman, dan ditulis tanpa membuat istilah-istilah besarnya kehilangan fungsi. Ini adalah alat disiplin agar dunia Zerath tetap terasa hidup, bukan kabur oleh kata-kata besar yang terlalu banyak.
+**GLOSSARY_AND_PROPER_NOUN_INDEX** adalah kamus kerja utama untuk menjaga konsistensi istilah, nama, gelar, dan konsep dunia dalam repo *Kael Drayven: The Forsaken Heir*. Dengan glossary ini, repo yang semakin besar tetap bisa dibaca dengan jernih, direvisi dengan aman, dan ditulis tanpa membuat istilah-istilah besarnya kehilangan fungsi. Ini adalah alat disiplin agar dunia Veyrath tetap terasa hidup, bukan kabur oleh kata-kata besar yang terlalu banyak.

@@ -2,7 +2,7 @@
 
 ## Tujuan Dokumen
 
-Dokumen ini menetapkan **kronologi canon utama** untuk dunia Zerath. Fungsinya adalah mengikat worldbuilding dan alur ke dalam urutan sejarah yang jelas, agar semua unsur besar—Aether, Void, Fragmen, 12 kekaisaran, garis darah, dan zaman Kael—berdiri di atas struktur waktu yang sama.
+Dokumen ini menetapkan **kronologi canon utama** untuk dunia Veyrath. Fungsinya adalah mengikat worldbuilding dan alur ke dalam urutan sejarah yang jelas, agar semua unsur besar—Aether, Void, Fragmen, 12 kekaisaran, garis darah, dan zaman Kael—berdiri di atas struktur waktu yang sama.
 
 Prinsip utamanya:
 
@@ -14,7 +14,7 @@ Prinsip utamanya:
 
 # I. Bentuk Besar Kronologi
 
-Sejarah Zerath canon dibagi menjadi **8 era utama**:
+Sejarah Veyrath canon dibagi menjadi **8 era utama**:
 
 1. **The Primordial Sundering**
 2. **The Age of First Resonance**
@@ -42,10 +42,10 @@ Ini adalah **era paling awal**, sebelum sejarah ras, kerajaan, atau bahasa tertu
 ## Peristiwa utama
 - Aelarion, Zhorak, dan Malgorath berbenturan.
 - Benturan itu tidak melahirkan dunia yang murni, tetapi dunia yang sejak awal sudah membawa luka.
-- Aether dan Void mulai mengambil bentuk sebagai kondisi dasar realitas Zerath.
+- Aether dan Void mulai mengambil bentuk sebagai kondisi dasar realitas Veyrath.
 
 ## Dampak utama
-- Lahirnya Zerath sebagai dunia yang cacat namun hidup.
+- Lahirnya Veyrath sebagai dunia yang cacat namun hidup.
 - Dasar bagi semua hukum eksistensi dunia.
 - Jejak primordial tertanam di tanah, ruang, darah, dan inti realitas.
 
@@ -110,7 +110,7 @@ Era kebangkitan kekaisaran, struktur besar, dan klaim resmi terhadap dunia.
 - Sejarah resmi mulai ditulis oleh pihak yang cukup kuat untuk mengamankannya.
 
 ## Catatan canon
-Era ini adalah **fondasi dunia politik modern Zerath**. Banyak klaim “resmi” masa kini berakar dari penafsiran sejarah yang dibakukan pada periode ini.
+Era ini adalah **fondasi dunia politik modern Veyrath**. Banyak klaim “resmi” masa kini berakar dari penafsiran sejarah yang dibakukan pada periode ini.
 
 ---
 
@@ -132,7 +132,7 @@ Era perang besar, perebutan warisan, dan kerusakan mendalam pada tatanan dunia.
 - Mitos tentang “zaman abu,” “perang kehormatan terakhir,” atau “jatuhnya cahaya lama” berakar di sini.
 
 ## Catatan canon
-Ini adalah era yang harus memberi bobot trauma kolektif pada Zerath. Dunia modern tidak lahir damai; ia lahir dari puing-puing perang yang terlalu besar untuk diingat utuh.
+Ini adalah era yang harus memberi bobot trauma kolektif pada Veyrath. Dunia modern tidak lahir damai; ia lahir dari puing-puing perang yang terlalu besar untuk diingat utuh.
 
 ---
 
@@ -217,7 +217,7 @@ Era ini bukan hanya “masa Kael hidup.” Ini adalah era ketika sejarah yang se
 
 Untuk pegangan cepat, urutan canon dunia adalah:
 
-1. **Benturan primordial** melahirkan Zerath yang cacat.
+1. **Benturan primordial** melahirkan Veyrath yang cacat.
 2. **Aether dan Void** mengambil bentuk sebagai kondisi dasar realitas.
 3. **Fragmen** lahir sebagai simpul hukum purba.
 4. **Komunitas, ras, dan garis darah awal** tumbuh di sekitar resonansi dunia.
@@ -262,4 +262,4 @@ Dokumen ini mengikat dan mendukung:
 
 # XIII. Ringkasan Canon
 
-Sejarah canon Zerath bergerak dari benturan primordial menuju lahirnya dunia yang cacat, dari lahirnya Fragmen dan garis darah tua menuju kebangkitan kekaisaran, lalu ke perang besar, stabilitas suci yang dipaksakan, dan retakan halus yang akhirnya memuncak pada zaman Kael. Dengan timeline ini, worldbuilding dan alur tidak lagi hanya berdiri sebagai gagasan besar, tetapi sebagai sejarah yang punya urutan, bobot, dan sebab-akibat yang jelas. Kael tidak muncul di dunia kosong; ia lahir pada titik ketika seluruh sejarah yang ditahan terlalu lama akhirnya mulai pecah.
+Sejarah canon Veyrath bergerak dari benturan primordial menuju lahirnya dunia yang cacat, dari lahirnya Fragmen dan garis darah tua menuju kebangkitan kekaisaran, lalu ke perang besar, stabilitas suci yang dipaksakan, dan retakan halus yang akhirnya memuncak pada zaman Kael. Dengan timeline ini, worldbuilding dan alur tidak lagi hanya berdiri sebagai gagasan besar, tetapi sebagai sejarah yang punya urutan, bobot, dan sebab-akibat yang jelas. Kael tidak muncul di dunia kosong; ia lahir pada titik ketika seluruh sejarah yang ditahan terlalu lama akhirnya mulai pecah.

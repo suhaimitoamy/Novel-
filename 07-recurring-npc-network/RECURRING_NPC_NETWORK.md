@@ -2,7 +2,7 @@
 
 ## Tujuan Dokumen
 
-Dokumen ini menetapkan fondasi **Recurring NPC Network** untuk *Kael Drayven: The Forsaken Heir*. Tujuannya adalah membuat Zerath terasa hidup melalui tokoh-tokoh kecil dan menengah yang terus berulang, punya tujuan sendiri, dan meninggalkan bekas pada pembaca walau bukan bagian dari cast inti.
+Dokumen ini menetapkan fondasi **Recurring NPC Network** untuk *Kael Drayven: The Forsaken Heir*. Tujuannya adalah membuat Veyrath terasa hidup melalui tokoh-tokoh kecil dan menengah yang terus berulang, punya tujuan sendiri, dan meninggalkan bekas pada pembaca walau bukan bagian dari cast inti.
 
 Prinsip utamanya:
 
@@ -261,4 +261,4 @@ Tapi untuk canon inti, cukup simpan prinsip, arketipe, dan NPC jangkar dulu.
 
 # IX. Ringkasan Canon
 
-Recurring NPC Network adalah fondasi yang membuat Zerath terasa dihuni, bukan sekadar dipetakan. Melalui para pemilik penginapan, pandai besi, anak pengungsi, penjaga kuil kecil, kurir rumor, dan penjaga makam, cerita dapat terus kembali pada manusia-manusia biasa yang menanggung harga dari perang, Aether, warisan, dan kehancuran dunia. Dalam serial panjang, merekalah yang menjaga agar dunia tetap punya denyut kehidupan di luar darah bangsawan, organisasi elit, dan pertarungan besar.
+Recurring NPC Network adalah fondasi yang membuat Veyrath terasa dihuni, bukan sekadar dipetakan. Melalui para pemilik penginapan, pandai besi, anak pengungsi, penjaga kuil kecil, kurir rumor, dan penjaga makam, cerita dapat terus kembali pada manusia-manusia biasa yang menanggung harga dari perang, Aether, warisan, dan kehancuran dunia. Dalam serial panjang, merekalah yang menjaga agar dunia tetap punya denyut kehidupan di luar darah bangsawan, organisasi elit, dan pertarungan besar.

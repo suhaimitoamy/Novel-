@@ -36,7 +36,7 @@ Prinsip desain roster ini:
 - **Asal:** Tidak diketahui secara pasti. Rumor menyebut ia pernah berasal dari struktur pengetahuan tertinggi dunia lama.
 - **Peran dalam Covenant:** Perumus visi besar dan pemegang arsitektur gerakan.
 - **Tema:** Pembongkaran struktur, logika ekstrem, dunia sebagai rancangan yang cacat.
-- **Luka utama:** Menyaksikan bahwa seluruh sistem suci dunia dibangun untuk mempertahankan cacat awal Zerath, bukan menyembuhkannya.
+- **Luka utama:** Menyaksikan bahwa seluruh sistem suci dunia dibangun untuk mempertahankan cacat awal Veyrath, bukan menyembuhkannya.
 - **Cara pandang:** Dunia tidak perlu “diselamatkan”; dunia perlu dibongkar sampai fondasi terdalamnya terlihat.
 - **Hubungan dengan Kael:** Melihat Kael sebagai simpul hidup yang tidak bisa diprediksi penuh. Ia tidak ingin menghancurkan Kael terburu-buru, karena Kael bisa menjadi alat paling penting dalam penulisan ulang dunia.
 - **Catatan naratif:** Sosok ini harus dijaga tetap misterius dan jarang tampil langsung.
@@ -199,4 +199,4 @@ Ia terlalu besar dan terlalu tua untuk menjadi sekadar satu anggota. Posisi terb
 
 ## Catatan Penutup
 
-Roster ini dirancang agar The Eclipsed Covenant terasa seperti organisasi yang benar-benar bisa menopang serial panjang: tiap kursi punya identitas, luka, ideologi, dan fungsi naratif yang berbeda. Mereka tidak dibangun sebagai “anak buah bos”, tetapi sebagai individu-individu yang masing-masing percaya bahwa mereka lebih memahami apa yang dibutuhkan Zerath daripada dunia lama yang sedang sekarat.
+Roster ini dirancang agar The Eclipsed Covenant terasa seperti organisasi yang benar-benar bisa menopang serial panjang: tiap kursi punya identitas, luka, ideologi, dan fungsi naratif yang berbeda. Mereka tidak dibangun sebagai “anak buah bos”, tetapi sebagai individu-individu yang masing-masing percaya bahwa mereka lebih memahami apa yang dibutuhkan Veyrath daripada dunia lama yang sedang sekarat.

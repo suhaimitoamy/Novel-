@@ -2,7 +2,7 @@
 
 ## Tujuan Dokumen
 
-Dokumen ini menetapkan wajah naratif bagi **12 kekaisaran besar Zerath**. Tujuannya bukan menjadikan setiap wilayah sebagai lore dump, tetapi memberi tiap kekaisaran:
+Dokumen ini menetapkan wajah naratif bagi **12 kekaisaran besar Veyrath**. Tujuannya bukan menjadikan setiap wilayah sebagai lore dump, tetapi memberi tiap kekaisaran:
 
 - fungsi naratif,
 - warna budaya,
@@ -32,7 +32,7 @@ Dengan prinsip ini, kekaisaran tidak menjadi sekadar peta, tetapi ruang hidup ya
 
 ---
 
-# II. Dua Belas Kekaisaran Zerath
+# II. Dua Belas Kekaisaran Veyrath
 
 ## 1. Aelarion — The Luminous Dominion
 **Warna utama:** cahaya, hukum, warisan, kemurnian resmi.
@@ -82,7 +82,7 @@ Karag Thürm melihat Aether sebagai sesuatu yang harus diikat ke bentuk: rune, l
 Mereka membangun kejayaan lewat kerja, pengorbanan, dan disiplin, tetapi sering mengorbankan tubuh dan klan demi “stabilitas.”
 
 **Fungsi dalam cerita:**
-Menjadi wajah peradaban yang praktis, keras, dan sangat nyata. Wilayah ini memberi bobot fisik dan sosial pada dunia, serta menyeimbangkan lapisan mistik Zerath.
+Menjadi wajah peradaban yang praktis, keras, dan sangat nyata. Wilayah ini memberi bobot fisik dan sosial pada dunia, serta menyeimbangkan lapisan mistik Veyrath.
 
 **Wajah utama:**
 - **Tarran of the Forge** — sisi manusia, praktis, dan setia dari Karag Thürm.
@@ -306,4 +306,4 @@ Empire Cast Canon hanya memegang wajah dan fungsi, bukan seluruh ensiklopedia wi
 
 # V. Ringkasan Empire Cast Canon
 
-Dua belas kekaisaran Zerath adalah struktur besar yang membuat dunia terasa hidup, luas, dan bertingkat. Dalam canon utama, mereka tidak dipakai sebagai peta kosong, tetapi sebagai ruang hidup dengan warna budaya, hubungan khas terhadap Aether, luka sosial masing-masing, dan wajah-wajah tokoh yang memberi identitas. Dengan pendekatan ini, Zerath dapat terasa sebesar serial panjang, tetapi tetap terkunci pada alur utama Kael dan karakter-karakter yang benar-benar penting.
+Dua belas kekaisaran Veyrath adalah struktur besar yang membuat dunia terasa hidup, luas, dan bertingkat. Dalam canon utama, mereka tidak dipakai sebagai peta kosong, tetapi sebagai ruang hidup dengan warna budaya, hubungan khas terhadap Aether, luka sosial masing-masing, dan wajah-wajah tokoh yang memberi identitas. Dengan pendekatan ini, Veyrath dapat terasa sebesar serial panjang, tetapi tetap terkunci pada alur utama Kael dan karakter-karakter yang benar-benar penting.

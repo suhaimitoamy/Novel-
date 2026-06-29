@@ -24,13 +24,13 @@ Nama ini lahir dari dua gagasan utama:
 - **Eclipsed** — sesuatu yang tertutup, digelapkan, atau dipaksa berada di bawah bayang-bayang.
 - **Covenant** — perjanjian tua, sumpah bersama, atau ikatan yang tidak dibangun atas persahabatan, melainkan atas tujuan yang lebih besar dari individu.
 
-Nama ini cocok dengan peran organisasi sebagai kelompok yang percaya bahwa dunia Zerath hidup di bawah cahaya palsu, dan bahwa tatanan lama hanya bisa dipatahkan jika “matahari suci” dunia itu digelapkan terlebih dahulu.
+Nama ini cocok dengan peran organisasi sebagai kelompok yang percaya bahwa dunia Veyrath hidup di bawah cahaya palsu, dan bahwa tatanan lama hanya bisa dipatahkan jika “matahari suci” dunia itu digelapkan terlebih dahulu.
 
 ---
 
 # II. Fungsi Organisasi dalam Cerita
 
-The Eclipsed Covenant adalah organisasi elit yang bergerak di balik perang, ritual, kerusuhan politik, dan kebangkitan Fragmen. Mereka bukan tentara terbuka dan bukan juga sekte massal. Mereka adalah **kumpulan individu terpilih dan berbahaya** yang masing-masing memegang agenda pribadi, tetapi disatukan oleh keyakinan bahwa Zerath tidak bisa diselamatkan dengan mempertahankan struktur lamanya.
+The Eclipsed Covenant adalah organisasi elit yang bergerak di balik perang, ritual, kerusuhan politik, dan kebangkitan Fragmen. Mereka bukan tentara terbuka dan bukan juga sekte massal. Mereka adalah **kumpulan individu terpilih dan berbahaya** yang masing-masing memegang agenda pribadi, tetapi disatukan oleh keyakinan bahwa Veyrath tidak bisa diselamatkan dengan mempertahankan struktur lamanya.
 
 Fungsi naratif organisasi ini:
 
@@ -49,14 +49,14 @@ Fungsi naratif organisasi ini:
 
 The Eclipsed Covenant percaya pada tiga hal:
 
-## 1. Zerath lahir dalam keadaan cacat
+## 1. Veyrath lahir dalam keadaan cacat
 Dunia ini tidak pernah murni. Sejak benturan primordial, hukum dunia sudah rusak dari akarnya. Karena itu, semua upaya menjaga “keseimbangan” lama hanyalah cara menunda pembusukan.
 
 ## 2. Warisan adalah penjara
 Garis darah, takdir, institusi suci, kekaisaran, dan sistem pewaris hanyalah alat untuk memaksa generasi baru mengulang fungsi generasi lama.
 
 ## 3. Dunia baru hanya lahir setelah gerhana
-Mereka percaya cahaya resmi dunia—dewa, hukum suci, legitimasi kekaisaran, sistem pahlawan—harus terlebih dahulu digelapkan. Hanya melalui fase gerhana itulah Zerath dapat dipaksa memasuki bentuk yang baru.
+Mereka percaya cahaya resmi dunia—dewa, hukum suci, legitimasi kekaisaran, sistem pahlawan—harus terlebih dahulu digelapkan. Hanya melalui fase gerhana itulah Veyrath dapat dipaksa memasuki bentuk yang baru.
 
 Penting: tidak semua anggota sepakat pada rincian akhirnya. Mereka dipersatukan oleh keyakinan bahwa dunia lama harus retak, tetapi tidak selalu oleh gambaran masa depan yang sama.
 
@@ -96,7 +96,7 @@ Jumlah ini dipilih karena:
 ## 2. Pembagian Struktur
 
 ### The Veiled Architect
-Pemimpin tertinggi. Sosok ini jarang tampil langsung dan lebih sering hadir lewat perintah, pengaruh, atau jejak. Ia bukan semata-mata “bos akhir,” tetapi otak yang melihat Zerath sebagai struktur yang harus dibongkar dan dirakit ulang.
+Pemimpin tertinggi. Sosok ini jarang tampil langsung dan lebih sering hadir lewat perintah, pengaruh, atau jejak. Ia bukan semata-mata “bos akhir,” tetapi otak yang melihat Veyrath sebagai struktur yang harus dibongkar dan dirakit ulang.
 
 ### The First Hand
 Eksekutor kehendak pusat organisasi. Kursi ini biasanya dipegang oleh anggota paling stabil, paling loyal pada visi besar, atau paling berbahaya dalam tugas lapangan.
@@ -118,7 +118,7 @@ Ia harus memenuhi satu atau lebih syarat berikut:
 - berasal dari posisi penting namun memusuhi legitimasi lama,
 - atau memiliki luka yang cukup besar untuk membuatnya tidak bisa kembali hidup normal di dunia resmi.
 
-Dengan kata lain, organisasi ini diisi bukan oleh monster acak, tetapi oleh orang-orang yang **pernah bersinggungan langsung dengan kebusukan struktur Zerath**.
+Dengan kata lain, organisasi ini diisi bukan oleh monster acak, tetapi oleh orang-orang yang **pernah bersinggungan langsung dengan kebusukan struktur Veyrath**.
 
 ---
 
@@ -137,7 +137,7 @@ Posisi ditentukan oleh kegunaan terhadap visi besar, bukan hanya daya tempur.
 Ini organisasi yang licik. Intrik boleh terjadi. Tetapi pengkhianatan hanya dianggap “bernilai” jika menghasilkan kemajuan bagi tujuan besar. Pengkhianatan kecil demi ego dipandang sebagai kelemahan.
 
 ## 5. Kael adalah pengecualian terhadap banyak aturan
-Begitu Kael terlibat, banyak anggota bisa bertindak di luar pola normal, karena seluruh organisasi tahu bahwa Kael berkaitan langsung dengan masa depan Zerath.
+Begitu Kael terlibat, banyak anggota bisa bertindak di luar pola normal, karena seluruh organisasi tahu bahwa Kael berkaitan langsung dengan masa depan Veyrath.
 
 ---
 
@@ -197,7 +197,7 @@ Untuk tahap canon sekarang, kursi-kursi ini dikunci dalam fungsi, bukan nama fin
 Saat anggota-anggota organisasi ini nanti dibuat satu per satu, semua harus mengikuti prinsip berikut:
 
 ## 1. Berasal dari latar yang berbeda
-Mereka idealnya mewakili wilayah, ras, atau struktur sosial yang berbeda di Zerath.
+Mereka idealnya mewakili wilayah, ras, atau struktur sosial yang berbeda di Veyrath.
 
 ## 2. Punya luka utama yang kuat
 Setiap anggota harus punya alasan personal yang masuk akal kenapa ia memusuhi atau meninggalkan dunia lama.
@@ -261,4 +261,4 @@ Sebagian boleh mati, sebagian boleh pindah sisi, sebagian tetap ambigu, dan seba
 
 # XII. Ringkasan Canon
 
-**The Eclipsed Covenant** adalah organisasi elit antagonis utama dalam *Kael Drayven: The Forsaken Heir*. Mereka bukan pasukan biasa, melainkan sembilan kursi berbahaya yang dipersatukan oleh keyakinan bahwa Zerath lahir dalam keadaan cacat dan tidak bisa diselamatkan dengan mempertahankan tatanan lamanya. Organisasi ini menjadi wajah konflik besar di lapangan, tempat berbagai ideologi, luka, warisan, dan ambisi saling bertabrakan. Bagi mereka, Kael bukan sekadar musuh, melainkan simpul hidup yang bisa menjadi kunci pembongkaran dunia lama—atau ancaman terbesar bagi lahirnya gerhana yang mereka dambakan.
+**The Eclipsed Covenant** adalah organisasi elit antagonis utama dalam *Kael Drayven: The Forsaken Heir*. Mereka bukan pasukan biasa, melainkan sembilan kursi berbahaya yang dipersatukan oleh keyakinan bahwa Veyrath lahir dalam keadaan cacat dan tidak bisa diselamatkan dengan mempertahankan tatanan lamanya. Organisasi ini menjadi wajah konflik besar di lapangan, tempat berbagai ideologi, luka, warisan, dan ambisi saling bertabrakan. Bagi mereka, Kael bukan sekadar musuh, melainkan simpul hidup yang bisa menjadi kunci pembongkaran dunia lama—atau ancaman terbesar bagi lahirnya gerhana yang mereka dambakan.

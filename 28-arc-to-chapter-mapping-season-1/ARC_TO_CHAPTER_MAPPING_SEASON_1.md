@@ -52,7 +52,7 @@ Fungsi:
 **Chapter 7–10**
 
 Fungsi:
-- membuka Zerath dari sisi rakyat kecil,
+- membuka Veyrath dari sisi rakyat kecil,
 - membangun recurring NPC dan dunia hidup,
 - serta memperluas konsekuensi hidup Kael di luar dirinya sendiri.
 

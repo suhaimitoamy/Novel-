@@ -158,8 +158,6 @@ File utama:
 
 # Fokus Pengerjaan Berikutnya
 
-1. Menyesuaikan draft Chapter 1–3 dengan Paku Bulan, Elio, Tessa, dan Zhorin.
-2. Menulis ulang Chapter 1 agar pembaca melihat Elio percaya pada Kael sebelum insiden.
-3. Menulis ulang Chapter 2 agar Registry menekan desa secara halus.
-4. Menulis ulang Chapter 3 agar Kael kehilangan kesempatan berpamitan.
-5. Menyiapkan Chapter 4 sebagai adegan Ralen dan pintu pertama yang tertutup.
+1. **PRODUKSI**: Melanjutkan penulisan draf canon dengan Bab 4 (Pintu Pertama yang Tertutup).
+2. **SINKRONISASI LORE**: Memastikan nama dunia/benua diseragamkan menjadi "Veyrath".
+3. Melanjutkan struktur cerita dari *Season 1 Arc Breakdown*.

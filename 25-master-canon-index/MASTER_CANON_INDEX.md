@@ -23,7 +23,7 @@ Berisi fondasi protagonis dan orbit tokoh inti.
 - `02-cast-core-canon/CAST_CORE_CANON.md`
 
 ## 2. Core World Zone
-Berisi fondasi metafisika, sejarah dunia, dan wajah geopolitik Zerath.
+Berisi fondasi metafisika, sejarah dunia, dan wajah geopolitik Veyrath.
 
 - `03-world-core-canon/WORLD_CORE_CANON.md`
 - `06-empire-cast-canon/EMPIRE_CAST_CANON.md`
@@ -45,7 +45,7 @@ Berisi musuh utama, blok kekuatan, dan arsitektur konflik besar dunia.
 - `18-faction-relations-canon/FACTION_RELATIONS_CANON.md`
 
 ## 5. Living World Zone
-Berisi lapisan dunia yang menjaga Zerath tetap terasa dihuni, bukan hanya dipetakan.
+Berisi lapisan dunia yang menjaga Veyrath tetap terasa dihuni, bukan hanya dipetakan.
 
 - `07-recurring-npc-network/RECURRING_NPC_NETWORK.md`
 
@@ -239,7 +239,7 @@ Saat ini bagian yang dianggap **sudah terkunci kuat** secara arah besar adalah:
 
 - identitas inti Kael
 - istilah `Aether`
-- garis besar dunia Zerath
+- garis besar dunia Veyrath
 - timeline sejarah besar
 - struktur season 1–8
 - revelation order umum
