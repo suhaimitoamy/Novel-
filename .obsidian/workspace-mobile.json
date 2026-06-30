@@ -11,10 +11,14 @@
             "id": "877c16654ef1a063",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {},
-              "icon": "lucide-git-fork",
-              "title": "Tampilan grafik"
+              "type": "markdown",
+              "state": {
+                "file": "Toolkit_Dunia_Zerath_Notion.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Toolkit_Dunia_Zerath_Notion"
             }
           }
         ]
@@ -163,9 +167,10 @@
   },
   "active": "877c16654ef1a063",
   "lastOpenFiles": [
-    "Kael_Style_Guide.md",
-    "00_INDEX_WEBTOON.md",
     "Toolkit_Dunia_Zerath_Notion.md",
+    "Kael_Style_Guide.md",
+    "NASKAH_WEBTOON_LENGKAP.txt",
+    "00_INDEX_WEBTOON.md",
     "split.py",
     "raw_script.txt",
     "EPISODE_10_PULAU_YANG_TERBELAH.md",
@@ -194,7 +199,6 @@
     "02_Webtoon_Script/EPISODE_01_API_DI_DALAM_DARAH.md",
     "02_Webtoon_Script/split.py",
     "02_Webtoon_Script/raw_script.txt",
-    "02_Webtoon_Script",
     "README.md"
   ]
 }
