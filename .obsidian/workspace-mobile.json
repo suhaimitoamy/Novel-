@@ -1,0 +1,168 @@
+{
+  "main": {
+    "id": "2d38487397979713",
+    "type": "split",
+    "children": [
+      {
+        "id": "96f27c381817e87c",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "877c16654ef1a063",
+            "type": "leaf",
+            "state": {
+              "type": "graph",
+              "state": {},
+              "icon": "lucide-git-fork",
+              "title": "Tampilan grafik"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "fbd6ba6fe74dfc85",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "50b6ec52dfaf1351",
+        "type": "leaf",
+        "state": {
+          "type": "file-explorer",
+          "state": {
+            "sortOrder": "alphabetical",
+            "autoReveal": false
+          },
+          "icon": "lucide-folder-closed",
+          "title": "Penjelajah berkas"
+        }
+      },
+      {
+        "id": "0d886a9c9a0cf46f",
+        "type": "leaf",
+        "state": {
+          "type": "search",
+          "state": {
+            "query": "",
+            "matchingCase": false,
+            "explainSearch": false,
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical"
+          },
+          "icon": "lucide-search",
+          "title": "Penelusuran"
+        }
+      },
+      {
+        "id": "4facf5e0342eca05",
+        "type": "leaf",
+        "state": {
+          "type": "tag",
+          "state": {
+            "sortOrder": "frequency",
+            "useHierarchy": true,
+            "showSearch": false,
+            "searchQuery": ""
+          },
+          "icon": "lucide-tags",
+          "title": "Tag"
+        }
+      },
+      {
+        "id": "aae293117e197499",
+        "type": "leaf",
+        "state": {
+          "type": "all-properties",
+          "state": {
+            "sortOrder": "frequency",
+            "showSearch": false,
+            "searchQuery": ""
+          },
+          "icon": "lucide-archive",
+          "title": "Semua properti"
+        }
+      },
+      {
+        "id": "88aca7845f464364",
+        "type": "leaf",
+        "state": {
+          "type": "bookmarks",
+          "state": {},
+          "icon": "lucide-bookmark",
+          "title": "Penanda"
+        }
+      }
+    ],
+    "currentTab": 0
+  },
+  "right": {
+    "id": "5d21a6ef22bf5d96",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "15d6e4f76302cf70",
+        "type": "leaf",
+        "state": {
+          "type": "backlink",
+          "state": {
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical",
+            "showSearch": false,
+            "searchQuery": "",
+            "backlinkCollapsed": false,
+            "unlinkedCollapsed": true
+          },
+          "icon": "links-coming-in",
+          "title": "Backlink"
+        }
+      },
+      {
+        "id": "6cabb374c1f540a1",
+        "type": "leaf",
+        "state": {
+          "type": "outgoing-link",
+          "state": {
+            "linksCollapsed": false,
+            "unlinkedCollapsed": true
+          },
+          "icon": "links-going-out",
+          "title": "Tautan Keluar"
+        }
+      },
+      {
+        "id": "1c9b4273868b74ba",
+        "type": "leaf",
+        "state": {
+          "type": "outline",
+          "state": {
+            "followCursor": false,
+            "showSearch": false,
+            "searchQuery": ""
+          },
+          "icon": "lucide-list",
+          "title": "Kerangka"
+        }
+      }
+    ],
+    "currentTab": 0
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Buka peralih cepat": false,
+      "graph:Buka tampilan grafik": false,
+      "canvas:Buat kanvas baru": false,
+      "daily-notes:Buka catatan hari ini": false,
+      "templates:Masukkan template": false,
+      "command-palette:Buka palet perintah": false,
+      "bases:Buat basis baru": false
+    }
+  },
+  "active": "877c16654ef1a063",
+  "lastOpenFiles": [
+    "README.md"
+  ]
+}
