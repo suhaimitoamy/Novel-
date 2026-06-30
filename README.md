@@ -1,178 +1,100 @@
-# Kael Drayven — Novel Project Reset
+# KAEL: FURY OF ZERATH — Main Canon
 
-Repository ini adalah rumah kerja utama untuk membangun ulang canon novel **Kael Drayven** dari fondasi sampai naskah siap edar.
+Repository ini adalah rumah kerja utama untuk novel serial panjang **KAEL: FURY OF ZERATH**.
 
-Status lama repo: **bahan mentah**.
+Status repo sekarang: **RESTORE CANON KE FURY OF ZERATH**.
 
-Status baru repo: **reset canon tahap 3**.
-
----
-
-# Arah Utama Baru
-
-Kael tidak dimulai sebagai pewaris agung.
-
-Kael dimulai sebagai pemuda tanpa catatan resmi dari desa kecil Emberwake di Benua Veyrath.
-
-Ia ingin hidup biasa, tetapi kemampuannya membaca Aether membuat orang-orang di sekitarnya menjaga jarak.
-
-Luka pembuka bukan perang besar, melainkan benda kecil:
-
-> **Paku Bulan** — paku bengkok dari Elio yang menjadi bukti bahwa Kael pernah hampir dipercaya.
-
-Setelah insiden tungku di bengkel Tessa, Elio selamat tetapi hubungan mereka berubah. Tessa mengirim Elio pergi sebelum tekanan Registry membesar, dan Zhorin tidak memberi Kael kesempatan berpamitan.
-
-Dari luka itu, nama Kael mulai bergerak lewat Jaringan Kabar Angin.
-
-Cerita tentang dirinya menjadi lebih cepat daripada kebenaran.
+Arah Veyrath / Paku Bulan / Registry / Emberwake dianggap **alternate reset draft**, bukan canon utama serial panjang.
 
 ---
 
-# Fokus Kreatif
+# Arah Utama Canon
 
-1. Emosi dulu, lore belakangan.
-2. Kael harus terasa manusia sebelum terasa besar.
-3. Paku Bulan menjadi simbol luka awal.
-4. Emberwake menjadi hampir-rumah yang hilang.
-5. Veyrath dibuka lewat desa, jalan, rumah singgah, catatan, dan kabar angin.
-6. Aether terasa lewat tubuh, benda rusak, tanda spiral, dan konsekuensi.
-7. Luminal Registry menjadi tekanan resmi.
-8. Jaringan Kabar Angin menjadi tekanan sosial.
-9. Ralen menjadi bukti awal bahwa rumor punya akibat nyata.
-10. Konflik besar disimpan untuk fase lanjut.
+Kael Drayven adalah anomali di dunia **Zerath**.
 
----
+Ia berada di luar sistem pahlawan, lalu terseret ke konflik besar karena **Fragment**, **Ragnarok Pulse**, **Furyborn**, Void, dan warisan primordial dunia.
 
-# Canon Utama Saat Ini
+Cerita utama bergerak dari Kael sebagai yang tidak dipanggil, lalu naik ke konflik Fragmen, kekaisaran, sistem pahlawan, Voidmaker, para entitas, realitas Zerath, dan dunia baru.
 
-## 01-kael-canon/
+Prinsip utama:
 
-Fondasi karakter Kael.
-
-File utama:
-
-- `KAEL_CANON.md`
-
-## 02-cast-core-canon/
-
-Struktur cast reset.
-
-File utama:
-
-- `CAST_CORE_CANON.md`
-
-## 03-world-core-canon/
-
-Fondasi Benua Veyrath.
-
-File utama:
-
-- `WORLD_CORE_CANON.md`
-
-## 04-alur-utama-canon/
-
-Arah besar alur utama.
-
-File utama:
-
-- `ALUR_UTAMA_CANON.md`
-
-## 08-volume-season-structure/
-
-Struktur season reset.
-
-File utama:
-
-- `VOLUME_SEASON_STRUCTURE.md`
-
-## 10-story-risks-and-fixes/
-
-Risiko dan perbaikan cerita.
-
-File utama:
-
-- `STORY_RISKS_AND_FIXES.md`
-
-## 11-season-1-arc-breakdown/
-
-Breakdown Season 1.
-
-File utama:
-
-- `SEASON_1_ARC_BREAKDOWN.md`
-
-## 15-revelation-order/
-
-Urutan pengungkapan rahasia.
-
-File utama:
-
-- `REVELATION_ORDER.md`
-
-## 30-power-system-canon/
-
-Mekanika, batasan, dan harga dari kekuatan dunia.
-
-File utama:
-
-- `AETHER_SYSTEM_AND_PROGRESSION.md`
-
-## Style Guide (Root)
-
-Aturan mutlak penulisan dan standar gaya bahasa.
-
-File utama:
-
-- `STYLE_GUIDE.md`
+> Kael bukan pahlawan yang dipilih dunia. Kael adalah anomali yang dipaksa menentukan jalannya sendiri.
 
 ---
 
-# Istilah Canon Baru
+# Fondasi Worldbuilding Canon
 
-- **Benua Veyrath** — daratan utama cerita.
-- **Emberwake** — desa pembuka dan luka awal Kael.
-- **Paku Bulan** — paku bengkok pemberian Elio, simbol bahwa Kael pernah hampir dipercaya.
-- **Aether** — medium halus yang terasa sebagai tekanan, pola, dan kerusakan.
-- **Tanda Spiral** — tanda di tangan Kael yang menjadi bahan kabar angin.
-- **Luminal Registry** — lembaga pencatat garis darah dan orang tanpa catatan.
-- **Jaringan Kabar Angin** — jaringan longgar penyebar cerita, gosip, pamflet, dan rumor.
-- **Pembawa Angin** — orang-orang yang membawa, membumbui, atau menjual kabar.
-- **Ralen** — penjaga kandang yang menutup pintu karena percaya kabar tentang Anak Spiral.
+## Dunia
+
+- Nama dunia utama: **Zerath**.
+- Zerath lahir dari Perang Primordial setelah keseimbangan Tiga Wujud Pertama pecah.
+- Tiga Wujud Pertama:
+  1. **Aelarion** — Cahaya dan sihir.
+  2. **Zhorak** — Bumi dan api inti.
+  3. **Malgorath** — Kegelapan dan bayangan.
+- Sisa kekuatan mereka menjadi **Dua Belas Fragmen Zerath**.
+- Fragmen menjadi sumber peradaban, sistem, kekaisaran, dan konflik besar.
+
+## Kekuatan Utama
+
+- **Fragment** — serpihan kekuatan primordial yang memilih, menguji, atau mengubah wadahnya.
+- **Ragnarok Pulse** — kekuatan terlarang Kael yang berada di luar sistem normal Zerath.
+- **Furyborn** — pengguna kekuatan Fury yang berisiko kehilangan identitas.
+- **Void** — kekuatan luar/antara realitas yang mengganggu struktur dunia.
+- **Sistem Pahlawan** — struktur takdir buatan yang menentukan siapa yang diakui dan siapa yang dianggap anomali.
 
 ---
 
-# Urutan Baca Disarankan
+# Karakter Canon Utama
 
-1. `01-kael-canon/KAEL_CANON.md`
-2. `03-world-core-canon/WORLD_CORE_CANON.md`
-3. `02-cast-core-canon/CAST_CORE_CANON.md`
-4. `04-alur-utama-canon/ALUR_UTAMA_CANON.md`
+- **Kael Drayven** — tokoh utama; anomali, pemegang Ragnarok Pulse, pusat konflik antara takdir dan pilihan.
+- **Sylvara** — partner awal Kael; elf pemanah/rune user yang menolong Kael dan menjadi jangkar emosional serta taktis.
+- **Rowan** — rival/manipulator awal; pengguna Fragment rusak, cermin gelap bagi Kael.
+- **Zireth** — sekutu teknis/magitek; membantu membaca sistem, Fragment, dan ancaman dunia.
+- **Melkisha** — kepala/pemandu akademi gelap Vorth Aereth.
+- **Voidmaker** — entitas besar yang terkait dengan asal Ragnarok Pulse.
+- **Aelarion, Zhorak, Malgorath** — entitas primordial yang menjadi akar konflik kosmik Zerath.
+
+---
+
+# Roadmap Serial Utama
+
+Roadmap canon saat ini memakai **20 Arc / Episode 001–585** sebagai tulang punggung utama.
+
+| Arc | Episode | Judul |
+|---:|---:|---|
+| 01 | 001–015 | Yang Tak Dipanggil |
+| 02 | 016–035 | Fragmen Terlarang |
+| 03 | 036–060 | Furyborn Lain |
+| 04 | 061–090 | Konflik Kekaisaran |
+| 05 | 091–115 | Umbral dan Cermin |
+| 06 | 116–145 | Revolusi Pulse |
+| 07 | 146–175 | Pembantaian Tiga Sistem |
+| 08 | 176–210 | Kembalinya Voidmaker |
+| 09 | 211–245 | Neraka Zerath |
+| 10 | 246–280 | Perang Fragmen |
+| 11 | 281–315 | Dunia Terbelah |
+| 12 | 316–345 | Konvergensi |
+| 13 | 346–375 | Hancurnya Sistem |
+| 14 | 376–430 | Fury vs Divinity |
+| 15 | 431–450 | Jejak Keabadian |
+| 16 | 451–470 | Penebusan Jiwa |
+| 17 | 471–495 | Tumbangnya Para Dewa |
+| 18 | 496–520 | Pemurnian Fragmen |
+| 19 | 521–550 | Oblivion Final |
+| 20 | 551–585 | Warisan yang Ditinggalkan |
+
+Target 585 episode ini adalah **kerangka minimum**. Untuk ribuan episode, arc bisa diperluas dengan sub-arc per kekaisaran, dungeon, akademi, perang Fragmen, dimensi, dan generasi dunia baru.
+
+---
+
+# Urutan Baca Canon
+
+1. `03-world-core-canon/WORLD_CORE_CANON.md`
+2. `30-power-system-canon/AETHER_SYSTEM_AND_PROGRESSION.md`
+3. `04-alur-utama-canon/ALUR_UTAMA_CANON.md`
+4. `08-volume-season-structure/VOLUME_SEASON_STRUCTURE.md`
 5. `11-season-1-arc-breakdown/SEASON_1_ARC_BREAKDOWN.md`
-6. `08-volume-season-structure/VOLUME_SEASON_STRUCTURE.md`
-7. `15-revelation-order/REVELATION_ORDER.md`
-8. `30-power-system-canon/AETHER_SYSTEM_AND_PROGRESSION.md`
-9. `STYLE_GUIDE.md`
-10. `10-story-risks-and-fixes/STORY_RISKS_AND_FIXES.md`
-
----
-
-# Fokus Pengerjaan Berikutnya
-
-Season 1 telah selesai ditulis dan dipoles menjadi Final Draft (14 Bab) yang tersimpan di direktori `13-canon-draft-chapters/`.
-Bab-bab yang sudah diselesaikan meliputi:
-1. `CHAPTER_01_PAKU_BULAN.md`
-2. `CHAPTER_02_CARA_ORANG_MUNDUR.md`
-3. `CHAPTER_03_KERETA_DARI_SELATAN.md`
-4. `CHAPTER_04_LINGKARAN_YANG_MENYEMPIT.md`
-5. `CHAPTER_05_SISA_ABU.md`
-6. `CHAPTER_06_JARAK_SEORANG_IBU.md`
-7. `CHAPTER_07_PENJARA_TANPA_JERUJI.md`
-8. `CHAPTER_08_LAHIRNYA_SEBUAH_RUMOR.md`
-9. `CHAPTER_09_TEMBOK_ZHORIN.md`
-10. `CHAPTER_10_RESONANSI_PAKSAAN.md`
-11. `CHAPTER_11_TITIK_PATAH.md`
-12. `CHAPTER_12_TIDAK_ADA_PELABUHAN_AMAN.md`
-13. `CHAPTER_13_KEPERGIAN_YANG_SUNYI.md`
-14. `CHAPTER_14_PINTU_PERTAMA_YANG_TERTUTUP.md`
-
-Fokus berikutnya: **Perencanaan dan Produksi Season 2**.
+6. `15-revelation-order/REVELATION_ORDER.md`
+7. `12-long-series-roadmap/FURY_OF_ZERATH_20_ARC_ROADMAP.md`
+8. `STYLE_GUIDE.md`
