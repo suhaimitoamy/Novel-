@@ -158,6 +158,21 @@ File utama:
 
 # Fokus Pengerjaan Berikutnya
 
-1. **PRODUKSI**: Melanjutkan penulisan draf canon dengan Bab 4 (Pintu Pertama yang Tertutup).
-2. **SINKRONISASI LORE**: Memastikan nama dunia/benua diseragamkan menjadi "Veyrath".
-3. Melanjutkan struktur cerita dari *Season 1 Arc Breakdown*.
+Season 1 telah selesai ditulis dan dipoles menjadi Final Draft (14 Bab) yang tersimpan di direktori `13-canon-draft-chapters/`.
+Bab-bab yang sudah diselesaikan meliputi:
+1. `CHAPTER_01_PAKU_BULAN.md`
+2. `CHAPTER_02_CARA_ORANG_MUNDUR.md`
+3. `CHAPTER_03_KERETA_DARI_SELATAN.md`
+4. `CHAPTER_04_LINGKARAN_YANG_MENYEMPIT.md`
+5. `CHAPTER_05_SISA_ABU.md`
+6. `CHAPTER_06_JARAK_SEORANG_IBU.md`
+7. `CHAPTER_07_PENJARA_TANPA_JERUJI.md`
+8. `CHAPTER_08_LAHIRNYA_SEBUAH_RUMOR.md`
+9. `CHAPTER_09_TEMBOK_ZHORIN.md`
+10. `CHAPTER_10_RESONANSI_PAKSAAN.md`
+11. `CHAPTER_11_TITIK_PATAH.md`
+12. `CHAPTER_12_TIDAK_ADA_PELABUHAN_AMAN.md`
+13. `CHAPTER_13_KEPERGIAN_YANG_SUNYI.md`
+14. `CHAPTER_14_PINTU_PERTAMA_YANG_TERTUTUP.md`
+
+Fokus berikutnya: **Perencanaan dan Produksi Season 2**.
