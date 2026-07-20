@@ -4,21 +4,17 @@
     "type": "split",
     "children": [
       {
-        "id": "96f27c381817e87c",
+        "id": "bd17546ee92b7fe4",
         "type": "tabs",
         "children": [
           {
-            "id": "877c16654ef1a063",
+            "id": "1e5c0d7b799d7a5b",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Toolkit_Dunia_Zerath_Notion.md",
-                "mode": "source",
-                "source": false
-              },
+              "type": "empty",
+              "state": {},
               "icon": "lucide-file",
-              "title": "Toolkit_Dunia_Zerath_Notion"
+              "title": "Tab baru"
             }
           }
         ]
@@ -165,8 +161,9 @@
       "bases:Buat basis baru": false
     }
   },
-  "active": "877c16654ef1a063",
+  "active": "1e5c0d7b799d7a5b",
   "lastOpenFiles": [
+    "Tanpa judul",
     "Toolkit_Dunia_Zerath_Notion.md",
     "Kael_Style_Guide.md",
     "NASKAH_WEBTOON_LENGKAP.txt",
