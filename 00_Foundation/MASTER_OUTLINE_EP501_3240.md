@@ -4,7 +4,8 @@
 
 **Status:** Canon pengembangan utama setelah Episode 500  
 **Rentang:** Episode 501–3240  
-**Akhir:** Definitif, tanpa musuh rahasia baru, tanpa reset yang membatalkan pengorbanan, dan tanpa kewajiban sekuel.
+**Akhir:** Definitif, tanpa musuh rahasia baru, tanpa reset yang membatalkan pengorbanan, dan tanpa kewajiban sekuel.  
+**Expanded Blueprints:** [SAGA_I_EPISODE_BLUEPRINTS_501_650.md](file:///sdcard/Download/ADM/novel/00_Foundation/SAGA_I_EPISODE_BLUEPRINTS_501_650.md) (Episode 501–650 Blueprint Frame)
 
 ---
 
