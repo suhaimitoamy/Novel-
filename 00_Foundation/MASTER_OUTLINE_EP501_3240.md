@@ -6,7 +6,8 @@
 **Rentang:** Episode 501–3240  
 **Akhir:** Definitif, tanpa musuh rahasia baru, tanpa reset yang membatalkan pengorbanan, dan tanpa kewajiban sekuel.  
 **Expanded Blueprints Saga I (Ep 501–650):** [SAGA_I_EPISODE_BLUEPRINTS_501_650.md](file:///sdcard/Download/ADM/novel/00_Foundation/SAGA_I_EPISODE_BLUEPRINTS_501_650.md)  
-**Expanded Blueprints Saga II (Ep 651–1200):** [SAGA_II_EPISODE_BLUEPRINTS_651_1200.md](file:///sdcard/Download/ADM/novel/00_Foundation/SAGA_II_EPISODE_BLUEPRINTS_651_1200.md)
+**Expanded Blueprints Saga II (Ep 651–1200):** [SAGA_II_EPISODE_BLUEPRINTS_651_1200.md](file:///sdcard/Download/ADM/novel/00_Foundation/SAGA_II_EPISODE_BLUEPRINTS_651_1200.md)  
+**Expanded Blueprints Saga III–IX (Ep 1201–3240 Tamat):** [SAGA_III_TO_IX_EPISODE_BLUEPRINTS_1201_3240.md](file:///sdcard/Download/ADM/novel/00_Foundation/SAGA_III_TO_IX_EPISODE_BLUEPRINTS_1201_3240.md)
 
 ---
 
