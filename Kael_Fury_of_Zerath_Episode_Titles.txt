@@ -1,500 +1,500 @@
-Episode 001 – Kael, Yang Tidak Dipanggil
-Episode 002 – Fragmen Terlarang
-Episode 003 – Kutukan Ragnarok Pulse
-Episode 004 – Tes Pertama
-Episode 005 – Abyss Hound
-Episode 006 – Bangkit Dalam Darah
-Episode 007 – Satu-satunya yang Selamat
-Episode 008 – Ditandai Sebagai Musuh
-Episode 009 – Panggilan dari Kegelapan
-Episode 010 – Fury Mode
-Episode 011 – Rank Up
-Episode 012 – Outcast
-Episode 013 – No Way Back
-Episode 014 – Blood Moon
-Episode 015 – Nightfall
-Episode 016 – Pulse Reaper
-Episode 017 – Blood Moon
-Episode 018 – Judgment
-Episode 019 – Lone Fang
-Episode 020 – Ghost Whisper
-Episode 021 – Rank Up
-Episode 022 – Warlord
-Episode 023 – No Way Back
-Episode 024 – Reckoning
-Episode 025 – Collapse
-Episode 026 – Pulse Echo
-Episode 027 – No Way Back
-Episode 028 – Oblivion
-Episode 029 – Corrupted
-Episode 030 – No Way Back
-Episode 031 – Gate Opened
-Episode 032 – Warlord
-Episode 033 – Dark Twin
-Episode 034 – Rebirth
-Episode 035 – Heir of Nothing
-Episode 036 – Berserk
-Episode 037 – Silent Arena
-Episode 038 – Shattered Limit
-Episode 039 – Pulse Rift
-Episode 040 – Collapse
-Episode 041 – Pulse Break
-Episode 042 – Sanctum
-Episode 043 – Warlord
-Episode 044 – Mana Collapse
-Episode 045 – Blood Moon
-Episode 046 – Nightfall
-Episode 047 – Dead Zone
-Episode 048 – Collapse
-Episode 049 – Pulse Rift
-Episode 050 – Gate Opened
-Episode 051 – Descent
-Episode 052 – Dark Twin
-Episode 053 – Pulse Echo
-Episode 054 – Blood Moon
-Episode 055 – Judgment
-Episode 056 – Kill Order
-Episode 057 – The Void
-Episode 058 – Outcast
-Episode 059 – Doom Signal
-Episode 060 – Descent
-Episode 061 – Blood Moon
-Episode 062 – Exile
-Episode 063 – Judgment
-Episode 064 – Last Stand
-Episode 065 – Lone Fang
-Episode 066 – Duel
-Episode 067 – Outcast
-Episode 068 – Collapse
-Episode 069 – Exile
-Episode 070 – Reckoning
-Episode 071 – Berserk
-Episode 072 – Corrupted
-Episode 073 – Kill Order
-Episode 074 – Hunter
-Episode 075 – Scar of Zerath
-Episode 076 – Pulse Break
-Episode 077 – Soul Bind
-Episode 078 – Collapse
-Episode 079 – Marked
-Episode 080 – The Void
-Episode 081 – Rank Up
-Episode 082 – Judgment
-Episode 083 – Scar of Zerath
-Episode 084 – Memory Fracture
-Episode 085 – Marked
-Episode 086 – Outcast
-Episode 087 – Fury Core
-Episode 088 – Nightfall
-Episode 089 – Corrupted
-Episode 090 – Black Flame
-Episode 091 – Hunter
-Episode 092 – Tomb Raider
-Episode 093 – Pulse Break
-Episode 094 – Scar of Zerath
-Episode 095 – Kill Order
-Episode 096 – Level Up
-Episode 097 – Trial
-Episode 098 – Black Flame
-Episode 099 – Tomb Raider
-Episode 100 – Silent Arena
-Episode 101 – Ghost Whisper
-Episode 102 – Reckoning
-Episode 103 – Rank Up
-Episode 104 – Descent
-Episode 105 – Nightfall
-Episode 106 – Outcast
-Episode 107 – Black Flame
-Episode 108 – Sanctum
-Episode 109 – Eye of Chaos
-Episode 110 – Level Up
-Episode 111 – Descent
-Episode 112 – Collapse
-Episode 113 – Mana Collapse
-Episode 114 – Gate Opened
-Episode 115 – Doom Signal
-Episode 116 – Tomb Raider
-Episode 117 – Berserk
-Episode 118 – Judgment
-Episode 119 – Mana Collapse
-Episode 120 – Blood Pact
-Episode 121 – Descent
-Episode 122 – Ember Crown
-Episode 123 – Level Up
-Episode 124 – Duel
-Episode 125 – Black Flame
-Episode 126 – Kill Order
-Episode 127 – Resonance
-Episode 128 – Memory Fracture
-Episode 129 – Shadow Contract
-Episode 130 – Judgment
-Episode 131 – Tomb Raider
-Episode 132 – Lone Fang
-Episode 133 – Memory Fracture
-Episode 134 – Duel
-Episode 135 – Fury Core
-Episode 136 – Pulse Break
-Episode 137 – Doom Signal
-Episode 138 – Black Flame
-Episode 139 – Reckoning
-Episode 140 – Final Surge
-Episode 141 – Judgment
-Episode 142 – Mana Collapse
-Episode 143 – Exile
-Episode 144 – Tomb Raider
-Episode 145 – Silent Arena
-Episode 146 – The Hunt
-Episode 147 – Scar of Zerath
-Episode 148 – Level Up
-Episode 149 – Black Flame
-Episode 150 – Scar of Zerath
-Episode 151 – Soul Bind
-Episode 152 – Pulse Break
-Episode 153 – Dark Twin
-Episode 154 – Eye of Chaos
-Episode 155 – Warlord
-Episode 156 – Nightfall
-Episode 157 – Pulse Rift
-Episode 158 – Rank Up
-Episode 159 – System Break
-Episode 160 – Lone Fang
-Episode 161 – Reckoning
-Episode 162 – Dead Zone
-Episode 163 – Mana Collapse
-Episode 164 – Collapse
-Episode 165 – No Way Back
-Episode 166 – Last Stand
-Episode 167 – Pulse Rift
-Episode 168 – Doom Signal
-Episode 169 – Gate Opened
-Episode 170 – Tomb Raider
-Episode 171 – Pulse Echo
-Episode 172 – Duel
-Episode 173 – Tomb Raider
-Episode 174 – Pulse Rift
-Episode 175 – Memory Fracture
-Episode 176 – Eye of Chaos
-Episode 177 – Ghost Whisper
-Episode 178 – Duel
-Episode 179 – Resonance
-Episode 180 – Collapse
-Episode 181 – Shattered Limit
-Episode 182 – Reckoning
-Episode 183 – Blood Pact
-Episode 184 – System Break
-Episode 185 – Blood Moon
-Episode 186 – Pulse Rift
-Episode 187 – Blood Moon
-Episode 188 – Nightfall
-Episode 189 – Soul Bind
-Episode 190 – Silent Arena
-Episode 191 – Duel
-Episode 192 – Rank Up
-Episode 193 – Level Up
-Episode 194 – Warlord
-Episode 195 – Mana Collapse
-Episode 196 – Pulse Echo
-Episode 197 – Trial
-Episode 198 – Resonance
-Episode 199 – Nightfall
-Episode 200 – Ancient Core
-Episode 201 – Trial
-Episode 202 – Blood Moon
-Episode 203 – Dark Twin
-Episode 204 – Silent Arena
-Episode 205 – Hunter
-Episode 206 – Collapse
-Episode 207 – Level Up
-Episode 208 – Warlord
-Episode 209 – Blood Pact
-Episode 210 – Descent
-Episode 211 – Gate Opened
-Episode 212 – Memory Fracture
-Episode 213 – Reckoning
-Episode 214 – Dead Zone
-Episode 215 – Pulse Rift
-Episode 216 – System Break
-Episode 217 – System Break
-Episode 218 – Mana Collapse
-Episode 219 – Dark Twin
-Episode 220 – Awakened
-Episode 221 – Doom Signal
-Episode 222 – Pulse Break
-Episode 223 – Final Surge
-Episode 224 – Scar of Zerath
-Episode 225 – Blood Moon
-Episode 226 – Hunter
-Episode 227 – Nightfall
-Episode 228 – Trial
-Episode 229 – Pulse Break
-Episode 230 – Sanctum
-Episode 231 – The Hunt
-Episode 232 – Pulse Rift
-Episode 233 – Gate Opened
-Episode 234 – Hunter
-Episode 235 – Blood Moon
-Episode 236 – Kill Order
-Episode 237 – Soul Bind
-Episode 238 – Scar of Zerath
-Episode 239 – Trial
-Episode 240 – Last Stand
-Episode 241 – Gate Opened
-Episode 242 – Scar of Zerath
-Episode 243 – Sanctum
-Episode 244 – Exile
-Episode 245 – The Hunt
-Episode 246 – Ancient Core
-Episode 247 – Memory Fracture
-Episode 248 – Warlord
-Episode 249 – The Hunt
-Episode 250 – Heir of Nothing
-Episode 251 – Duel
-Episode 252 – Lone Fang
-Episode 253 – Trial
-Episode 254 – Dark Twin
-Episode 255 – Oblivion
-Episode 256 – Nightfall
-Episode 257 – Judgment
-Episode 258 – Heir of Nothing
-Episode 259 – Descent
-Episode 260 – No Way Back
-Episode 261 – Dark Twin
-Episode 262 – Blood Moon
-Episode 263 – Scar of Zerath
-Episode 264 – Oblivion
-Episode 265 – Ancient Core
-Episode 266 – Judgment
-Episode 267 – Blood Pact
-Episode 268 – Shadow Contract
-Episode 269 – Final Surge
-Episode 270 – Heir of Nothing
-Episode 271 – Exile
-Episode 272 – Dark Twin
-Episode 273 – Silent Arena
-Episode 274 – Lone Fang
-Episode 275 – The Hunt
-Episode 276 – Collapse
-Episode 277 – Heir of Nothing
-Episode 278 – Heir of Nothing
-Episode 279 – Exile
-Episode 280 – Hunter
-Episode 281 – Tomb Raider
-Episode 282 – Corrupted
-Episode 283 – Duel
-Episode 284 – Shattered Limit
-Episode 285 – Awakened
-Episode 286 – Mana Collapse
-Episode 287 – Shadow Contract
-Episode 288 – Gate Opened
-Episode 289 – The Void
-Episode 290 – Pulse Reaper
-Episode 291 – Heir of Nothing
-Episode 292 – Oblivion
-Episode 293 – Ember Crown
-Episode 294 – Memory Fracture
-Episode 295 – Blood Moon
-Episode 296 – Pulse Break
-Episode 297 – Mana Collapse
-Episode 298 – Mana Collapse
-Episode 299 – Rank Up
-Episode 300 – Nightfall
-Episode 301 – Ghost Whisper
-Episode 302 – Gate Opened
-Episode 303 – Ember Crown
-Episode 304 – Shattered Limit
-Episode 305 – Dark Twin
-Episode 306 – Ancient Core
-Episode 307 – Shadow Contract
-Episode 308 – Level Up
-Episode 309 – Doom Signal
-Episode 310 – Gate Opened
-Episode 311 – Dark Twin
-Episode 312 – Fury Core
-Episode 313 – Reckoning
-Episode 314 – Black Flame
-Episode 315 – The Void
-Episode 316 – Berserk
-Episode 317 – Shattered Limit
-Episode 318 – Descent
-Episode 319 – Tomb Raider
-Episode 320 – Lone Fang
-Episode 321 – Trial
-Episode 322 – Duel
-Episode 323 – Heir of Nothing
-Episode 324 – Fury Core
-Episode 325 – Shadow Contract
-Episode 326 – Hunter
-Episode 327 – Blood Pact
-Episode 328 – The Void
-Episode 329 – System Break
-Episode 330 – Shadow Contract
-Episode 331 – Outcast
-Episode 332 – Dead Zone
-Episode 333 – The Hunt
-Episode 334 – Shattered Limit
-Episode 335 – System Break
-Episode 336 – Pulse Reaper
-Episode 337 – Blood Pact
-Episode 338 – Duel
-Episode 339 – Resonance
-Episode 340 – Eye of Chaos
-Episode 341 – Rebirth
-Episode 342 – The Void
-Episode 343 – Reckoning
-Episode 344 – The Hunt
-Episode 345 – Gate Opened
-Episode 346 – Marked
-Episode 347 – Gate Opened
-Episode 348 – Nightfall
-Episode 349 – Judgment
-Episode 350 – Trial
-Episode 351 – Level Up
-Episode 352 – Lone Fang
-Episode 353 – Nightfall
-Episode 354 – Lone Fang
-Episode 355 – Soul Bind
-Episode 356 – Corrupted
-Episode 357 – Awakened
-Episode 358 – Dead Zone
-Episode 359 – Hunter
-Episode 360 – Gate Opened
-Episode 361 – Sanctum
-Episode 362 – Final Surge
-Episode 363 – Pulse Rift
-Episode 364 – Ghost Whisper
-Episode 365 – Exile
-Episode 366 – Descent
-Episode 367 – Tomb Raider
-Episode 368 – Sanctum
-Episode 369 – No Way Back
-Episode 370 – Memory Fracture
-Episode 371 – Awakened
-Episode 372 – Collapse
-Episode 373 – Pulse Rift
-Episode 374 – Fury Core
-Episode 375 – Ancient Core
-Episode 376 – Collapse
-Episode 377 – Last Stand
-Episode 378 – Duel
-Episode 379 – Last Stand
-Episode 380 – Shadow Contract
-Episode 381 – Heir of Nothing
-Episode 382 – Pulse Reaper
-Episode 383 – Ember Crown
-Episode 384 – Scar of Zerath
-Episode 385 – Warlord
-Episode 386 – Pulse Rift
-Episode 387 – Ember Crown
-Episode 388 – Eye of Chaos
-Episode 389 – Trial
-Episode 390 – Rebirth
-Episode 391 – The Hunt
-Episode 392 – Ember Crown
-Episode 393 – Lone Fang
-Episode 394 – Dead Zone
-Episode 395 – The Void
-Episode 396 – Dark Twin
-Episode 397 – System Break
-Episode 398 – Scar of Zerath
-Episode 399 – Dark Twin
-Episode 400 – Memory Fracture
-Episode 401 – Blood Pact
-Episode 402 – Mana Collapse
-Episode 403 – Scar of Zerath
-Episode 404 – Silent Arena
-Episode 405 – Pulse Rift
-Episode 406 – Final Surge
-Episode 407 – Shadow Contract
-Episode 408 – Black Flame
-Episode 409 – Blood Moon
-Episode 410 – Mana Collapse
-Episode 411 – No Way Back
-Episode 412 – Corrupted
-Episode 413 – No Way Back
-Episode 414 – Last Stand
-Episode 415 – Berserk
-Episode 416 – Resonance
-Episode 417 – Shattered Limit
-Episode 418 – Nightfall
-Episode 419 – Mana Collapse
-Episode 420 – Mana Collapse
-Episode 421 – Blood Pact
-Episode 422 – Warlord
-Episode 423 – Reckoning
-Episode 424 – Reckoning
-Episode 425 – Soul Bind
-Episode 426 – Awakened
-Episode 427 – Trial
-Episode 428 – Dark Twin
-Episode 429 – Judgment
-Episode 430 – Rebirth
-Episode 431 – Resonance
-Episode 432 – Ember Crown
-Episode 433 – Mana Collapse
-Episode 434 – Pulse Echo
-Episode 435 – Eye of Chaos
-Episode 436 – Pulse Rift
-Episode 437 – Pulse Reaper
-Episode 438 – Gate Opened
-Episode 439 – Descent
-Episode 440 – The Hunt
-Episode 441 – Final Surge
-Episode 442 – Shattered Limit
-Episode 443 – Blood Pact
-Episode 444 – Pulse Reaper
-Episode 445 – Descent
-Episode 446 – Dead Zone
-Episode 447 – Pulse Rift
-Episode 448 – Pulse Reaper
-Episode 449 – Pulse Rift
-Episode 450 – Dead Zone
-Episode 451 – Pulse Rift
-Episode 452 – Doom Signal
-Episode 453 – Shadow Contract
-Episode 454 – Trial
-Episode 455 – Outcast
-Episode 456 – Outcast
-Episode 457 – Rebirth
-Episode 458 – Resonance
-Episode 459 – Lone Fang
-Episode 460 – Nightfall
-Episode 461 – Pulse Reaper
-Episode 462 – Scar of Zerath
-Episode 463 – Mana Collapse
-Episode 464 – Doom Signal
-Episode 465 – Descent
-Episode 466 – Ancient Core
-Episode 467 – Black Flame
-Episode 468 – Pulse Reaper
-Episode 469 – Heir of Nothing
-Episode 470 – Judgment
-Episode 471 – Silent Arena
-Episode 472 – Ancient Core
-Episode 473 – Ghost Whisper
-Episode 474 – Pulse Reaper
-Episode 475 – Judgment
-Episode 476 – Dark Twin
-Episode 477 – Mana Collapse
-Episode 478 – Descent
-Episode 479 – Hunter
-Episode 480 – Tomb Raider
-Episode 481 – Dead Zone
-Episode 482 – Final Surge
-Episode 483 – Rank Up
-Episode 484 – Doom Signal
-Episode 485 – Eye of Chaos
-Episode 486 – No Way Back
-Episode 487 – Duel
-Episode 488 – Berserk
-Episode 489 – Memory Fracture
-Episode 490 – Tomb Raider
-Episode 491 – Rank Up
-Episode 492 – Hunter
-Episode 493 – Duel
-Episode 494 – Shadow Contract
-Episode 495 – Lone Fang
-Episode 496 – Trial
-Episode 497 – Awakened
-Episode 498 – The Void
-Episode 499 – Sanctum
-Episode 500 – No Way Back
+Episode 001 – Api di dalam Darah
+Episode 002 – Warisan yang Tak Diminta
+Episode 003 – Buronan Dimensi
+Episode 004 – Bisikan tanpa Suara
+Episode 005 – Tarian Luka dan Ilusi
+Episode 006 – Senja di Balik Batu
+Episode 007 – Sekolah Para Penyihir Hitam
+Episode 008 – Pecahnya Darah & Batu
+Episode 009 – Pertarungan Pertama: Bayangan tanpa Nama
+Episode 010 – Pulau yang Terbelah
+Episode 011 – Craveth Hollow: Wadah Kosong
+Episode 012 – Persimpangan Jalan Keempat
+Episode 013 – Gurun yang Berbisik
+Episode 014 – Jejak di Antara Reruntuhan
+Episode 015 – Pemakan Pasir
+Episode 016 – Di Dasar Kawat
+Episode 017 – Gema Sang Penjaga
+Episode 018 – Memilih Jalan
+Episode 019 – Bayangan di Balik Bukit Pasir
+Episode 020 – Pertemuan di Oase
+Episode 021 – Jejak di Pasir
+Episode 022 – Asap di Oase
+Episode 023 – Perjanjian di bawah Bintang Asing
+Episode 024 – Istirahat yang Gelisah
+Episode 025 – Ngarai Gema Kebenaran
+Episode 026 – Kebenaran dalam Kristal
+Episode 027 – Perbatasan Beku
+Episode 028 – Tarian Api di atas Es
+Episode 029 – Baja Dingin dan Kecurigaan
+Episode 030 – Dinding Krangmar dan Bisikan Rune
+Episode 031 – Kesepakatan di Krangmar
+Episode 032 – Badai Pertama di Puncak Beku
+Episode 033 – Jejak yang Membeku
+Episode 034 – Reruntuhan Kuno di bawah Es
+Episode 035 – Bisikan Rune Es
+Episode 036 – Penyergapan dalam Keheningan
+Episode 037 – Topeng Terbuka
+Episode 038 – Di Ambang Gerbang Es
+Episode 039 – Ritual Pengorbanan
+Episode 040 – Retakan Pertama
+Episode 041 – Cakar dari Kehampaan
+Episode 042 – Musuh Bersama
+Episode 043 – Badai Es Void
+Episode 044 – Aliansi Retak
+Episode 045 – Hati Gerbang Es
+Episode 046 – Gema Nyanyian Kehampaan
+Episode 047 – Kunci Pengorbanan
+Episode 048 – Menutup Retakan
+Episode 049 – Puncak yang Membeku
+Episode 050 – Arah Baru, Luka Lama
+Episode 051 – Jejak Menuju Langit
+Episode 052 – Angin Aether
+Episode 053 – Reruntuhan Cahaya Beku
+Episode 054 – Penjaga Kristal
+Episode 055 – Resonansi Bintang
+Episode 056 – Bayangan di Belakang
+Episode 057 – Jembatan Cahaya Rapuh
+Episode 058 – Pesan dari Seberang
+Episode 059 – Puncak Aethelgard
+Episode 060 – Penjaga Terakhir Langit
+Episode 061 – Pertarungan Tiga Pewaris
+Episode 062 – Gema Fragment Keenam
+Episode 063 – Aliansi Tak Terduga
+Episode 064 – Void Melawan Cahaya
+Episode 065 – Ambisi Rowan
+Episode 066 – Pengkhianat Sejati
+Episode 067 – Jalan Keempat Kael
+Episode 068 – Serangan Balik Zevaron
+Episode 069 – Inti Kuil Berguncang
+Episode 070 – Pengorbanan atau Pelarian
+Episode 071 – Pilihan Terakhir di Aethelgard
+Episode 072 – Langit Runtuh
+Episode 073 – Nexus Command
+Episode 074 – Gema Pengorbanan
+Episode 075 – Menempa Jalan Keempat
+Episode 076 – Benih Kekacauan
+Episode 077 – Bisikan Mimpi Buruk
+Episode 078 – Utusan Kehampaan
+Episode 079 – Mencari Mata Kesembilan
+Episode 080 – Di Ambang Penglihatan
+Episode 081 – Gema Patah
+Episode 082 – Menafsir Benang Takdir
+Episode 083 – Sentuhan Arsitek
+Episode 084 – Pertahanan Terakhir Nyara
+Episode 085 – Perpisahan dan Peringatan
+Episode 086 – Tujuan Baru: Jantung Kegelapan
+Episode 087 – Melintasi Perbatasan Gelap
+Episode 088 – Gema Kematian
+Episode 089 – Benteng Terlarang
+Episode 090 – Di Hadapan Pengkhianat
+Episode 091 – Amarah Void
+Episode 092 – Tiga Warna Melawan Ungu
+Episode 093 – Retakan di Hati Pengkhianat
+Episode 094 – Bisikan Sang Arsitek
+Episode 095 – Kenangan yang Hilang (rowan’s Past)
+Episode 096 – Memutus Benang Void
+Episode 097 – Kejatuhan Rowan
+Episode 098 – Nasib Sang Rival
+Episode 099 – Jejak Terakhir Arsitek
+Episode 100 – Fajar sebelum Badai Terakhir
+Episode 101 – Langit yang Retak
+Episode 102 – Reruntuhan Industri Kuno
+Episode 103 – Gema dari Forge God
+Episode 104 – Jebakan Arsitek
+Episode 105 – Suara dari Kedalaman
+Episode 106 – Pusat Data Urdron
+Episode 107 – Penjaga Arsip
+Episode 108 – Kebenaran yang Terfragmentasi
+Episode 109 – Jalan Menuju Inti
+Episode 110 – Pengaruh Rift
+Episode 111 – Ujian Keseimbangan
+Episode 112 – Bisikan Sang Jantung
+Episode 113 – Ruang Kontrol Sekunder
+Episode 114 – Letnan Arsitek Muncul
+Episode 115 – Pertarungan Pembuka
+Episode 116 – Mengungkap Kelemahan
+Episode 117 – Eskalasi Kekuatan
+Episode 118 – Momen Kritis
+Episode 119 – Puncak Pertarungan Letnan
+Episode 120 – Di Ambang Jantung
+Episode 121 – Perjanjian dengan Gema
+Episode 122 – Menyusuri Jejak Korupsi
+Episode 123 – Penghuni Terowongan Terlupakan
+Episode 124 – Gema Keserakahan Dwarf
+Episode 125 – Jebakan Kristal Void
+Episode 126 – Penjaga Serpihan
+Episode 127 – Mengambil Serpihan
+Episode 128 – Jalan Pulang yang Terhalang
+Episode 129 – Harga Sebuah Jalan
+Episode 130 – Penempaan Ulang
+Episode 131 – Langkah Baru
+Episode 132 – Gema yang Tertinggal
+Episode 133 – Kemampuan Baru Zireth
+Episode 134 – Persimpangan Leyline
+Episode 135 – Penjaga Persimpangan
+Episode 136 – Petunjuk dari Arus Energi
+Episode 137 – Gema dari Kekaisaran Lain
+Episode 138 – Latihan Resonansi
+Episode 139 – Panggilan Hati Dunia
+Episode 140 – Di Ambang Pintu
+Episode 141 – Di Sisi Lain Pintu
+Episode 142 – Gema Penciptaan
+Episode 143 – Pesan untuk Pewaris
+Episode 144 – Kembali ke Zerath
+Episode 145 – Serpihan Jiwa
+Episode 146 – Jalan Keluar dari Hati
+Episode 147 – Pertemuan Tak Terduga
+Episode 148 – Melintasi Arus Leyline
+Episode 149 – Pendaratan Keras
+Episode 150 – Benang Baru
+Episode 151 – Markas Nexus
+Episode 152 – Hutan Rawa Terkutuk
+Episode 153 – Latihan dan Informasi
+Episode 154 – Suku Tersembunyi
+Episode 155 – Simulasi Nexus
+Episode 156 – Ritual Pemurnian Rawa
+Episode 157 – Pesan Terintersep
+Episode 158 – Ujian Kepercayaan
+Episode 159 – Keputusan Kael
+Episode 160 – Benang Takdir Bertemu
+Episode 161 – Pendaratan di Rhythor
+Episode 162 – Gema Es dan Mimpi
+Episode 163 – Pertahanan Iskali
+Episode 164 – Perjalanan Melintasi Salju
+Episode 165 – Jantung Badai
+Episode 166 – Pertemuan di Perbatasan
+Episode 167 – Wadah Sekunder Terungkap
+Episode 168 – Menerobos Badai
+Episode 169 – Konvergensi
+Episode 170 – Tiga Melawan Struktur
+Episode 171 – Jejak Tiga Mesin Takdir
+Episode 172 – Suara dari Tiga Mesin Takdir
+Episode 173 – Benturan Tiga Mesin Takdir
+Episode 174 – Harga yang Dituntut Tiga Mesin Takdir
+Episode 175 – Saat Jam Dunia Berhenti
+Episode 176 – Jejak Sinyal Outer Void
+Episode 177 – Suara dari Sinyal Outer Void
+Episode 178 – Benturan Sinyal Outer Void
+Episode 179 – Harga yang Dituntut Sinyal Outer Void
+Episode 180 – Hujan yang Menghapus Batu
+Episode 181 – Jejak Abu Antimateri
+Episode 182 – Suara dari Abu Antimateri
+Episode 183 – Benturan Abu Antimateri
+Episode 184 – Harga yang Dituntut Abu Antimateri
+Episode 185 – Nama-Nama yang Lenyap
+Episode 186 – Jejak Benteng The Core
+Episode 187 – Suara dari Benteng The Core
+Episode 188 – Benturan Benteng The Core
+Episode 189 – Harga yang Dituntut Benteng The Core
+Episode 190 – Suara di Antara Atom
+Episode 191 – Jejak Tawaran Voidmaker
+Episode 192 – Suara dari Tawaran Voidmaker
+Episode 193 – Benturan Tawaran Voidmaker
+Episode 194 – Harga yang Dituntut Tawaran Voidmaker
+Episode 195 – Pintu di Dalam Dada
+Episode 196 – Jejak Wadah Entropi
+Episode 197 – Suara dari Wadah Entropi
+Episode 198 – Benturan Wadah Entropi
+Episode 199 – Harga yang Dituntut Wadah Entropi
+Episode 200 – Tubuh yang Memilih Luka
+Episode 201 – Jejak Frekuensi Penyangkal
+Episode 202 – Suara dari Frekuensi Penyangkal
+Episode 203 – Benturan Frekuensi Penyangkal
+Episode 204 – Harga yang Dituntut Frekuensi Penyangkal
+Episode 205 – Nada yang Tidak Bisa Dimakan
+Episode 206 – Jejak Manifestasi Utama
+Episode 207 – Suara dari Manifestasi Utama
+Episode 208 – Benturan Manifestasi Utama
+Episode 209 – Harga yang Dituntut Manifestasi Utama
+Episode 210 – Gerbang Neraka Terbuka
+Episode 211 – Jejak Lembah Neraka
+Episode 212 – Suara dari Lembah Neraka
+Episode 213 – Benturan Lembah Neraka
+Episode 214 – Harga yang Dituntut Lembah Neraka
+Episode 215 – Malam Seribu Wajah
+Episode 216 – Jejak Roh Furyborn
+Episode 217 – Suara dari Roh Furyborn
+Episode 218 – Benturan Roh Furyborn
+Episode 219 – Harga yang Dituntut Roh Furyborn
+Episode 220 – Harga Sebuah Nama
+Episode 221 – Jejak Gerbang Arwah
+Episode 222 – Suara dari Gerbang Arwah
+Episode 223 – Benturan Gerbang Arwah
+Episode 224 – Harga yang Dituntut Gerbang Arwah
+Episode 225 – Wajah di Balik Gerbang
+Episode 226 – Jejak Bayangan Malgorath
+Episode 227 – Suara dari Bayangan Malgorath
+Episode 228 – Benturan Bayangan Malgorath
+Episode 229 – Harga yang Dituntut Bayangan Malgorath
+Episode 230 – Takhta yang Memakai Wajah Kael
+Episode 231 – Jejak Nama yang Terkikis
+Episode 232 – Suara dari Nama yang Terkikis
+Episode 233 – Benturan Nama yang Terkikis
+Episode 234 – Harga yang Dituntut Nama yang Terkikis
+Episode 235 – Janji Tanpa Wajah
+Episode 236 – Jejak Penjaga Neraka
+Episode 237 – Suara dari Penjaga Neraka
+Episode 238 – Benturan Penjaga Neraka
+Episode 239 – Harga yang Dituntut Penjaga Neraka
+Episode 240 – Api Eira Padam
+Episode 241 – Jejak Kebenaran Furyborn
+Episode 242 – Suara dari Kebenaran Furyborn
+Episode 243 – Benturan Kebenaran Furyborn
+Episode 244 – Harga yang Dituntut Kebenaran Furyborn
+Episode 245 – Dunia Menunggu Perang
+Episode 246 – Jejak Dua Belas Panji
+Episode 247 – Suara dari Dua Belas Panji
+Episode 248 – Benturan Dua Belas Panji
+Episode 249 – Harga yang Dituntut Dua Belas Panji
+Episode 250 – Teriakan Perang Pertama
+Episode 251 – Jejak Dataran Terbelah
+Episode 252 – Suara dari Dataran Terbelah
+Episode 253 – Benturan Dataran Terbelah
+Episode 254 – Harga yang Dituntut Dataran Terbelah
+Episode 255 – Langit Celestial Menutup
+Episode 256 – Jejak Pengkhianatan Celestial
+Episode 257 – Suara dari Pengkhianatan Celestial
+Episode 258 – Benturan Pengkhianatan Celestial
+Episode 259 – Harga yang Dituntut Pengkhianatan Celestial
+Episode 260 – Sayap yang Jatuh
+Episode 261 – Jejak Vanguard Beastmen
+Episode 262 – Suara dari Vanguard Beastmen
+Episode 263 – Benturan Vanguard Beastmen
+Episode 264 – Harga yang Dituntut Vanguard Beastmen
+Episode 265 – Dua Belas Denyut Serempak
+Episode 266 – Jejak Pengepungan Fragmen
+Episode 267 – Suara dari Pengepungan Fragmen
+Episode 268 – Benturan Pengepungan Fragmen
+Episode 269 – Harga yang Dituntut Pengepungan Fragmen
+Episode 270 – Bayangan Keluar dari Altar
+Episode 271 – Jejak Kembaran Bayangan
+Episode 272 – Suara dari Kembaran Bayangan
+Episode 273 – Benturan Kembaran Bayangan
+Episode 274 – Harga yang Dituntut Kembaran Bayangan
+Episode 275 – Pedang yang Dipatahkan
+Episode 276 – Jejak Titik Nol
+Episode 277 – Suara dari Titik Nol
+Episode 278 – Benturan Titik Nol
+Episode 279 – Harga yang Dituntut Titik Nol
+Episode 280 – Dunia Pecah Menjadi Banyak
+Episode 281 – Jejak Retakan Realitas
+Episode 282 – Suara dari Retakan Realitas
+Episode 283 – Benturan Retakan Realitas
+Episode 284 – Harga yang Dituntut Retakan Realitas
+Episode 285 – Lelaki dengan Wajah yang Sama
+Episode 286 – Jejak Kael-Kael Paralel
+Episode 287 – Suara dari Kael-Kael Paralel
+Episode 288 – Benturan Kael-Kael Paralel
+Episode 289 – Harga yang Dituntut Kael-Kael Paralel
+Episode 290 – Lima Kael, Satu Luka
+Episode 291 – Jejak Tabrakan Waktu
+Episode 292 – Suara dari Tabrakan Waktu
+Episode 293 – Benturan Tabrakan Waktu
+Episode 294 – Harga yang Dituntut Tabrakan Waktu
+Episode 295 – Hari Lama Menelan Sylvara
+Episode 296 – Jejak Penyelamatan Sylvara
+Episode 297 – Suara dari Penyelamatan Sylvara
+Episode 298 – Benturan Penyelamatan Sylvara
+Episode 299 – Harga yang Dituntut Penyelamatan Sylvara
+Episode 300 – Rumah yang Ditinggalkan Lagi
+Episode 301 – Jejak Labirin Dimensi
+Episode 302 – Suara dari Labirin Dimensi
+Episode 303 – Benturan Labirin Dimensi
+Episode 304 – Harga yang Dituntut Labirin Dimensi
+Episode 305 – Pilihan Satu Dunia
+Episode 306 – Jejak Garis Waktu yang Dikorbankan
+Episode 307 – Suara dari Garis Waktu yang Dikorbankan
+Episode 308 – Benturan Garis Waktu yang Dikorbankan
+Episode 309 – Harga yang Dituntut Garis Waktu yang Dikorbankan
+Episode 310 – Sejuta Jiwa di Dalam Denyut
+Episode 311 – Jejak Jahitan Zerath
+Episode 312 – Suara dari Jahitan Zerath
+Episode 313 – Benturan Jahitan Zerath
+Episode 314 – Harga yang Dituntut Jahitan Zerath
+Episode 315 – Jantung Dunia Berdetak Lagi
+Episode 316 – Jejak Inti Kosmos
+Episode 317 – Suara dari Inti Kosmos
+Episode 318 – Benturan Inti Kosmos
+Episode 319 – Harga yang Dituntut Inti Kosmos
+Episode 320 – Galaksi di Dalam Luka
+Episode 321 – Jejak Kelahiran Fragmen
+Episode 322 – Suara dari Kelahiran Fragmen
+Episode 323 – Benturan Kelahiran Fragmen
+Episode 324 – Harga yang Dituntut Kelahiran Fragmen
+Episode 325 – Tiga Luka Membuka Mata
+Episode 326 – Jejak Luka Pertama
+Episode 327 – Suara dari Luka Pertama
+Episode 328 – Benturan Luka Pertama
+Episode 329 – Harga yang Dituntut Luka Pertama
+Episode 330 – Dua Jalan yang Sama Kejam
+Episode 331 – Jejak Pilihan Konvergensi
+Episode 332 – Suara dari Pilihan Konvergensi
+Episode 333 – Benturan Pilihan Konvergensi
+Episode 334 – Harga yang Dituntut Pilihan Konvergensi
+Episode 335 – Jalan Keempat
+Episode 336 – Jejak Perang Sisa Entitas
+Episode 337 – Suara dari Perang Sisa Entitas
+Episode 338 – Benturan Perang Sisa Entitas
+Episode 339 – Harga yang Dituntut Perang Sisa Entitas
+Episode 340 – Makam bagi Para Dewa Gagal
+Episode 341 – Jejak Hukum Keempat
+Episode 342 – Suara dari Hukum Keempat
+Episode 343 – Benturan Hukum Keempat
+Episode 344 – Harga yang Dituntut Hukum Keempat
+Episode 345 – Langit Tanpa Ramalan
+Episode 346 – Jejak Pabrik Jiwa
+Episode 347 – Suara dari Pabrik Jiwa
+Episode 348 – Benturan Pabrik Jiwa
+Episode 349 – Harga yang Dituntut Pabrik Jiwa
+Episode 350 – Pintu-Pintu Menjadi Mata
+Episode 351 – Jejak Sarang Pengawas
+Episode 352 – Suara dari Sarang Pengawas
+Episode 353 – Benturan Sarang Pengawas
+Episode 354 – Harga yang Dituntut Sarang Pengawas
+Episode 355 – Gudang Para Pahlawan
+Episode 356 – Jejak Jiwa Para Pahlawan
+Episode 357 – Suara dari Jiwa Para Pahlawan
+Episode 358 – Benturan Jiwa Para Pahlawan
+Episode 359 – Harga yang Dituntut Jiwa Para Pahlawan
+Episode 360 – Anak yang Lahir dari Perintah
+Episode 361 – Jejak Anak Sistem
+Episode 362 – Suara dari Anak Sistem
+Episode 363 – Benturan Anak Sistem
+Episode 364 – Harga yang Dituntut Anak Sistem
+Episode 365 – Tubuh yang Dicuri Nubuat
+Episode 366 – Jejak Mesin Nubuat
+Episode 367 – Suara dari Mesin Nubuat
+Episode 368 – Benturan Mesin Nubuat
+Episode 369 – Harga yang Dituntut Mesin Nubuat
+Episode 370 – Masa Depan Menjadi Gelap
+Episode 371 – Jejak Hari Tanpa Takdir
+Episode 372 – Suara dari Hari Tanpa Takdir
+Episode 373 – Benturan Hari Tanpa Takdir
+Episode 374 – Harga yang Dituntut Hari Tanpa Takdir
+Episode 375 – Langit Membelah Tiga
+Episode 376 – Jejak Turunnya Tiga Dewa
+Episode 377 – Suara dari Turunnya Tiga Dewa
+Episode 378 – Benturan Turunnya Tiga Dewa
+Episode 379 – Harga yang Dituntut Turunnya Tiga Dewa
+Episode 380 – Panggilan Sang Cahaya
+Episode 381 – Jejak Pengadilan Aelarion
+Episode 382 – Suara dari Pengadilan Aelarion
+Episode 383 – Benturan Pengadilan Aelarion
+Episode 384 – Harga yang Dituntut Pengadilan Aelarion
+Episode 385 – Vonis Pemurnian
+Episode 386 – Jejak Murka Zhorak
+Episode 387 – Suara dari Murka Zhorak
+Episode 388 – Benturan Murka Zhorak
+Episode 389 – Harga yang Dituntut Murka Zhorak
+Episode 390 – Bayangan yang Dicuri
+Episode 391 – Jejak Mahkota Malgorath
+Episode 392 – Suara dari Mahkota Malgorath
+Episode 393 – Benturan Mahkota Malgorath
+Episode 394 – Harga yang Dituntut Mahkota Malgorath
+Episode 395 – Mahkota Satu Tarikan Napas
+Episode 396 – Jejak Aliansi Divinitas
+Episode 397 – Suara dari Aliansi Divinitas
+Episode 398 – Benturan Aliansi Divinitas
+Episode 399 – Harga yang Dituntut Aliansi Divinitas
+Episode 400 – Denyut Para Terbuang
+Episode 401 – Jejak Pasukan Fury
+Episode 402 – Suara dari Pasukan Fury
+Episode 403 – Benturan Pasukan Fury
+Episode 404 – Harga yang Dituntut Pasukan Fury
+Episode 405 – Tangga Menuju Langit Ketiga
+Episode 406 – Jejak Langit Ketiga
+Episode 407 – Suara dari Langit Ketiga
+Episode 408 – Benturan Langit Ketiga
+Episode 409 – Harga yang Dituntut Langit Ketiga
+Episode 410 – Gerbang Arena Keabadian
+Episode 411 – Jejak Arena Keabadian
+Episode 412 – Suara dari Arena Keabadian
+Episode 413 – Benturan Arena Keabadian
+Episode 414 – Harga yang Dituntut Arena Keabadian
+Episode 415 – Detik yang Tidak Berulang
+Episode 416 – Jejak Kawah Kehendak
+Episode 417 – Suara dari Kawah Kehendak
+Episode 418 – Benturan Kawah Kehendak
+Episode 419 – Harga yang Dituntut Kawah Kehendak
+Episode 420 – Jamuan di Balik Takhta
+Episode 421 – Jejak Jamuan Jiwa
+Episode 422 – Suara dari Jamuan Jiwa
+Episode 423 – Benturan Jamuan Jiwa
+Episode 424 – Harga yang Dituntut Jamuan Jiwa
+Episode 425 – Dunia Melihat Para Dewanya
+Episode 426 – Jejak Kejatuhan Trinitas
+Episode 427 – Suara dari Kejatuhan Trinitas
+Episode 428 – Benturan Kejatuhan Trinitas
+Episode 429 – Harga yang Dituntut Kejatuhan Trinitas
+Episode 430 – Tiga Takhta Menjadi Debu
+Episode 431 – Jejak Menara Waktu
+Episode 432 – Suara dari Menara Waktu
+Episode 433 – Benturan Menara Waktu
+Episode 434 – Harga yang Dituntut Menara Waktu
+Episode 435 – Pintu ke Dunia Tanpa Kael
+Episode 436 – Jejak Dunia Tanpa Kael
+Episode 437 – Suara dari Dunia Tanpa Kael
+Episode 438 – Benturan Dunia Tanpa Kael
+Episode 439 – Harga yang Dituntut Dunia Tanpa Kael
+Episode 440 – Anak yang Mengingat Orang Asing
+Episode 441 – Jejak Pewaris Denyut
+Episode 442 – Suara dari Pewaris Denyut
+Episode 443 – Benturan Pewaris Denyut
+Episode 444 – Harga yang Dituntut Pewaris Denyut
+Episode 445 – Duel dengan Akhir Sendiri
+Episode 446 – Jejak Menolak Keabadian
+Episode 447 – Suara dari Menolak Keabadian
+Episode 448 – Benturan Menolak Keabadian
+Episode 449 – Harga yang Dituntut Menolak Keabadian
+Episode 450 – Pulang untuk Meminta Maaf
+Episode 451 – Jejak Desa yang Terbakar
+Episode 452 – Suara dari Desa yang Terbakar
+Episode 453 – Benturan Desa yang Terbakar
+Episode 454 – Harga yang Dituntut Desa yang Terbakar
+Episode 455 – Nama-Nama di Dinding Abu
+Episode 456 – Jejak Suara Para Korban
+Episode 457 – Gema Para Korban
+Episode 458 – Benturan Suara Para Korban
+Episode 459 – Harga yang Dituntut Suara Para Korban
+Episode 460 – Tangan Kecil Menuju Danau
+Episode 461 – Jejak Danau Penyesalan
+Episode 462 – Suara dari Danau Penyesalan
+Episode 463 – Benturan Danau Penyesalan
+Episode 464 – Harga yang Dituntut Danau Penyesalan
+Episode 465 – Pengkhianatan di Air Hitam
+Episode 466 – Jejak Penebusan yang Tidak Selesai
+Episode 467 – Suara dari Penebusan yang Tidak Selesai
+Episode 468 – Benturan Penebusan yang Tidak Selesai
+Episode 469 – Harga yang Dituntut Penebusan yang Tidak Selesai
+Episode 470 – Langit Memanggil Sidang Terakhir
+Episode 471 – Jejak Sidang Dewa Terakhir
+Episode 472 – Suara dari Sidang Dewa Terakhir
+Episode 473 – Benturan Sidang Dewa Terakhir
+Episode 474 – Harga yang Dituntut Sidang Dewa Terakhir
+Episode 475 – Fragmen di Dalam Seorang Sahabat
+Episode 476 – Jejak Sekutu Terakhir
+Episode 477 – Suara dari Sekutu Terakhir
+Episode 478 – Benturan Sekutu Terakhir
+Episode 479 – Harga yang Dituntut Sekutu Terakhir
+Episode 480 – Pintu di Atas Jenazah
+Episode 481 – Jejak Pengepungan Langit Terakhir
+Episode 482 – Suara dari Pengepungan Langit Terakhir
+Episode 483 – Benturan Pengepungan Langit Terakhir
+Episode 484 – Harga yang Dituntut Pengepungan Langit Terakhir
+Episode 485 – Senjata yang Menghapus Nama
+Episode 486 – Jejak Singgasana Cahaya
+Episode 487 – Suara dari Singgasana Cahaya
+Episode 488 – Benturan Singgasana Cahaya
+Episode 489 – Harga yang Dituntut Singgasana Cahaya
+Episode 490 – Nama yang Ditulis dengan Darah
+Episode 491 – Jejak Harga Menumbangkan Dewa
+Episode 492 – Suara dari Harga Menumbangkan Dewa
+Episode 493 – Benturan Harga Menumbangkan Dewa
+Episode 494 – Harga yang Dituntut Harga Menumbangkan Dewa
+Episode 495 – Dewa Terakhir Jatuh
+Episode 496 – Altar Dua Belas
+Episode 497 – Peta Frekuensi Dunia
+Episode 498 – Ingatan Para Pemilik
+Episode 499 – Gravitasi yang Terlepas
+Episode 500 – Denyut Sebelum Pemurnian
