@@ -1,47 +1,69 @@
 # Episode 010 — Pulau yang Terbelah
 
-Kael, Sylvara, dan Zireth kini berada di atas sebuah perahu kecil yang mereka sewa, mendayung perlahan menyeberangi lautan kabut tebal yang aneh. Di kejauhan, mulai terlihat siluet sebuah pulau kecil yang tampak ganjil: pulau itu seolah terbelah rapi menjadi dua bagian – seperti dipotong oleh pedang raksasa dari langit.
+Kael, Sylvara, dan Zireth menyeberangi lautan berkabut dengan perahu kecil. Di kejauhan, siluet sebuah pulau muncul perlahan.
 
-"Pulau ini... tidak ada dalam peta resmi manapun," kata Sylvara sambil terus mendayung.
+Pulau itu terbelah menjadi dua bagian yang nyaris simetris, seolah pernah dipotong oleh pedang raksasa dari langit.
 
-"Tapi deskripsinya ada dalam manuskrip kuno tentang lokasi-lokasi Fragmen."
+“Tidak ada di peta resmi,” kata Sylvara sambil mendayung. “Tapi manuskrip kuno menyebutnya sebagai salah satu lokasi yang berhubungan dengan Fragmen.”
 
-Zireth mengamati sekeliling dengan sensornya. "Tempat ini... auranya sangat tua. Bukan untuk ditinggali makhluk hidup. Lebih seperti... tempat untuk mengingat sesuatu yang terlupakan." Mereka akhirnya mendarat di pantai pulau terbelah itu. Pemandangannya sureal. Pulau itu dipenuhi reruntuhan bangunan kristal putih yang sebagian melayang di udara, juga terbelah dua persis seperti pulaunya sendiri.
+Zireth mengarahkan sensor di lengan mekanisnya ke daratan. “Energinya sangat tua. Tempat ini bukan dibangun untuk dihuni. Lebih mirip ruang penyimpanan ingatan.”
 
-Kael merasakan atmosfer yang aneh. Langit... seperti tidak bergerak. Angin... seolah sengaja menghindari tempat ini... Di pusat pulau, di antara kedua belahan daratan, berdiri sebuah altar batu besar berbentuk spiral yang pecah atau tidak selesai. Di sekeliling altar itu, tertanam dua belas batu rune besar, masing-masing batu menyala redup dengan warna energi yang berbeda-beda, mewakili dua belas Fragmen Zerath.
+Mereka mendarat di pantai yang sunyi. Reruntuhan kristal putih memenuhi pulau, beberapa bagiannya melayang rendah di udara. Setiap bangunan ikut terbelah mengikuti luka besar pada daratan.
 
-"Itu..." Sylvara menunjuk ke altar. "...adalah representasi dari dua belas lokasi Fragmen
+Langit tampak diam. Angin berhenti di batas pantai, seolah enggan memasuki tempat itu.
 
-utama di Zerath. Tapi lihat..."
+Di antara kedua belahan pulau berdiri altar batu berbentuk spiral yang tidak selesai. Dua belas batu rune tertanam mengelilinginya, masing-masing memancarkan warna energi berbeda.
 
-Di tengah-tengah altar spiral yang pecah itu, terukir sebuah nama dengan cairan yang tampak seperti darah tua yang tak pernah mengering: KAEL DRAKELYN. Zireth memeriksa ukiran itu. "Namamu sudah tertulis di sini... seolah sudah ada bahkan sebelum kau dilahirkan."
+Sylvara menunjuk. “Itu mewakili dua belas Fragmen utama Zerath.”
 
-"Tidak mungkin," bantah Kael. "Ini pasti jebakan seseorang. Mungkin Rowan."
+Zireth mendekati bagian tengah altar dan berhenti.
 
-Saat Kael mengucapkan itu, altar itu tiba-tiba menyala terang. Satu per satu, dua belas batu rune di sekelilingnya menyala lebih terang, lalu garis-garis energi cahaya menyambung dari setiap batu menuju ke tengah altar – membentuk sebuah simbol kompleks berbentuk retakan mata naga yang terbuka.
+Sebuah nama terukir di sana dengan cairan menyerupai darah tua yang tidak pernah mengering.
 
-Sebuah suara koor, seolah berasal dari dua belas Fragmen itu sendiri, bergema di udara.
+**KAEL DRAKELYN**
 
-« Dua belas retakan... membentuk satu tubuh... Jika kau menyatu sepenuhnya... dunia ini tak akan sanggup lagi berdiri... » Kael seketika merasa tersedot ke dalam sebuah penglihatan yang kuat. Dia melihat semua kekaisaran di Zerath, perang-perang besar mereka, energi Void yang mengintai, kedua belas Fragmen yang tersebar... dan anehnya, dia melihat semua itu berada di dalam tubuhnya sendiri, seolah dirinya adalah dunia itu.
+“Namamu sudah tertulis di sini,” kata Zireth. “Ukiran ini jauh lebih tua daripada dirimu.”
 
-"Aku... pusat dari segala kehancuran ini?" tanyanya dalam penglihatan.
+“Tidak mungkin.” Kael menatap huruf-huruf itu. “Ini jebakan. Mungkin Rowan yang membuatnya.”
 
-« Atau... pusat dari kelahiran kembali yang menyakitkan, » jawab sebuah suara lain yang tak dikenal dalam visinya. Kael terbangun dari visi itu dengan tersentak. Tubuhnya terasa lemas, darah segar mengalir dari hidung dan tangannya. Tapi altar di depannya... kini telah membuka sebuah lorong rahasia yang menurun ke bawah tanah.
+Begitu nama itu disebut, altar menyala.
 
-"Apapun yang baru saja kau lihat..." kata Sylvara pelan. "...altar kuno ini sepertinya
+Kedua belas batu rune memancarkan garis cahaya menuju pusat spiral. Energinya menyatu menjadi simbol mata naga yang retak dan terbuka.
 
-mengakuimu sebagai bagian darinya." Kael menatap altar itu dengan perasaan campur aduk. "...Aku tidak ingin dunia ini mengakuiku," gumamnya. "Aku hanya ingin dunia ini... berhenti menyeretku ke dalam takdir yang tidak kuinginkan."
+Suara berlapis memenuhi udara.
 
-Mereka memutuskan untuk turun ke lorong rahasia di bawah altar itu. Dinding-dinding reruntuhan di bawah tanah itu ternyata dipenuhi oleh mural-mural kuno yang memudar: gambaran seekor Naga kosmik yang terbakar bersama dunia. Gambaran seorang anak dengan wajah terbelah dua, satu sisi terang satu sisi gelap. Dan gambaran sesosok makhluk yang memecahkan langit dengan darahnya sendiri.
+*Dua belas retakan membentuk satu tubuh. Jika penyatuan selesai, dunia ini tak akan mampu berdiri.*
 
-Zireth mengamati mural itu dengan seksama. "Kael... semua mural ini... entah bagaimana caranya... menggambarkan dirimu." Kael kini berdiri di tengah sebuah lingkaran rune kuno di ruang terdalam reruntuhan itu. Fragmen di dadanya menyala lebih terang dari biasanya. Mata merah dan birunya bersinar bersamaan dalam kegelapan.
+Kesadaran Kael terseret ke dalam penglihatan.
 
-"...Kalau memang semua ini sudah tertulis sejak awal..." pikir Kael dalam hati. "...maka
+Dia melihat seluruh Zerath sekaligus: kekaisaran yang berperang, Void yang mengintai di sela realitas, dan dua belas Fragmen yang tersebar di berbagai penjuru. Pemandangan itu lalu menyusut, masuk ke dalam tubuhnya, seolah Zerath hidup di balik kulitnya.
 
-biarkan aku yang menulis ulang akhir ceritanya sendiri." Di langit di atas pulau terbelah itu, jauh di kejauhan, sebuah Void Rift berwarna ungu gelap muncul perlahan – pertanda bahwa Fragmen keempat telah aktif dan mulai mencari tuannya.
+“Aku pusat kehancuran ini?”
 
-Rowan, yang ternyata mengamati dari pulau terdekat menggunakan teropong rune, tersenyum puas. "Dan dengan munculnya Fragmen keempat... babak kedua dari kehancuran Zerath akhirnya dimulai." Altar di bawah tanah tempat Kael berdiri kini mulai berdarah lagi, dan suara bisikan samar terdengar dari tanah di sekitarnya:
+*Atau pusat kelahiran kembali yang menyakitkan,* jawab suara lain.
 
-« Kael... Bukan dunia ini yang akan kau pecahkan nanti... Tapi batas tipis antara takdir dan pilihan bebasmu sendiri... »
+Kael tersentak sadar. Darah mengalir dari hidung dan telapak tangannya. Di depannya, altar telah membuka lorong menuju bawah tanah.
 
-Oke, ini dia narasi Episode 11 hingga 20, yang telah direvisi:
+“Apa pun yang kau lihat,” ujar Sylvara, “tempat ini mengakuimu sebagai bagian darinya.”
+
+“Aku tidak ingin diakui dunia ini.” Kael mengusap darah di bibirnya. “Aku hanya ingin berhenti diseret ke takdir yang tidak kupilih.”
+
+Mereka menuruni lorong.
+
+Mural-mural tua memenuhi dinding: naga kosmik yang terbakar bersama sebuah dunia, seorang anak berwajah terang dan gelap, serta sosok yang memecahkan langit dengan darahnya sendiri.
+
+Zireth memeriksa setiap gambar. “Semua ini menggambarkanmu.”
+
+Di ruang terdalam, Kael berdiri di tengah lingkaran rune. Fragmen di dadanya bersinar, diikuti cahaya merah dan biru dari kedua matanya.
+
+Jika kisahnya memang telah ditulis sebelum dia lahir, Kael akan menulis ulang akhirnya sendiri.
+
+Di langit pulau, sebuah Void Rift ungu mulai terbuka. Fragmen keempat telah bangkit dan sedang mencari tuannya.
+
+Dari pulau terdekat, Rowan mengamati melalui teropong rune.
+
+“Fragmen keempat telah muncul,” katanya. “Babak berikutnya dimulai.”
+
+Altar di bawah kaki Kael kembali mengeluarkan darah.
+
+*Bukan Zerath yang akan kau pecahkan, Kael. Melainkan batas antara takdir dan kehendakmu sendiri.*
