@@ -1,25 +1,51 @@
 # Episode 163 — Pertahanan Iskali
 
-Suhu berubah setiap kali Kael menarik napas di daratan es Rhythor. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Penjaga Iskali mengepung kuil.
 
-Serangan penjaga Iskali, badai korup, dan Shaman Agung datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Tubuh mereka terbentuk dari es jernih dengan inti biru di dada. Pola putih Sang Arsitek membungkus sendi dan kepala, memaksa setiap gerakan mengikuti perintah yang sama.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Shaman Agung. Yang lain membalas dari sudut berbeda dengan kebijaksanaan keras Shaman dan tekad Kael, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+“Jangan hancurkan intinya,” kata Shaman Agung. “Roh penjaga terikat di sana.”
 
-Kael menerapkan perbedaan fase antara es murni dan Void. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael menahan serangan pertama dengan perisai tipis. Tombak es menghantam dan membuat lengannya mati rasa.
 
-“Sekarang, Kael! Simpul Rhythor Membeku ini hanya bisa kutahan beberapa detik,” seru Shaman Agung. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Zireth mengirim medan bintang ke tanah, memperlambat gerakan dua penjaga. Sylvara menembakkan panah penanda ke sambungan geometri pada bahu dan leher.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh daratan es Rhythor sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael mencari perbedaan fase antara es murni dan Void.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Dalam benturan Rhythor Membeku, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Di dalam setiap penjaga terdapat dua irama. Satu liar, dingin, dan hidup. Satu lagi terlalu sempurna.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Rhythor Membeku tetap memiliki batas yang tak boleh dilanggar.
+Dia menyentuh Penjaga pertama dengan Zerath's Fang tanpa menebas. Pulse tiga warna masuk melalui bilah dan memisahkan pola asing dari inti.
 
-Shaman Agung hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan kebijaksanaan keras Shaman dan tekad Kael untuk menghantam pusat kendali yang baru terlihat.
+Tubuh es itu kejang.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Arsitek menjanjikan keteraturan kepada kaum yang takut kehilangan musim. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Pola putih retak dan jatuh seperti kulit mati. Penjaga tersebut berhenti menyerang, lalu berlutut di hadapan Shaman.
 
-Kael merasakan kemenangan kecil atas lapisan luar Rhythor Membeku, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh daratan es Rhythor menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+“Berhasil,” kata Sylvara.
 
-“Kita membangunkan pusat Rhythor Membeku,” kata Shaman Agung pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama penjaga Iskali, badai korup, dan Shaman Agung mulai bergerak dari kedalaman.
+Penjaga lain langsung menyesuaikan diri. Mereka menebalkan lapisan Void dan menyerang Kael dari semua arah.
+
+Ragnarok Pulse menawarkan ledakan yang mampu menghancurkan seluruh barisan.
+
+Kael menolaknya.
+
+Dia membiarkan Shaman Agung menyanyikan nama masing-masing penjaga. Ketika satu roh mengingat identitasnya, Sylvara menandai simpul kendali, Zireth membukanya, dan Kael memutus benang asing.
+
+Pertempuran berlangsung lambat dan melelahkan.
+
+Setiap penjaga harus diselamatkan satu per satu.
+
+Ketika yang terakhir terbebas, Kael hampir tidak mampu berdiri. Namun tidak ada inti yang hancur.
+
+Para Penjaga Iskali membuka jalan ke pegunungan.
+
+Salah satu dari mereka menyentuh tanah dan mengirim pesan melalui es:
+
+*Badai pusat telah memakai suara Zevaron. Jangan percaya apa pun yang memanggil dengan namanya.*
+
+Di kejauhan, suara Zevaron terdengar dari dalam badai.
+
+“Kael! Cepat!”
+
+Kael memandang Shaman Agung.
+
+Mereka tidak tahu apakah itu pangeran Iskali—atau Wadah Sekunder yang telah belajar menirunya.
