@@ -1,25 +1,59 @@
 # Episode 157 — Pesan Terintersep
 
-Debu bergerak melawan arah angin di jantung rawa terkutuk. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Ritual membuka saluran tersembunyi di bawah akar rawa.
 
-Sejak benturan sebelumnya, pola agen penyusup dan akar pemakan ingatan terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk memurnikan Leyline rawa sambil menguji kejujuran Nexus, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Zireth menyambungkan lengan bintangnya ke jalur tersebut. Data mengalir terlalu cepat, tetapi pola Logam Bintang mampu menahannya cukup lama untuk diterjemahkan.
 
-“Ada lapisan lain di bawah Ritual Lumut Sunyi. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sosok Berhelm berdiri di belakangnya. “Akses itu termasuk jaringan rahasia Nexus.”
 
-Ia mengalirkan resonansi biologis pada jaringan akar melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Jaringan kalian sudah tidak rahasia,” jawab Zireth. “Arsitek menggunakannya lebih lama daripada yang kalian sadari.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan nyanyian Suku Lumut dan lengan bintang Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Peta Rhythor muncul di atas rawa.
 
-Kael menyentuh rekaman Ritual Lumut Sunyi. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Beberapa titik energi berdenyut di sekitar istana Iskali, menara es, dan Gerbang Es. Semua garis bertemu pada satu lokasi di bawah ibu kota.
 
-Ia memutus kontak dengan rekaman Ritual Lumut Sunyi sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Suara Sang Arsitek terdengar dari rekaman:
 
-“Ini bukan hanya jejak serangan di Ritual Lumut Sunyi,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+*Wadah Sekunder menunjukkan kompatibilitas. Integrasi emosi belum sempurna. Gunakan trauma Zevaron sebagai pola penyeimbang.*
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Agen penyusup dan akar pemakan ingatan telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Kael menahan napas.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Arsitek sedang menanam Wadah Sekunder di Rhythor.
+“Wadah itu berhubungan dengan Zevaron.”
 
-“Kalau petunjuk tentang Ritual Lumut Sunyi ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Sylvara mengingat pertemuan mereka di Arus Balik. “Dia sudah menuju Iskali.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan agen penyusup dan akar pemakan ingatan berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Pesan berlanjut.
+
+*Jika Variabel Kael menolak fungsi Kunci, Wadah Sekunder akan menggantikan pusat resonansi. Konflik kedua subjek diperlukan untuk aktivasi penuh.*
+
+Sang Arsitek ingin Kael dan Zevaron bertarung.
+
+Bukan hanya untuk menguji mereka, tetapi untuk menyalakan sesuatu di Rhythor.
+
+Zireth memutus transmisi sebelum jaringan asing menyadari posisi mereka.
+
+Terlambat.
+
+Sebuah koordinat balasan muncul di layar, diikuti satu kalimat:
+
+*Data diterima. Subjek utama bergerak sesuai jalur.*
+
+Kael mengepalkan tangan.
+
+“Dia sengaja membiarkan kita menemukan pesan ini.”
+
+“Mungkin,” kata Sosok Berhelm. “Namun ancaman Wadah Sekunder tetap nyata.”
+
+Pemimpin Suku Lumut mendekat. “Ritual belum selesai. Kalau kalian pergi sekarang, akar rawa akan kembali terinfeksi.”
+
+Kael memandang peta Rhythor, lalu jaringan hidup di bawah kakinya.
+
+Setiap detik berarti bagi Zevaron. Namun meninggalkan rawa setengah pulih akan mengorbankan orang-orang yang baru mempercayainya.
+
+Sang Arsitek kembali menawarkan pilihan yang memaksa satu korban demi korban lain.
+
+Kael menutup peta.
+
+“Kita selesaikan pemurnian dahulu. Setelah itu baru ke Rhythor.”
+
+Untuk pertama kalinya, dia menolak bergerak mengikuti urgensi yang sengaja diciptakan musuh.
