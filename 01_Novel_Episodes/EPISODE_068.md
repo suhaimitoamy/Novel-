@@ -1,29 +1,51 @@
 # Episode 068 — Serangan Balik Zevaron
 
-Pertarungan antara Rowan dan Zevaron berlangsung brutal di depan kubah energi yang melindungi Kael dan Inti Cahaya. Keduanya bertarung dengan kekuatan penuh, mengabaikan reruntuhan kuil yang berjatuhan di sekitar mereka.
+Rowan dan Zevaron bertarung di depan kubah pelindung.
 
-"Kau hanya pion kecil dalam permainan Arsitek, Zevaron! Minggir dari jalanku!" seru Rowan
+“Kau hanya pion dalam permainan Arsitek,” kata Rowan sambil menahan badai dengan perisai Void. “Minggir.”
 
-sambil menangkis badai elemen Zevaron dengan perisai Void hitamnya. Zevaron tertawa liar, matanya bersinar penuh ambisi gila. "Aku bukan pion siapapun! Aku akan mengambil semua kekuatan Fragmen untuk diriku sendiri, dimulai dengan menghancurkanmu!" Dia menciptakan beberapa golem angin dan petir berukuran kecil untuk menyerang Rowan dari berbagai arah.
+Zevaron tertawa. “Aku bukan pion siapa pun.”
 
-Sementara itu, di dalam kubah energi, Kael dan Penjaga Celestial bekerja sama menjaga kestabilan Inti Cahaya yang masih berdenyut tidak menentu.
+Dia membentuk golem kecil dari angin dan petir. Makhluk-makhluk itu menyerang Rowan dari berbagai arah, memaksanya bergerak menjauh dari altar.
 
-"Energi Voidmu... secara inheren menyakiti Inti Suciku," kata Penjaga Celestial pada Kael melalui pikiran. "Tapi anehnya... energi itu juga yang melindunginya dari korupsi total yang coba dilakukan Rowan. Sungguh sebuah Keseimbangan yang aneh dan berbahaya."
+Di dalam kubah, Kael dan Penjaga Celestial mempertahankan aliran energi ke Inti Cahaya.
 
-"Aku tidak tahu bagaimana ini bekerja," jawab Kael jujur, masih berkeringat menahan aliran energi. "Aku hanya mengikuti insting..." Lengan kirinya terasa semakin dingin dan mati rasa, namun anehnya tidak terasa sakit lagi.
+“Void dalam tubuhmu menyakiti Hati Lykaros,” kata Penjaga melalui pikiran. “Namun energi yang sama mencegah korupsi Rowan menembus perlindungan. Keseimbanganmu berbahaya dan sulit dipahami.”
 
-Di luar, Rowan berhasil menghancurkan golem elemen ciptaan Zevaron dengan satu ledakan Void terkonsentrasi. "Cukup bermain-mainnya!" Dia mulai mengumpulkan energi Void dalam jumlah besar, bersiap mengakhiri pertarungan dengan Zevaron.
+“Aku juga tidak memahami semuanya.” Keringat membasahi wajah Kael. “Aku hanya tahu kubah ini harus bertahan.”
 
-Namun, Zevaron ternyata lebih licik dari yang diduga. Dia tiba-tiba berhenti menyerang Rowan. Dengan senyum licik di wajahnya, dia malah mengarahkan serangan elemen terkuatnya berikutnya ke arah... kubah energi yang melindungi Kael dan Inti Cahaya.
+Lengan kirinya semakin dingin dan mati rasa, tetapi rasa sakit telah menghilang. Perubahan itu justru membuatnya lebih khawatir.
 
-"Jika aku tidak bisa memilikinya... maka kalian berdua juga tidak boleh memilikinya!" teriak
+Di luar, Rowan menghancurkan golem-golem dengan satu ledakan Void terkonsentrasi.
 
-Zevaron penuh kedengkian. Kael, yang sedang fokus menstabilkan Inti, terkejut melihat serangan itu datang. "Tidak!"
+“Cukup.”
 
-"Lindungi Inti!" seru Penjaga Celestial.
+Energi gelap berkumpul untuk serangan akhir.
 
-Serangan badai elemen dahsyat Zevaron menghantam kubah energi gabungan Kael dan Penjaga dengan kekuatan penuh. Kubah energi itu retak hebat akibat serangan mendadak yang tak terduga. Kael dan Penjaga Celestial terlempar ke belakang karena kuatnya benturan. Inti Cahaya kini terpapar tanpa perlindungan untuk sesaat.
+Zevaron mendadak menghentikan serangannya kepada Rowan.
 
-Rowan melihat kesempatan emas ini terbuka di depan matanya. "Sekarang!" Mengabaikan Zevaron, Rowan melesat dengan kecepatan tinggi, langsung menuju Inti Cahaya yang kini tidak terlindungi.
+Senyum licik muncul di wajahnya.
 
-Kael dan Penjaga Celestial masih terlempar akibat ledakan. Zevaron tertawa puas melihat rencananya berhasil mengacaukan segalanya. Rowan hampir mencapai Inti Cahaya.
+Dia mengarahkan seluruh badai berikutnya kepada kubah.
+
+“Jika aku tidak bisa memiliki Inti itu, kalian juga tidak akan mendapatkannya.”
+
+Kael melihat serangan datang saat seluruh fokusnya masih terikat pada keseimbangan Fragmen.
+
+“Tidak.”
+
+“Lindungi Inti,” seru Penjaga.
+
+Badai elemen menghantam perlindungan gabungan mereka.
+
+Retakan besar menyebar pada kubah. Kael dan Penjaga terlempar ke belakang ketika pertahanan pecah.
+
+Inti Cahaya terbuka tanpa perlindungan.
+
+Rowan tidak menyia-nyiakan kesempatan.
+
+Dia meninggalkan Zevaron dan melesat menuju altar.
+
+Kael masih berguling di lantai, Penjaga Celestial belum sempat bangkit, dan Zevaron tertawa melihat kekacauan yang dia ciptakan.
+
+Tangan Rowan tinggal beberapa langkah dari Hati Lykaros.

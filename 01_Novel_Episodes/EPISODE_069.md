@@ -1,25 +1,53 @@
 # Episode 069 — Inti Kuil Berguncang
 
-Rowan mengulurkan tangannya yang diselimuti energi Void gelap pekat, jari-jarinya hampir menyentuh permukaan Inti Cahaya yang berdenyut liar. "Akhirnya..." bisiknya penuh kemenangan. Tepat sebelum tangannya berhasil menyentuh cahaya bintang cair itu, Penjaga Celestial, dengan sisa-sisa kekuatan terakhirnya, menembakkan seberkas cahaya keemasan murni dari ujung pedang kristalnya ke arah Rowan.
+Tangan Rowan yang diselimuti Void hampir menyentuh Inti Cahaya.
 
-Serangan putus asa itu memaksa Rowan menghindar sesaat, gerakannya sedikit terganggu, memberikan waktu sepersekian detik yang sangat berharga. Kael, melihat itu dari tempatnya terjatuh, mengerahkan sisa tenaganya. Dia tidak mungkin bisa mencapai Rowan atau Inti Cahaya secara fisik dalam waktu sesingkat itu. Tapi dia teringat bagaimana Inti Cahaya merespon kehadirannya sebelumnya. Dia bisa mencoba mempengaruhinya dengan resonansi Fragmen-nya.
+“Akhirnya.”
 
-"JANGAN SENTUH ITU!!!" teriak Kael, memfokuskan seluruh sisa energi mental dan
+Penjaga Celestial mengerahkan sisa tenaganya. Sinar keemasan ditembakkan dari ujung pedang dan memaksa Rowan menghindar.
 
-Fragmen murninya (api dan es) ke arah Inti Cahaya, mencoba 'memerintahkannya' untuk bertahan atau melindungi dirinya sendiri. Inti Cahaya itu seolah mendengar atau merasakan perintah Kael. Cahaya bintang cair di dalamnya berputar kencang dengan kecepatan luar biasa, lalu meledak keluar dengan gelombang energi Celestial murni yang jauh lebih besar dan lebih dahsyat dari gelombang pertahanan sebelumnya.
+Gangguan itu hanya berlangsung sepersekian detik, tetapi cukup bagi Kael untuk bertindak.
 
-Ledakan energi Inti Cahaya yang masif. Ledakan energi putih keemasan yang membutakan itu menghantam semua orang di dalam aula kuil tanpa pandang bulu. Rowan, yang paling dekat dengan ledakan, terlempar paling jauh sambil berteriak marah dan kesakitan. "TIDAK!"
+Dia terlalu jauh untuk mencapai altar dengan tubuhnya. Namun Inti tersebut telah merespons resonansinya sebelumnya.
 
-Zevaron juga terlempar keras, menabrak dinding kristal hingga retak. "ARGH!" Penjaga Celestial, yang sudah kehabisan energi setelah serangan terakhirnya, terkena dampak ledakan itu. Tubuh cahayanya meredup drastis, hampir transparan, sebelum akhirnya lenyap sepenuhnya menjadi debu cahaya.
+Kael mengarahkan seluruh sisa tenaga mental dan energi Fragmen menuju cahaya yang berputar.
 
-Kael, yang berada cukup dekat dan menjadi pemicu ledakan itu, terkena dampak paling keras. Dia merasa tubuhnya seperti terkoyak oleh energi murni yang meluap itu. Lengan kirinya terasa terbakar hebat saat energi Void di dalamnya beradu langsung dengan luapan energi Celestial.
+“Jangan biarkan dia menyentuhmu.”
 
-"AAAAAAHHHH!!!" teriaknya sebelum kesadarannya mulai memudar.
+Inti Cahaya menjawab.
 
-Seluruh kuil kristal bergetar hebat akibat ledakan energi Inti Cahaya. Langit-langit mulai runtuh, pilar-pilar kristal pecah berkeping-keping. Zireth, yang berada di luar kuil bersama Sylvara dan Sosok Berhelm (yang ternyata hanya melumpuhkan Wyvern-nya sementara untuk mengamati situasi), merasakan getaran hebat itu. "Kuilnya akan runtuh total!"
+Cahaya bintang cair di dalamnya berputar semakin cepat. Gelombang Aether meledak dari altar dengan kekuatan jauh lebih besar daripada pertahanan sebelumnya.
 
-"KAEL!!!" teriak Sylvara panik, melihat cahaya putih menyilaukan dari dalam kuil.
+Rowan menerima hantaman paling dekat dan terlempar melintasi aula.
 
-Aula utama kuil kini dipenuhi cahaya putih menyilaukan dari Inti Cahaya yang kini berputar tak terkendali dan tidak stabil. Kael terbaring di tengah cahaya itu, kesadarannya perlahan menghilang. Kuil Celestial kuno itu mulai runtuh total di sekelilingnya. Sosok Penjaga
+“Tidak!”
 
-Celestial telah lenyap. Rowan dan Zevaron tidak terlihat jelas di tengah kekacauan cahaya dan reruntuhan.
+Zevaron ikut tersapu dan menabrak dinding kristal hingga retak.
+
+Penjaga Celestial telah menghabiskan kekuatan terakhirnya. Tubuh cahayanya meredup, berubah transparan, lalu pecah menjadi debu keemasan.
+
+Kael berada dekat dengan pusat ledakan.
+
+Energi murni merobek tubuhnya. Void pada lengan kiri bereaksi keras, seperti racun yang dibakar keluar tetapi menolak meninggalkan wadahnya.
+
+Dia berteriak sebelum pandangan mulai gelap.
+
+Kuil berguncang.
+
+Pilar-pilar kristal pecah. Bagian langit-langit jatuh ke aula, sementara Inti Cahaya terus berputar tanpa kendali.
+
+Di luar, Sylvara dan Zireth merasakan getaran tersebut. Sosok Berhelm juga masih berada di sekitar kuil setelah hanya menahan Void Wyvern di perimeter.
+
+“Strukturnya akan runtuh,” kata Zireth.
+
+“Kael!” Sylvara berlari menuju pintu yang tertutup puing.
+
+Cahaya putih menyembur dari celah-celah dinding.
+
+Di dalam, Kael terbaring beberapa meter dari altar. Kesadarannya timbul tenggelam di tengah energi yang semakin liar.
+
+Penjaga terakhir Lykaros telah lenyap.
+
+Rowan dan Zevaron tidak terlihat di balik reruntuhan.
+
+Inti Cahaya terus membesar, seolah kuil itu sendiri tidak lagi mampu menahan kekuatan yang dibangunkan.

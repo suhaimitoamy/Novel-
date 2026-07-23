@@ -1,23 +1,59 @@
-# Episode 062 — Gema Fragment Keenam
+# Episode 062 — Gema Fragmen Keenam
 
-Pertarungan tiga arah terus berlanjut kacau di aula Kuil Celestial. Serangan cahaya, api, es, angin, dan petir saling beradu, mengguncang pilar-pilar kristal kuno. Di tengah kekacauan itu, Kael merasakan tarikan energi yang semakin kuat dari pusat aula.
+Serangan cahaya, api, es, angin, dan petir mengguncang aula.
 
-Matanya tertuju pada sebuah altar kristal yang melayang rendah di tengah ruangan. Di atas altar itu, sebuah objek mulai bersinar lebih terang, memancarkan energi murni yang tenang namun sangat kuat. Bukan batu atau kristal seperti Fragmen yang pernah dia lihat sebelumnya, tapi lebih mirip bola cahaya bintang cair yang berputar perlahan.
+Di tengah kekacauan itu, Kael merasakan tarikan kuat dari pusat ruangan.
 
-Itu... pikir Kael takjub. Apakah itu Fragmen Keenam? Bentuknya... sangat berbeda. Bukan materi padat... tapi seperti... cahaya hidup? Penjaga Celestial juga merasakan perubahan pada Fragmen itu. "Inti Cahaya... Dia merasakan energi kalian yang rusak dan tidak seimbang!" Sang Penjaga segera terbang melesat ke arah altar, berniat melindungi sumber kekuatan itu.
+Sebuah altar kristal melayang rendah di atas lantai. Di atasnya berputar bola cahaya putih keemasan, cair seperti bintang yang dilelehkan.
 
-Zevaron, melihat Inti Cahaya itu dengan mata berkilat penuh nafsu, berteriak, "Jadi itu wujud aslinya! Kekuatan bintang murni! Itu akan menjadi milikku!" Mengabaikan Kael dan Penjaga, dia melesat langsung ke arah altar, mencoba merebut Inti Cahaya itu.
+Fragmen keenam.
 
-"Jangan!" teriak Kael, mencoba menghentikannya.
+Bentuknya berbeda dari Fragmen lain. Tidak ada batu atau permukaan padat, hanya cahaya hidup yang terus bergerak.
 
-Saat Zevaron mendekat, Inti Cahaya (Fragmen Keenam) itu berdenyut hebat. Gelombang energi putih keemasan yang murni dan kuat seketika menyebar ke seluruh aula. Gelombang energi Celestial murni. Energi murni itu terasa menenangkan dan memperkuat bagi Penjaga Celestial, namun sebaliknya, terasa membakar dan menyakitkan bagi Zevaron dan Kael yang memiliki energi campuran atau korup.
+Penjaga Celestial merasakan perubahan yang sama.
 
-Zevaron terlempar keras ke belakang, menggeram kesakitan. "Argh! Cahaya sialan ini!" Kael juga merasakan sensasi terbakar oleh energi murni itu, terutama di lengan kirinya yang terintegrasi Void. Namun, ada juga sensasi aneh lain... seolah energi Celestial itu mencoba 'membersihkan' atau menyeimbangkan sesuatu di dalam dirinya, meskipun prosesnya menyakitkan. "Nguuuh...!"
+“Inti Cahaya terbangun karena energi kalian yang rusak.”
 
-Rowan, yang berdiri paling jauh, hanya sedikit terdorong mundur oleh gelombang energi itu, tampaknya tidak terlalu terpengaruh karena perlindungan Voidnya. "Resonansi pertahanan otomatis dari Inti Cahaya itu sendiri. Menarik."
+Dia terbang menuju altar untuk melindunginya.
 
-Penjaga Celestial kini berdiri tegak di depan altar, pedang kristalnya terhunus, melindungi Inti Cahaya yang bersinar terang.
+Zevaron melihat cahaya tersebut dan seluruh perhatiannya berubah.
 
-"Pergi dari sini, makhluk fana!" serunya dengan suara bergema. "Kalian tidak pantas berada
+“Jadi itu wujud aslinya.” Keserakahan memenuhi mata emasnya. “Kekuatan bintang murni.”
 
-di hadapan Hati suci Lykaros!" Inti Cahaya (Fragmen Keenam) kini bersinar terang di atas altarnya, dilindungi oleh Penjaga terakhir bangsa Celestial. Kael dan Zevaron sama-sama merasakan sakit akibat energi murninya, sementara Rowan masih menunggu kesempatan.
+Dia meninggalkan pertarungan dan melesat ke altar.
+
+“Jangan!” Kael mengejarnya.
+
+Sebelum Zevaron menyentuh Inti Cahaya, Fragmen itu berdenyut.
+
+Gelombang Aether putih keemasan menyapu aula.
+
+Penjaga Celestial berdiri semakin tegak ketika energinya dipulihkan. Bagi Kael dan Zevaron, gelombang tersebut terasa seperti api yang membakar dari dalam.
+
+Zevaron terlempar dan menghantam lantai.
+
+“Cahaya terkutuk.”
+
+Kael ikut terpukul mundur. Lengan kirinya menerima dampak paling keras. Rune Void menyala dan mengeluarkan asap tipis.
+
+Namun di balik rasa sakit, Aether tersebut mencoba melakukan sesuatu yang lain. Energinya masuk ke dalam struktur Fragmen dan mendorong kekacauan di tubuh Kael menuju keseimbangan.
+
+Proses pembersihan itu terasa seperti kulitnya dikupas dari dalam.
+
+Rowan berdiri paling jauh dari altar. Lapisan Void melindunginya dari sebagian gelombang.
+
+“Pertahanan otomatis,” katanya. “Inti tersebut mampu menolak energi yang dianggap tidak murni.”
+
+Penjaga bersayap enam mendarat di depan altar. Pedang kristalnya diarahkan kepada mereka.
+
+“Pergi dari tempat ini.”
+
+Cahaya dari keenam sayap mengisi ruangan.
+
+“Kalian tidak pantas berdiri di hadapan Hati Lykaros.”
+
+Inti Cahaya berputar di belakangnya. Zevaron bangkit dengan marah. Kael menahan lengan kiri yang masih terbakar, sementara Rowan kembali menunggu.
+
+Fragmen keenam telah memperlihatkan dirinya.
+
+Kini seluruh pihak mengetahui apa yang harus mereka rebut—atau lindungi.

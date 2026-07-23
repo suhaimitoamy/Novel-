@@ -1,23 +1,59 @@
 # Episode 061 — Pertarungan Tiga Pewaris
 
-Di aula utama Kuil Kristal Celestial, ketegangan terasa memuncak. Kael kini berdiri di tengah konflik antara Penjaga Celestial bersayap agung, Zevaron yang ambisius, dan Rowan yang mengamati dari bayang-bayang.
+Ketegangan memenuhi aula Kuil Kristal.
 
-"Dua hibrida di satu tempat suci," seringai Zevaron pada Kael, matanya yang emas berkilat liar. "Ini pasti pertanda dari kosmos." Dia mengarahkan tangannya yang dikelilingi badai angin dan kilat petir ke arah Kael. "Sayang sekali hanya ada ruang untuk satu Pewaris sejati di puncak kekuasaan ini!"
+Kael berdiri di antara Penjaga Celestial, Zevaron, dan Rowan yang mengamati dari pinggir ruangan.
 
-Zevaron seketika menembakkan badai petir dan angin yang dahsyat ke arah Kael.
+“Dua hibrida berada di tempat suci yang sama.” Zevaron menyeringai. Mata emasnya menyala bersama pusaran angin dan petir di telapak tangan. “Kosmos pasti sedang bercanda.”
 
-Kael bereaksi cepat, nalurinya mengambil alih. Dia menciptakan perisai tebal dari api merah dan biru untuk menahan serangan itu. "Aku tidak punya urusan denganmu!" teriaknya. Penjaga Celestial, melihat serangan Zevaron yang brutal dan energi Kael yang mengandung noda Void, menganggap keduanya sebagai ancaman. "Noda Kehampaan... dan ambisi liar yang merusak... Kalian berdua adalah ancaman bagi kesucian tempat ini!" Dengan pedang kristalnya terangkat tinggi, sang Penjaga berseru, "Cahaya Surgawi akan memurnikan kalian!"
+Dia mengarahkan serangan kepada Kael.
 
-Penjaga Celestial menyerang keduanya dengan tebasan cahaya suci yang lebar dan kuat. Kael dan Zevaron melompat menghindar ke arah yang berlawanan. Pertarungan tiga arah yang kacau dan berbahaya pun dimulai di dalam kuil kuno itu.
+“Hanya ada ruang untuk satu Pewaris sejati.”
 
-Kekuatannya... elemen murni, tapi liar dan sangat agresif, pikir Kael sambil menghindari serangan cahaya Penjaga dan melirik Zevaron. Gaya bertarungnya berbeda jauh denganku.
+Badai petir melesat melintasi aula.
 
-"Kau terlalu kaku, Malaikat!" Zevaron tertawa sambil membalas serangan Penjaga dengan
+Kael membentuk perisai api merah dan biru. Benturan mendorong kakinya beberapa langkah di atas lantai kristal.
 
-ledakan angin yang kuat. "Zaman bangsa Celestial sudah lama berakhir!" Sementara itu, Rowan tetap berdiri diam di pinggir aula, mengamati pertarungan dengan saksama, seolah sedang menganalisis sesuatu yang penting. Energi Kael... semakin tidak stabil saat berada dekat dengan sumber energi Celestial murni ini, pikirnya dalam hati.
+“Aku tidak punya urusan denganmu.”
 
-Menarik sekali. Kael mencoba fokus menyerang Penjaga Celestial, menganggapnya ancaman utama karena menjaga Fragmen. Namun, Zevaron terus mengganggunya, seolah melihat Kael sebagai rival utamanya.
+Penjaga bersayap enam menilai energi mereka berdua sebagai ancaman.
 
-"Jangan coba-coba mengabaikanku, Anomali!" seru Zevaron. "Berikan Fragmen yang ada
+“Noda Kehampaan dan ambisi tanpa batas. Kalian akan memurnikan tempat ini dengan kehancuran jika dibiarkan.”
 
-di dalam dirimu itu padaku!" Dia menyerang Kael dengan cambuk petir yang menyambar cepat. Kael menangkis cambuk itu dengan Zerath's Fang. "Fragmen ini bukan untuk dimiliki orang serakah sepertimu!" Pertarungan semakin sengit. Kael kini terjebak di antara serangan cahaya suci dari Penjaga Celestial dan badai elemen liar dari Zevaron. Sementara itu, Rowan masih mengamati dari jauh, menunggu momen yang tepat.
+Pedang kristalnya terangkat.
+
+“Cahaya Surgawi akan menghapus kalian.”
+
+Tebasan cahaya menyapu aula. Kael dan Zevaron melompat ke arah berlawanan. Pilar-pilar di belakang mereka terpotong bersih.
+
+Pertarungan tiga arah dimulai.
+
+Zevaron memakai angin untuk mengubah arah tubuh dan petir untuk menyerang dari sudut yang sulit dibaca. Kekuatan elemennya murni, tetapi dipakai tanpa sedikit pun penahanan.
+
+Kael menghindari pedang Penjaga dan menahan cambuk petir Zevaron dengan Zerath's Fang.
+
+Gaya mereka sangat berbeda. Kael membiarkan naluri menyesuaikan diri terhadap bahaya. Zevaron memaksa semua elemen tunduk pada keinginannya.
+
+“Kau terlalu kaku, Malaikat tua,” ejek Zevaron sambil melepaskan ledakan angin. “Zaman Lykaros sudah mati.”
+
+Penjaga membalas dengan hujan bilah cahaya.
+
+Di sisi aula, Rowan tidak bergerak. Matanya mengikuti setiap perubahan energi Kael, terutama ketika Fragmen dan rune Void bereaksi terhadap Aether murni kuil.
+
+“Menarik,” gumamnya.
+
+Kael mencoba memusatkan serangan pada Penjaga yang menghalangi jalan menuju Fragmen. Namun Zevaron terus menekan dari samping.
+
+“Jangan mengabaikanku, Anomali.”
+
+Cambuk petir menyambar.
+
+Kael menangkis, lalu memotong alirannya dengan api biru.
+
+“Fragmen ini bukan benda yang bisa kau rampas.”
+
+Zevaron tertawa. “Semua kekuatan dapat dimiliki oleh orang yang cukup kuat.”
+
+Serangan cahaya kembali datang dari atas.
+
+Kael terjebak di antara pedang suci dan badai elemen, sementara Rowan masih menunggu waktu yang tepat untuk bergerak.

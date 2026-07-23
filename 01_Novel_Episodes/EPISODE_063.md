@@ -1,23 +1,59 @@
 # Episode 063 — Aliansi Tak Terduga
 
-Kael dan Zevaron bangkit perlahan, masih merasakan sisa sengatan dari gelombang energi Inti Cahaya. Zevaron menyeringai marah pada Penjaga Celestial yang berdiri melindungi altar. "Kau pikir cahaya kecil itu bisa menghentikanku selamanya, Malaikat usang?" Dia mulai mengumpulkan energi angin dan petir yang lebih besar dari sebelumnya, menciptakan badai kecil di tangannya. "Aku akan merobek sayapmu itu dan mengambil paksa cahaya bintang itu!"
+Kael dan Zevaron bangkit dari hantaman energi Inti Cahaya.
 
-Zevaron melancarkan serangan badai elemen dahsyat ke arah Penjaga Celestial. Penjaga Celestial dengan cepat menciptakan perisai cahaya keemasan untuk menahan serangan itu, namun dia tampak sedikit kewalahan menghadapi kekuatan elemen murni yang begitu liar dan merusak. "Kekuatanmu... terlalu liar! Merusak fondasi Keseimbangan!"
+Zevaron memandang Penjaga Celestial dengan amarah terbuka.
 
-Melihat Penjaga Celestial kini sepenuhnya fokus pada Zevaron, Kael ragu sejenak. Penjaga ini juga menganggapku sebagai ancaman karena energi Void di lenganku... tapi Zevaron... dia benar-benar ingin menghancurkan tempat ini hanya demi kekuatannya sendiri. Dia teringat prinsip Jalan Keempat yang dipilihnya. Jalan Keempat... bukan berarti membiarkan kehancuran terjadi begitu saja.
+“Kau pikir cahaya itu dapat menghentikanku?”
 
-Kael mengambil keputusan. Dia melesat maju, tapi bukan untuk menyerang Penjaga Celestial. Dia mengarahkan serangannya ke Zevaron dari sisi samping. Kael menembakkan semburan api biru yang dingin. "Musuhmu bukan hanya dia!"
+Angin dan petir berkumpul menjadi badai kecil di tangannya.
 
-Zevaron terpaksa menangkis serangan mendadak Kael, mengalihkan sebagian fokusnya dari Penjaga. "Kau!? Beraninya kau ikut campur, Anomali rendahan!" Penjaga Celestial terkejut melihat tindakan Kael yang tak terduga. "Kau... menolongku?"
+“Aku akan merobek sayapmu dan mengambil Inti itu sendiri.”
 
-"Aku tidak menolongmu!" balas Kael sambil terus melawan Zevaron. "Aku hanya
+Serangan elemen menghantam perisai keemasan Penjaga. Cahaya di permukaannya bergetar, menunjukkan bahwa tenaga liar Zevaron mampu menekan pertahanan Lykaros.
 
-menghentikan dia agar tidak menghancurkan segalanya!"
+“Kekuatanmu merusak fondasi keseimbangan,” kata Penjaga.
 
-Terciptalah sebuah pertarungan dua lawan satu yang aneh. Kael dan Penjaga Celestial, meskipun tidak berkoordinasi dan masih saling curiga, kini sama-sama menyerang Zevaron yang ambisius. Rowan, yang mengamati dari jauh, tersenyum tipis penuh arti. "Menarik sekali. Kael si pembawa kekacauan... malah berbalik melindungi peninggalan suci Celestial."
+Kael melihat keduanya bertarung.
 
-Zevaron, meskipun sangat kuat, mulai terdesak oleh serangan gabungan dari dua arah. Dia bertarung dengan semakin liar dan putus asa.
+Penjaga masih menganggapnya ancaman karena Void dalam lengan kiri. Namun Zevaron akan menghancurkan seluruh kuil tanpa ragu jika itu memberinya kekuatan.
 
-"Dua lawan satu... tidak adil!" teriaknya terengah-engah. "Tapi aku masih punya satu kejutan
+Jalan Keempat bukan alasan untuk berdiri diam ketika kehancuran berlangsung di depan mata.
 
-terakhir untuk kalian!" Zevaron mulai mengumpulkan energi liar dalam jumlah besar, matanya bersinar terang membutakan, sepertinya dia akan mengeluarkan jurus pamungkasnya yang paling merusak. Kael dan Penjaga Celestial segera bersiap siaga menghadapinya.
+Kael bergerak.
+
+Dia tidak menyerang Penjaga. Api biru ditembakkan ke sisi Zevaron, memaksanya memutus serangan.
+
+“Musuhmu bukan hanya dia.”
+
+Zevaron menahan semburan tersebut dengan pusaran angin.
+
+“Kau berani menggangguku?”
+
+Penjaga menatap Kael. “Kau membantuku?”
+
+“Aku menghentikannya agar tidak menghancurkan tempat ini.”
+
+Kael menyerang lagi.
+
+Terbentuk kerja sama yang tidak pernah disepakati. Penjaga Celestial menekan dari udara dengan bilah cahaya, sementara Kael memotong jalur pelarian Zevaron memakai api dan es.
+
+Keduanya masih saling curiga. Namun untuk saat ini, sasaran mereka sama.
+
+Rowan mengamati dari pinggir aula dengan senyum tipis.
+
+“Pembawa kekacauan memilih melindungi peninggalan suci.”
+
+Zevaron mulai terdesak. Setiap kali dia menahan serangan Penjaga, Kael datang dari sisi lain. Setiap kali berbalik kepada Kael, cahaya surgawi menghantam dari atas.
+
+“Dua lawan satu?” Napas Zevaron mulai berat, tetapi kegembiraan liar belum hilang dari wajahnya. “Kalian pikir itu cukup?”
+
+Energi elemen berkumpul dalam jumlah jauh lebih besar.
+
+Angin membentuk pusaran di sekeliling tubuhnya. Petir memenuhi langit-langit kristal, sementara serpihan es terangkat dari lantai.
+
+“Aku masih punya satu kejutan.”
+
+Kael dan Penjaga mengambil posisi.
+
+Kekuatan yang dikumpulkan Zevaron cukup untuk merobek aula bersama semua orang di dalamnya.

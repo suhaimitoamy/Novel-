@@ -1,31 +1,65 @@
 # Episode 064 — Void Melawan Cahaya
 
-Zevaron melepaskan jurus pamungkasnya. Sebuah tornado raksasa terbentuk dari angin badai, kilat petir yang menyambar-nyambar, dan pecahan es setajam silet, berputar mengarah langsung ke Kael dan Penjaga Celestial.
+Zevaron melepaskan seluruh energi yang dikumpulkannya.
 
-"Rasakan ELEMENTAL VORTEX!!" teriak Zevaron.
+Tornado raksasa terbentuk dari angin, petir, dan pecahan es. Pusaran itu memenuhi aula dan bergerak lurus menuju Kael serta Penjaga Celestial.
 
-Penjaga Celestial terbang mundur dengan cepat, menciptakan kubah cahaya keemasan pelindung di sekitar altar tempat Inti Cahaya berada. "Cahaya Abadi, lindungi Inti Suci!" Namun, Kael terjebak tepat di jalur utama tornado elemen yang mengerikan itu.
+“Elemental Vortex!”
 
-Tidak bisa menghindar! Kekuatannya terlalu besar! pikir Kael panik. Dia mencoba menahannya dengan menciptakan perisai api dua warna terkuatnya, tapi tornado itu mengikis perisainya dengan sangat cepat. Saat perisainya hampir hancur total, lengan kirinya yang terintegrasi Void bereaksi hebat.
+Penjaga terbang mundur dan membangun kubah cahaya di sekeliling altar.
 
-Pola rune ungu gelap di kulitnya bersinar terang, seolah menawarkan kekuatan gelap sebagai solusi terakhir. Kekuatan ini lagi... Kael ragu sejenak, teringat rasa sakit dan potensi bahaya kehilangan dirinya. Tapi... aku tidak punya pilihan lain... Maafkan aku...
+“Cahaya Abadi, lindungi Inti Suci.”
 
-Dengan terpaksa, Kael menyalurkan energi Void dari lengan kirinya, mencampurkannya dengan energi api merah dan biru Fragmen-nya. Seketika, aura hitam keunguan yang pekat dan berputar terbentuk di sekelilingnya. Anehnya, aura gelap itu mulai menyerap sebagian energi dari tornado elemen Zevaron.
+Kael berada tepat di jalur serangan.
 
-Energi Void aktif. Namun, perpaduan energi yang ekstrem itu menyiksa Kael. Dia merasa sakit luar biasa saat energi Void korup dan energi elemen murni (yang juga mengandung energi Celestial dari kuil itu) beradu hebat di dalam auranya.
+Dia membentuk perisai api merah-biru terkuat yang mampu dipanggil. Tornado menghantam dan mengikisnya lapis demi lapis.
 
-"AAAAARRGGHH!!!" teriaknya kesakitan.
+Pertahanannya tidak akan bertahan.
 
-Zevaron terkejut melihat serangannya diserap. "Apa!? Energi busuk macam apa itu!?" Penjaga Celestial, melihat Kael kini diselimuti energi Void yang pekat, langsung menganggapnya sebagai ancaman terbesar. "Noda Kehampaan! Jadi benar dugaanku selama ini!" Tanpa ragu, Penjaga itu menembakkan sinar cahaya pemurnian yang kuat ke arah Kael, berniat menghapus energi Void itu.
+Rune pada lengan kiri menyala, menawarkan energi Void sebagai jalan keluar.
 
-"Tidak!" teriak Kael saat melihat sinar cahaya suci itu datang tepat saat dia sedang berjuang
+Kael tahu akibatnya. Setiap kali menggunakan kekuatan itu, batas antara dirinya dan korupsi menjadi semakin tipis.
 
-mengendalikan perpaduan energi yang tidak stabil.
+Namun tornado sudah hampir menembus.
 
-Sinar cahaya pemurnian menghantam aura Void Kael. Terjadi ledakan energi campuran yang dahsyat – perpaduan antara Void, Cahaya, Api, dan Es – yang mengguncang seluruh kuil. Ledakan Void vs Cahaya. Ledakan itu menghancurkan sisa tornado Zevaron dan mendorong semua orang mundur dengan keras.
+“Maaf,” gumamnya kepada tubuhnya sendiri.
 
-Kael terlempar paling jauh, menabrak pilar kristal hingga retak. Lengan kirinya berasap tipis, dan anehnya, kini terasa lumpuh sementara dan dingin membeku, tapi sebagian rasa sakit kronis yang biasa dia rasakan dari korupsi Void itu justru mereda, digantikan oleh sensasi dingin kosong yang asing.
+Void mengalir dari lengan kiri dan bercampur dengan api serta es. Aura hitam keunguan terbentuk di sekeliling Kael.
 
-Apa yang terjadi? pikir Kael bingung sambil mencoba menggerakkan lengan kirinya yang terasa aneh. Rasanya... berbeda. Rowan, yang berhasil menahan ledakan dari jauh, melihat Kael dengan mata bersinar penuh ketertarikan. "Purifikasi dan Korupsi... terjadi bersamaan dalam satu wadah.
+Energi tornado mulai tersedot ke dalamnya.
 
-Eksperimen Arsitek... mungkin berhasil lebih cepat dari yang pernah Dia duga." Kael mencoba bangkit, mengabaikan lengannya yang terasa aneh. Zevaron dan Penjaga Celestial juga mulai bangkit, kini sama-sama menatap Kael dengan campuran antara ngeri dan kebingungan atas energi kompleks yang baru saja dia tunjukkan.
+Rasa sakit segera menyusul. Elemen murni Zevaron, Fragmen Kael, dan Void bertabrakan dalam ruang yang sama. Tubuhnya menjadi pusat tarikan yang dapat meledak kapan saja.
+
+Zevaron menatap tidak percaya. “Energi apa itu?”
+
+Penjaga Celestial melihat aura gelap dan mengambil keputusan berbeda.
+
+“Noda Kehampaan.” Pedang kristalnya mengarah kepada Kael. “Dugaanku benar.”
+
+Sinar pemurnian ditembakkan.
+
+Kael masih berusaha menahan tornado ketika cahaya suci menghantam aura Void.
+
+Ledakan besar mengguncang kuil.
+
+Api, es, Aether, dan Void bercampur dalam gelombang yang menghancurkan sisa tornado dan melemparkan semua orang ke arah berbeda.
+
+Kael menabrak pilar kristal hingga permukaannya retak.
+
+Lengan kirinya mengeluarkan asap. Bagian itu lumpuh dan dingin, tetapi rasa sakit korupsi yang selama ini terus berdenyut mendadak mereda.
+
+Bukan sembuh.
+
+Lebih seperti sesuatu telah dibekukan jauh di dalam struktur energinya.
+
+Rowan menahan ledakan dari pinggir aula. Ketertarikan memenuhi matanya.
+
+“Purifikasi dan korupsi terjadi bersamaan dalam satu wadah.”
+
+Senyumnya perlahan muncul.
+
+“Eksperimen Arsitek berkembang lebih cepat dari perkiraan.”
+
+Kael mencoba bangkit. Zevaron dan Penjaga Celestial juga mulai berdiri, tetapi kini keduanya memandangnya dengan campuran takut dan bingung.
+
+Untuk sesaat, Kael menjadi ancaman terbesar di ruangan itu.

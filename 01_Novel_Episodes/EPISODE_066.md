@@ -1,25 +1,53 @@
 # Episode 066 — Pengkhianat Sejati
 
-Energi Void gelap Rowan menghantam perisai cahaya Penjaga Celestial, menyebabkan retakan-retakan halus muncul di permukaannya yang keemasan. Penjaga Celestial terkejut oleh kekuatan serangan Void Rowan. "Energi ini... lebih pekat dan merusak dari yang kubayangkan!"
+Energi Void Rowan menekan perisai keemasan. Retakan tipis muncul pada cahaya pelindung.
 
-Di saat bersamaan, Zevaron menghantam sisi lain perisai dengan badai elemen angin dan petir tanpa henti. "Minggir, Malaikat tua! Fragmen itu akan menjadi milikku!" Penjaga Celestial kini terdesak hebat dari dua arah. Perisai cahayanya mulai retak semakin parah. Inti Cahaya di belakangnya berkedip semakin liar, energinya tidak stabil.
+Dari sisi lain, Zevaron menghantam dengan angin dan petir tanpa memberi jeda.
 
-Jika Fragmen itu rusak atau dikorupsi oleh Void... apa yang akan terjadi pada Keseimbangan Zerath? pikir Kael ngeri. Rowan... apa sebenarnya rencana akhirmu!?
+“Minggir, Malaikat tua. Fragmen itu akan menjadi milikku.”
 
-"ROWAN! HENTIKAN!" teriak Kael. "APA YANG KAU INGINKAN SEBENARNYA DENGAN
+Penjaga Celestial menahan dua serangan sekaligus. Cahayanya mulai meredup, sementara Inti di belakangnya berputar semakin liar.
 
-MELAKUKAN INI!?" Rowan, sambil terus menekan pertahanan Penjaga, menoleh sedikit ke arah Kael, senyumnya dingin dan penuh kepastian. "Aku sudah bilang padamu sejak awal, Kael. Keseimbangan baru untuk Zerath. Sang Arsitek tidak membutuhkan Fragmen Celestial ini utuh... Dia hanya butuh... energinya saat pecah berkeping-keping."
+Jika Fragmen tersebut pecah atau terkorupsi, dampaknya tidak akan berhenti di kuil.
 
-Dia meningkatkan kekuatan Void dari tongkatnya. "Pecahnya Fragmen Celestial ini akan mengirimkan gelombang kejut dimensional yang dahsyat... cukup kuat untuk merobek paksa segel Gerbang Es sepenuhnya! Dan membebaskan 'Nyanyian Kehampaan' ke seluruh Zerath!"
+“Rowan, hentikan!” Kael berteriak. “Apa yang sebenarnya kau inginkan?”
 
-Kael terkejut ngeri mendengar rencana itu. "Jadi... 'pengorbanan' yang kau sebutkan itu... bukan darah pewaris... tapi Fragmen ini sendiri!? Kau ingin menghancurkannya!?"
+Rowan menoleh sedikit tanpa mengurangi tekanan tongkatnya.
 
-"Tepat sekali," jawab Rowan tenang. "Dan kau, Kael, dengan resonansi Fragmen unik di dalam dirimu yang mampu menyatu dengan Void... akan menjadi wadah atau penyalur yang sempurna untuk energi kehancuran itu saat dilepaskan ke seluruh Zerath."
+“Keseimbangan baru untuk Zerath.”
 
-Penjaga Celestial, yang mendengar percakapan mengerikan itu di tengah perjuangannya, meraung marah dan putus asa. "Tidak akan kubiarkan kau menghancurkan Hati Lykaros dan Zerath!" Dia mulai mengumpulkan sisa-sisa kekuatan Aether terakhirnya, cahaya di tubuhnya bersinar sangat terang, bersiap untuk serangan terakhir yang mungkin akan mengorbankan dirinya sendiri.
+Senyumnya tenang, terlalu tenang untuk seseorang yang sedang menghancurkan peninggalan suci.
 
-Zevaron, yang juga mendengar rencana Rowan, menyadari bahwa dia juga hanya akan menjadi korban jika Fragmen keenam ini hancur. Dia ragu sejenak, serangan elemennya sedikit melambat. "Membuka Gerbang Es sepenuhnya!? Rowan, kau sudah gila!"
+“Sang Arsitek tidak membutuhkan Fragmen Celestial dalam keadaan utuh. Dia membutuhkan energi yang dilepaskan saat benda itu pecah.”
 
-"Ini bukan kegilaan, Zevaron," balas Rowan. "Ini adalah evolusi yang tak terhindarkan!"
+Kael membeku sesaat.
 
-Penjaga Celestial bersiap meledakkan diri atau mengeluarkan serangan terakhirnya demi melindungi Inti Cahaya. Zevaron tampak ragu antara melanjutkan serangan atau mencoba menghentikan Rowan. Rowan tersenyum penuh kemenangan, siap memanfaatkan kekacauan atau ledakan yang akan terjadi. Kael harus bertindak dalam hitungan detik untuk mencegah bencana.
+“Ledakannya akan menghasilkan gelombang kejut dimensi,” lanjut Rowan. “Cukup kuat untuk merobek segel Gerbang Es dan membebaskan Nyanyian Kehampaan ke seluruh Zerath.”
+
+“Jadi pengorbanan yang kau maksud adalah Fragmen ini?”
+
+“Sebagian.” Tatapan Rowan beralih kepada Kael. “Kau adalah bagian berikutnya.”
+
+Energi Void pada tongkat meningkat.
+
+“Resonansi unikmu mampu menyatukan Fragmen dan kehampaan. Saat Inti ini hancur, tubuhmu akan menjadi penyalur sempurna untuk menyebarkan gelombangnya ke seluruh dunia.”
+
+Penjaga Celestial mendengar rencana tersebut. Cahaya di keenam sayapnya menyala semakin terang.
+
+“Tidak akan kubiarkan Hati Lykaros dan Zerath dihancurkan.”
+
+Dia mulai mengumpulkan seluruh sisa Aether. Energi yang muncul terlalu besar untuk sekadar serangan biasa.
+
+Penjaga itu berniat mengorbankan diri.
+
+Zevaron ikut memahami bahwa kehancuran Inti akan merampas kekuatan yang diinginkannya dan mungkin membunuh semua orang di aula.
+
+Serangannya melambat.
+
+“Membuka Gerbang Es sepenuhnya?” Dia menatap Rowan. “Kau sudah gila.”
+
+“Bukan kegilaan. Evolusi.”
+
+Perisai Penjaga hampir runtuh. Cahaya bunuh dirinya terus membesar. Rowan menunggu ledakan yang dia butuhkan, sedangkan Zevaron ragu antara keserakahan dan keselamatan sendiri.
+
+Kael hanya memiliki beberapa detik sebelum salah satu dari mereka memicu bencana.

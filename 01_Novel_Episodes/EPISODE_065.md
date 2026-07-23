@@ -1,29 +1,57 @@
 # Episode 065 — Ambisi Rowan
 
-Keheningan yang tegang menyelimuti aula kuil sesaat setelah ledakan energi campuran Void dan Cahaya. Kael, Zevaron, dan Penjaga Celestial perlahan bangkit, mengambil posisi bertahan, saling mengawasi dengan penuh curiga.
+Aula mendadak sunyi setelah ledakan.
 
-"Energi menjijikkan macam apa yang kau gunakan tadi, Anomali!?" tanya Zevaron,
+Kael, Zevaron, dan Penjaga Celestial bangkit dengan hati-hati. Masing-masing menjaga jarak sambil mengawasi pihak lain.
 
-tatapannya penuh ketidakpercayaan. Penjaga Celestial mengarahkan pedang cahayanya yang sedikit meredup ke arah Kael.
+“Energi menjijikkan apa yang kau gunakan?” tanya Zevaron.
 
-"Kau membawa racun Kehampaan ke tempat suci ini!"
+Pedang Penjaga mengarah kepada Kael. “Kau membawa racun Kehampaan ke tempat suci.”
 
-Kael mencoba menggerakkan lengan kirinya yang terasa dingin dan sedikit mati rasa. "Ini... bukan sepenuhnya kemauanku." Dia menatap Rowan yang masih berdiri tenang di pinggir aula. "ROWAN! INI SEMUA BAGIAN DARI RENCANAMU SEJAK AWAL, KAN!?"
+Kael mencoba menggerakkan lengan kiri. Bagian itu masih dingin dan mati rasa.
 
-Rowan hanya tersenyum tipis penuh teka-teki. Memanfaatkan momen saat perhatian semua orang terfokus pada Kael dan kondisinya yang aneh, dia bergerak. Dengan kecepatan Void yang mengejutkan, Rowan melesat maju. Tapi tujuannya bukan Kael. Dia mengarah langsung ke altar tempat Inti Cahaya (Fragmen Keenam) melayang.
+“Aku tidak sepenuhnya mengendalikannya.”
 
-"Waktunya sempurna," gumam Rowan. Penjaga Celestial menyadari gerakan Rowan yang tiba-tiba. "Beraninya kau!" Sang Penjaga terbang cepat, mencoba mencegat Rowan sebelum dia mencapai Inti Cahaya. Rowan mengangkat tongkat Void obsidiannya. Sebuah rune kompleks dan gelap muncul di ujung tongkat, memancarkan aura yang menyesakkan. Dia menggumamkan mantra dalam bahasa kuno yang tidak dikenal.
+Tatapannya beralih kepada Rowan.
 
-"Wahai Kehampaan yang Agung, pinjamkan sedikit gemamu... untuk merusak Cahaya Abadi yang sombong ini!" Dia mengarahkan tongkatnya lurus ke Inti Cahaya, bersiap menembakkan seberkas energi Void gelap untuk mengkorupsinya.
+“Ini bagian dari rencanamu sejak awal, bukan?”
 
-"Tidak!" teriak Kael saat menyadari niat Rowan. "Dia mau merusak Fragmen itu!"
+Rowan hanya tersenyum.
 
-Zevaron, meskipun membenci Kael, juga melihat tindakan Rowan. Matanya menyala marah. Dia juga menginginkan kekuatan Fragmen itu, bukan untuk dihancurkan atau dikorupsi.
+Saat seluruh perhatian tertuju kepada Kael, dia bergerak.
 
-"Hei! Itu milikku!"
+Tubuhnya melesat menuju altar dalam kilatan Void.
 
-Mengabaikan Kael dan Penjaga, Zevaron juga melesat ke arah altar, mencoba menghentikan Rowan sekaligus merebut Inti Cahaya untuk dirinya sendiri. Penjaga Celestial tiba di depan altar tepat sebelum Rowan menembakkan energi Voidnya.
+“Waktunya tepat.”
 
-Dengan sisa kekuatannya, Penjaga itu menciptakan perisai cahaya keemasan terakhir untuk melindungi Inti Cahaya. "Tidak akan kubiarkan kau menodainya!" Rowan tersenyum licik. "Aku tidak perlu menghancurkanmu... cukup mengganggumu saja sudah cukup."
+Penjaga Celestial menyadari niatnya dan terbang mencegat.
 
-Rowan menembakkan energi Void gelapnya ke perisai cahaya Penjaga Celestial, sementara Zevaron menyerang Penjaga dari sisi lain dengan badai elemennya. Inti Cahaya di belakang Penjaga berkedip tidak stabil karena energi konflik yang begitu dekat. Kael harus segera memutuskan siapa yang harus dia hentikan – Rowan yang ingin mengkorupsi Fragmen, atau Zevaron yang ingin merebutnya.
+“Beraninya kau.”
+
+Rune gelap terbentuk di ujung tongkat Rowan. Udara di sekitarnya terasa menyesakkan.
+
+“Wahai Kehampaan, pinjamkan gemamu untuk merusak Cahaya Abadi.”
+
+Tongkat diarahkan kepada Inti Cahaya.
+
+“Dia akan mengkorupsi Fragmen,” teriak Kael.
+
+Zevaron ikut bergerak. Dia menginginkan Inti tersebut tetap utuh agar dapat dimiliki, bukan dihancurkan oleh Rowan.
+
+“Itu milikku.”
+
+Penjaga mencapai altar lebih dulu dan membentuk perisai keemasan terakhir.
+
+“Tidak akan kubiarkan Hati Lykaros ternoda.”
+
+Rowan tersenyum tipis. “Aku tidak perlu menghancurkanmu. Cukup membuatmu lengah.”
+
+Energi Void menghantam perisai dari depan.
+
+Pada saat yang sama, badai Zevaron menyerang dari samping. Penjaga menahan dua kekuatan sekaligus, sementara Inti Cahaya berdenyut tidak stabil di belakangnya.
+
+Kael berdiri beberapa langkah dari mereka.
+
+Rowan ingin merusak Fragmen. Zevaron ingin merebutnya. Keduanya akan menghancurkan kuil jika dibiarkan.
+
+Dia harus menentukan siapa yang dihentikan lebih dahulu—dan setiap detik membuat pertahanan Penjaga semakin dekat pada kehancuran.
