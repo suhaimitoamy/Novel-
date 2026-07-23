@@ -1,25 +1,41 @@
 # Episode 113 — Ruang Kontrol Sekunder
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di ruang inti Urdron. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Letnan Arsitek menyerang sebelum mereka mencapai pusat.
 
-Serangan Letnan Arsitek berzirah geometri datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ruang terpelintir dan melepaskan tekanan seperti palu. Kael menahannya dengan Pulse pendek, lalu bergeser agar serangan berikut menjauh dari Sylvara.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Gema Pengetahuan di tangan Sylvara, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Gema Pengetahuan memancarkan cahaya dari sisi lain. Untuk sesaat, Letnan harus membagi perhatian.
 
-Kael menerapkan gelombang lawan-fase pada inti singularitas. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael mencari frekuensi alami di balik zirah geometris. Di antara jutaan getaran, satu nada terdengar terlalu sempurna.
 
-“Sekarang, Kael! Simpul Jantung Mekanis ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Simpul kendali.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh ruang inti Urdron sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Sekarang,” seru Sylvara.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Dalam benturan Jantung Mekanis, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael membalik fase Pulse. Pertahanan Letnan padam dan retak dari dalam.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Jantung Mekanis tetap memiliki batas yang tak boleh dilanggar.
+Namun energi yang lepas berpindah ke dinding. Ruang inti berubah menjadi tubuh baru bagi penjaga: bilah dan tangan logam tumbuh dari setiap permukaan.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Gema Pengetahuan di tangan Sylvara untuk menghantam pusat kendali yang baru terlihat.
+Kael menunggu gelombang kendali melewati satu sambungan, lalu menghantamnya dengan ledakan kecil. Lorong terbuka tanpa meruntuhkan Jantung Mekanis.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: jantung itu adalah penjara bagi gema kesadaran dunia. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Mereka menerobos.
 
-Kael merasakan kemenangan kecil atas lapisan luar Jantung Mekanis, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh ruang inti Urdron menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Satu bilah hampir mengenai Sylvara dari belakang. Kael membentuk perisai tipis, menerima benturan yang memutihkan pandangannya.
 
-“Kita membangunkan pusat Jantung Mekanis,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Letnan Arsitek berzirah geometri mulai bergerak dari kedalaman.
+Sylvara memakai kesempatan itu untuk mengarahkan Gema Pengetahuan ke pusat yang terbuka.
+
+Jaringan simbol pecah.
+
+Rekaman yang tersembunyi muncul:
+
+*Jantung Mekanis adalah penjara bagi gema kesadaran dunia.*
+
+Denyut besar mengguncang Urdron.
+
+“Kita membangunkan pusatnya,” kata Sylvara.
+
+Kael memandang cahaya yang menjalar ke bawah.
+
+“Ia sudah bangun. Sekarang ia tahu kita dapat memutus kendalinya.”
+
+Dari kedalaman, bentuk utama Letnan Arsitek mulai bergerak.

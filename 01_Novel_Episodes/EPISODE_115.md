@@ -1,27 +1,51 @@
 # Episode 115 — Pertarungan Pembuka
 
-Suhu berubah setiap kali Kael menarik napas di ruang inti Urdron. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Letnan Arsitek menunggu di pusat Jantung Mekanis.
 
-Semua jalan di ruang inti Urdron berakhir pada satu pusat. Di sanalah Letnan Arsitek berzirah geometri menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menyetel ulang jantung mesin tanpa mematikan Leyline Dwarf mustahil dilakukan.
+Lapisan-lapisan energi mengelilinginya dengan irama berbeda, seolah puluhan hukum dipaksa menjaga satu wadah.
 
-“Kita mencapai pusat Jantung Mekanis bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada Gema Pengetahuan di tangan Sylvara. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Kita hadapi bersama,” kata Sylvara. “Jangan jadikan kami penonton.”
 
-Mereka bergerak serempak. Sekutunya menggunakan Gema Pengetahuan di tangan Sylvara untuk memecah lapisan luar, sedangkan Kael menyusupkan gelombang lawan-fase pada inti singularitas ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Kael mengangguk.
 
-Kael tidak melawan semua lapisan Jantung Mekanis. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Gema Pengetahuan membuka lapisan luar. Kael memasukkan gelombang lawan-fase ke celah yang muncul.
 
-Di pusat jaring Jantung Mekanis itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Tekanan menyambar dari berbagai arah. Dia tidak mencoba menahan semuanya. Kael memilih denyut dasar dan menyelaraskan tubuh dengannya.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di pusat Jantung Mekanis, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Struktur musuh tampak sebagai jaring cahaya.
 
-Letnan Arsitek berzirah geometri mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Di tengahnya terdapat benang kendali Sang Arsitek.
 
-Tidak ada ledakan besar. Letnan Arsitek berzirah geometri retak dalam keheningan ruang inti Urdron. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Pulse merah memisahkan materi. Biru menahan energi. Ungu mengurai pola asing. Ketiganya hampir saling memusnahkan sampai Kael kembali memahami inti Jalan Keempat.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: jantung itu adalah penjara bagi gema kesadaran dunia. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Keseimbangan bukan kekuatan yang memerintah.
 
-Kael memandangi sisa-sisa pusat kendali Jantung Mekanis. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Ia adalah hubungan yang menjaga semua sisi tetap hidup.
 
-“Kita menang?” suara Sylvara terdengar letih. “Kita bertahan,” jawab Kael. Sebelum ia sempat berkata lebih jauh, protokol kiamat lokal mulai menghitung mundur.
+Serangan Sylvara tiba pada waktu yang tepat. Satu demi satu simpul Letnan padam.
 
-Medan Jantung Mekanis menyusut di belakang mereka. Kael melangkah menuju akibat berikut dengan tubuh yang lebih rapuh dan kehendak yang tetap menjadi miliknya.
+Sang penjaga mengerahkan bentuk terakhir. Ruang melipat ke dalam dan seluruh cahaya hilang.
+
+Kael hanya mendengar detak jantung serta suara Sylvara yang memanggil namanya.
+
+Dia mengikuti suara itu dan melepaskan satu Pulse pendek ke frekuensi inti.
+
+Zirah geometris retak tanpa ledakan.
+
+Benang kendali terlepas, sementara energi asli wadah tetap bertahan.
+
+Kael jatuh dan Sylvara menangkap bahunya.
+
+Rekaman di pusat terbuka:
+
+*Jantung ini menahan gema kesadaran dunia.*
+
+Tak ada waktu untuk memahami seluruh maknanya.
+
+Suara mekanis memenuhi ruangan.
+
+**Protokol kiamat lokal diaktifkan.**
+
+Hitungan mundur muncul pada dinding.
+
+Mereka telah mengalahkan Letnan, tetapi Urdron mulai menghancurkan dirinya sendiri.

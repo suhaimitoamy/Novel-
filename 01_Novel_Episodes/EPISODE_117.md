@@ -1,25 +1,39 @@
 # Episode 117 — Eskalasi Kekuatan
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di bengkel terdalam Forge God. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Badai bilah terus mengitari Jantung Mekanis.
 
-Sejak benturan sebelumnya, pola badai bilah geometri dan inti Urdron yang kelebihan beban terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk mengalahkan Letnan Arsitek dan memutus protokol kiamat, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Kael menghitung jeda di antara setiap serangan. Polanya menyerupai napas mesin yang berusaha hidup di bawah perintah asing.
 
-“Ada lapisan lain di bawah Gema Hati Bintang. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zireth. Kael memandangi garis-garis pada permukaan. Ia tahu Zireth benar. Kekuatan mentah hanya akan mempercepat bencana.
+Zireth menunjuk lapisan bawah pada terminal. “Ada ruang kontrol tersembunyi. Jika salah dibuka, bengkel ini runtuh.”
 
-Ia mengalirkan Ragnarok Pulse tiga fase yang dikunci Gema Hati Bintang melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael memetakan rongga dengan Pulse tiga fase. Dua gema kembali dan memperlihatkan ruang yang dihapus dari geometri.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan pengorbanan lengan mekanis Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Zireth mengorbankan sebagian fungsi lengan mekanisnya untuk memaksa terminal membuka jalan.
 
-Kael menyentuh rekaman Gema Hati Bintang. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Di dalam ruangan tersembunyi, rekaman pekerja Urdron masih aktif. Mereka mencoba menahan inti, lalu cahaya putih menghapus wajah serta suara mereka.
 
-Ia memutus kontak dengan rekaman Gema Hati Bintang sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Kael menyentuh proyeksi.
 
-“Ini bukan hanya jejak serangan di Gema Hati Bintang,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zireth. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Satu perintah memenuhi pikirannya:
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Badai bilah geometri dan inti Urdron yang kelebihan beban telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+*Serahkan pilihanmu. Keteraturan akan menyelamatkan semua orang.*
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Keseimbangan bukan energi ketiga, melainkan hubungan yang menjaga dua kutub tetap hidup.
+Dia segera memutus kontak.
 
-“Kalau petunjuk tentang Gema Hati Bintang ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zireth. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+“Ini bukan hanya sabotase mesin,” kata Kael. “Sang Arsitek menanamkan ketakutan sampai mereka menerima kendalinya.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan badai bilah geometri dan inti Urdron yang kelebihan beban berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Dinding mendadak merapat. Inti yang kelebihan beban telah menemukan mereka.
+
+Kael menahan ruang dengan Pulse seimbang. Zireth keluar sambil membawa data, tetapi lengan mekanisnya mengeluarkan percikan dan kehilangan sebagian besar dayanya.
+
+Mereka lolos sesaat sebelum ruangan menutup.
+
+Kael membuka cahaya informasi yang tertinggal di telapak tangannya.
+
+*Keseimbangan bukan energi ketiga. Ia adalah hubungan yang menjaga dua kutub tetap hidup.*
+
+Zireth membaca data yang tersisa. “Berarti kita tidak perlu menekan inti dengan kekuatan baru. Kita harus mengembalikan hubungan antara energi penciptaan dan kehancuran.”
+
+Jalur menuju ruang pusat menyala.
+
+Badai bilah berkumpul di sana, menunggu bersama hitungan mundur yang terus bergerak.

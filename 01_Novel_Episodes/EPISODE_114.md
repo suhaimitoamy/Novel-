@@ -1,27 +1,51 @@
 # Episode 114 — Letnan Arsitek Muncul
 
-Bayangan-bayangan memanjang meski tak ada matahari di ruang inti Urdron. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Letnan Arsitek menutup seluruh jalur.
 
-Mereka telah kehilangan ruang untuk bergerak. Letnan Arsitek berzirah geometri menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Kael mencoba pola yang baru digunakan. Sang musuh telah menyesuaikan frekuensi. Pulse dipantulkan kembali dan menghantam dadanya.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Tulang lengan Kael retak saat menahan dua frekuensi berlawanan. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Dia jatuh pada satu lutut. Tulang lengannya retak saat menahan dua gelombang yang berlawanan.
 
-“Kita mundur dari Jantung Mekanis. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Kita mundur,” kata Sylvara. “Kau tidak perlu mati untuk membuktikan apa pun.”
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Gema Pengetahuan di tangan Sylvara. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Namun jalan belakang telah berubah menjadi dinding tanpa sambungan.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan gelombang lawan-fase pada inti singularitas untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael menutup mata dan mendengarkan.
 
-Letnan Arsitek berzirah geometri bereaksi liar di pusat Jantung Mekanis. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Di bawah tekanan zirah geometris terdapat nada kecil yang goyah setiap kali Gema Pengetahuan menyentuhnya. Bukan kelemahan Letnan, melainkan sesuatu dalam wadah yang masih menolak kendali.
 
-Kael menemukan benang kendali milik Letnan Arsitek berzirah geometri. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh ruang inti Urdron.
+Kael mengubah tujuan.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Jantung Mekanis akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Dia tidak mencoba menghancurkan Letnan. Gelombang lawan-fase dibuat setipis mungkin untuk memisahkan perintah Sang Arsitek dari tubuh penjaga.
 
-“Tidak,” kata Kael di hadapan Jantung Mekanis, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Zirah itu bereaksi liar. Udara menekan telinga, dan darah mulai merembes dari sisi kepala Kael.
 
-Serangan mereka melalui Gema Pengetahuan di tangan Sylvara tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Sylvara berdiri di depannya, menahan bilah-bilah geometri.
 
-Saat debu Jantung Mekanis turun, mereka sadar kemenangan kecil itu menuntut harga permanen: tulang lengan Kael retak saat menahan dua frekuensi berlawanan. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+“Lakukan.”
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Jantung Mekanis terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Kael menemukan benang kendali yang mengarah ke luar Zerath.
+
+Dia mengubah fase sekali.
+
+Dua kali.
+
+Pada perubahan ketiga, zirah Letnan menjerit seperti logam hidup.
+
+*Gunakan entropi penuh,* bisik Sang Arsitek. *Akhiri rasa sakit.*
+
+Ragnarok Pulse berdenyut lapar.
+
+Kael menurunkan amplitudo.
+
+“Tidak.”
+
+Benang tersebut retak. Cahaya Gema Pengetahuan menghantam celah yang sama.
+
+Gelombang balik meruntuhkan sebagian ruang. Kael sempat menarik Sylvara menjauh, tetapi tulang lengannya menerima tekanan penuh.
+
+Ketika debu turun, satu jalur menuju pusat terbuka.
+
+Kael berdiri dengan lengan retak dan napas berat.
+
+Kemenangan kecil itu tidak terasa gagah. Hanya terasa perlu.

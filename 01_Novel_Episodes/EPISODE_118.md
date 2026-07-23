@@ -1,25 +1,45 @@
 # Episode 118 — Momen Kritis
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di bengkel terdalam Forge God. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Badai bilah menyerang ketika mereka memasuki pusat Gema Hati Bintang.
 
-Serangan badai bilah geometri dan inti Urdron yang kelebihan beban datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Kael menahan tekanan pertama. Lantai pecah di bawah kakinya, sementara Zireth menggunakan sisa daya lengan mekanis untuk mengganggu inti.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan pengorbanan lengan mekanis Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael mencari frekuensi alami di balik pusaran.
 
-Kael menerapkan Ragnarok Pulse tiga fase yang dikunci Gema Hati Bintang. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Satu nada terlalu sempurna.
 
-“Sekarang, Kael! Simpul Gema Hati Bintang ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Simpul kendali Sang Arsitek.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh bengkel terdalam Forge God sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Sekarang,” seru Zireth. “Aku hanya mampu menahannya beberapa detik.”
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Dalam benturan Gema Hati Bintang, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael membalik fase Pulse.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Gema Hati Bintang tetap memiliki batas yang tak boleh dilanggar.
+Lapisan luar padam dan retak. Namun energi yang terlepas berpindah ke dinding. Bengkel berubah menjadi tubuh baru bagi musuh, menumbuhkan bilah dan tangan logam dari segala arah.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan pengorbanan lengan mekanis Zireth untuk menghantam pusat kendali yang baru terlihat.
+Kael tidak membalas dengan ledakan besar.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Keseimbangan bukan energi ketiga, melainkan hubungan yang menjaga dua kutub tetap hidup. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Dia menunggu gelombang kendali melewati satu sambungan, lalu menghantam titik terkecil yang dapat mengubah aliran serangan. Lorong sempit terbuka.
 
-Kael merasakan kemenangan kecil atas lapisan luar Gema Hati Bintang, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh bengkel terdalam Forge God menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Mereka bergerak di antara bilah.
 
-“Kita membangunkan pusat Gema Hati Bintang,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama badai bilah geometri dan inti Urdron yang kelebihan beban mulai bergerak dari kedalaman.
+Satu serangan datang dari belakang menuju Zireth. Kael membentuk perisai tipis dan menerima benturan yang membuat pandangannya putih.
+
+Zireth menggunakan kesempatan tersebut untuk menghantam pusat kendali dengan sisa daya lengannya.
+
+Jaringan simbol pecah.
+
+Rekaman tersembunyi kembali menegaskan kebenaran:
+
+*Keseimbangan adalah hubungan, bukan energi yang memerintah.*
+
+Seluruh bengkel menjawab dengan satu denyut keras.
+
+Badai bilah berhenti sejenak, lalu berkumpul menjadi bentuk lebih besar di depan inti.
+
+“Dia sudah tahu cara kita bertarung,” kata Zireth.
+
+Kael berdiri meski sarafnya terbakar.
+
+“Berarti kita berhenti mengulang cara yang sama.”
+
+Hitungan mundur tinggal beberapa menit.

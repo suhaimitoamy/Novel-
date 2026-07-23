@@ -1,25 +1,39 @@
 # Episode 112 — Bisikan Sang Jantung
 
-Keheningan datang seperti tangan yang menutup tenggorokan di ruang inti Urdron. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Letnan Arsitek membayangi setiap langkah mereka.
 
-Sejak benturan sebelumnya, pola Letnan Arsitek berzirah geometri terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menyetel ulang jantung mesin tanpa mematikan Leyline Dwarf, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Denyut pada zirahnya menyerupai napas yang terlalu sempurna. Kael menghitung jeda di antara getaran sambil mencari jalur menuju lapisan bawah Jantung Mekanis.
 
-“Ada lapisan lain di bawah Jantung Mekanis. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+“Ada ruang tersembunyi,” kata Sylvara. “Kalau kita salah membuka, beban kota akan jatuh.”
 
-Ia mengalirkan gelombang lawan-fase pada inti singularitas melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael mengalirkan gelombang lawan-fase melalui rangka baja. Dua gema kembali pada waktu berbeda dan memperlihatkan rongga yang dihapus dari geometri.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Gema Pengetahuan di tangan Sylvara. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Gema Pengetahuan menyalakan segel pada dinding. Celah terbuka.
 
-Kael menyentuh rekaman Jantung Mekanis. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Mereka masuk ke ruang kering yang dipenuhi rekaman rusak. Satu adegan terus berulang: tangan-tangan para pekerja menahan sesuatu, lalu cahaya putih memotong gambar.
 
-Ia memutus kontak dengan rekaman Jantung Mekanis sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Kael menyentuh proyeksi.
 
-“Ini bukan hanya jejak serangan di Jantung Mekanis,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Asap, panas, dan ketakutan menyerbu indranya. Sebuah perintah dingin meminta penduduk menyerahkan kehendak demi keselamatan.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Letnan Arsitek berzirah geometri telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Kael memutus kontak. Darah mengalir dari hidung.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—jantung itu adalah penjara bagi gema kesadaran dunia.
+“Sang Arsitek membuat mereka percaya bahwa kendali adalah perlindungan.”
 
-“Kalau petunjuk tentang Jantung Mekanis ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Dinding mendadak merapat.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Letnan Arsitek berzirah geometri berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Letnan telah menemukan mereka.
+
+Kael menahan kedua sisi dengan Pulse seimbang. Sylvara keluar lebih dulu sambil membawa data yang sempat disalin. Kael menyusul sesaat sebelum ruangan menutup menjadi garis.
+
+Cahaya informasi tertinggal di telapak tangannya.
+
+*Jantung Mekanis adalah penjara bagi gema kesadaran dunia.*
+
+Pengunci di lorong depan terbuka satu demi satu.
+
+Letnan Arsitek berdiri pada ujung cahaya, menunggu di depan pusat kendali.
+
+Jalan tersebut bukan kelalaian.
+
+Sang Arsitek sengaja mengundang mereka masuk lebih dalam.
