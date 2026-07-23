@@ -1,47 +1,85 @@
 # Episode 090 — Di Hadapan Pengkhianat
 
-Di aula utama Kuil Pengorbanan yang gelap, suasana terasa sangat tegang. Kael, Sylvara, dan Zireth berhadapan dengan Rowan dan Zevaron yang kini berdiri kaku di sampingnya seperti boneka tak bernyawa. Kael menggenggam erat Zerath's Fang di satu tangan dan tongkat Void milik Rowan di tangan lainnya. "Ujian terakhir apa yang kau maksud, Rowan?"
+Kael menggenggam Zerath's Fang dan tongkat obsidian milik Rowan.
 
-"Sang Arsitek ingin melihat potensimu yang sebenarnya secara langsung," jawab Rowan tenang. "Apakah kau memang layak menjadi Kunci Agung untuk tatanan baru... atau hanya sekrup kecil yang rusak dan harus dibuang." Dia memberi isyarat singkat pada Zevaron.
+“Ujian terakhir apa?”
 
-"Serang dia."
+“Sang Arsitek ingin melihat potensimu.” Rowan berdiri tenang di depan pusaran Void. “Apakah kau layak menjadi Kunci Agung bagi tatanan baru, atau hanya bagian rusak yang harus dibuang.”
 
-Zevaron seketika melesat maju, matanya yang kosong memancarkan cahaya ungu. Dia menyerang Kael dengan badai elemen angin dan petir yang liar, namun tanpa strategi atau kelihaian seperti saat dia bertarung di kuil Celestial dulu.
+Dia memberi isyarat kepada Zevaron.
 
-Kael menangkis dan menghindar dari serangan membabi buta itu. "Zevaron! Sadarlah! Ini bukan dirimu yang sebenarnya!" teriaknya, berharap bisa menembus kendali Rowan. Namun, Zevaron tidak merespon sama sekali, terus menyerang tanpa henti.
+“Serang.”
 
-"Dia dikendalikan sepenuhnya!" seru Sylvara sambil menembakkan panah penenang ke
+Zevaron melesat maju.
 
-arah Zevaron, yang ternyata tidak berpengaruh.
+Angin dan petir meledak dari tubuhnya, tetapi serangannya tidak lagi memiliki kecerdikan yang Kael lihat di Kuil Celestial. Dia bergerak liar berdasarkan satu perintah.
 
-"Fokus pada Rowan!" teriak Zireth. "Dia pasti mengendalikannya melalui liontin itu, atau
+“Zevaron, sadarlah.”
 
-mungkin melalui tongkatnya yang asli!" Rowan tertawa mendengar itu. "Salah. Aku tidak perlu mengendalikannya secara terus menerus. Aku hanya perlu menanamkan satu perintah sederhana di benaknya yang sudah lemah itu: Hancurkan Kael Drayven." Dia mengangkat tangannya ke arah pusaran Void di altar di belakangnya, yang seketika berputar lebih cepat. "Sementara kalian sibuk bermain dengan boneka baruku... aku akan menyerap energi murni dari Nexus Point Void ini untuk diriku sendiri."
+Tidak ada jawaban.
 
-Kael menyadari rencana Rowan. "Dia hanya menggunakan Zevaron sebagai pengalih perhatian!" Dia berteriak pada teman-temannya, "Aku akan tahan Zevaron! Kalian berdua, hentikan Rowan sebelum dia menyerap semua energi itu!"
+Kael menghindari cambuk petir dan menahan pusaran angin dengan energi tiga warna.
 
-Kael kini fokus sepenuhnya melawan Zevaron, menggunakan keseimbangan energi tiga warnanya untuk menahan dan menetralisir serangan elemen liar dari rivalnya yang telah dicuci otak itu. Sementara itu, Sylvara dan Zireth melancarkan serangan gabungan ke arah Rowan, yang berdiri tenang di depan altar sambil menyerap energi ungu gelap dari pusaran Void.
+Sylvara menembakkan panah penenang, tetapi Zevaron tidak bereaksi.
 
-Rowan hanya tersenyum, menciptakan perisai Void hitam di sekelilingnya dengan mudah untuk menahan serangan mereka. "Terlambat!" Energi Void murni dari altar tersedot deras ke dalam liontin spiral pecah Vorthax di leher Rowan. Liontin itu bersinar sangat terang, menyilaukan.
+“Dia dikendalikan sepenuhnya,” katanya.
 
-Energi Void terserap hebat. Rowan merasakan kekuatannya meningkat drastis. "Ya… energi Kehampaan murni ini…" Tiba-tiba, terdengar suara retakan halus. Liontin Vorthax di leher Rowan mulai retak! Rowan terkejut. "Apa!?"
+“Serang Rowan,” seru Zireth. “Sumber perintahnya mungkin liontin itu.”
 
-Energi Void masif yang coba dia serap paksa melalui liontin itu menjadi tidak stabil. Sebagian energi liar itu meledak keluar dari liontin yang retak, mengenai Rowan dan Zevaron yang berada di dekatnya. Ledakan energi Void tak stabil.
+Rowan tertawa.
 
-"Arrrghh!!" Rowan terlempar keras ke belakang, perisai Voidnya hancur.
+“Aku tidak perlu mengendalikannya setiap saat. Aku hanya menanamkan satu perintah pada pikirannya yang sudah lemah: hancurkan Kael Drayven.”
 
-Zevaron juga terkena ledakan itu. Anehnya, ledakan energi Void itu sepertinya memutuskan benang kendali Rowan padanya. Mata Zevaron kembali normal sesaat, menunjukkan ekspresi kebingungan dan rasa sakit yang hebat, sebelum akhirnya dia jatuh pingsan. "Uh…
+Pusaran di altar mulai berputar lebih cepat.
 
-Kael…?" gumamnya lemah sebelum tak sadarkan diri. Kael, Sylvara, dan Zireth melihat Rowan yang kini terluka dan liontin di lehernya yang retak parah.
+“Sementara kalian sibuk, aku mengambil energi Nexus Point ini.”
 
-"Liontin itu… tidak cukup kuat untuk menahan energi sebesar itu?" tanya Kael heran.
+Kael memahami pengalihan tersebut.
 
-"Atau..." Zireth menganalisis situasi. "...mungkin memang dirancang untuk tidak stabil sejak
+“Aku tahan Zevaron. Kalian hentikan Rowan.”
 
-awal? Mungkin ini juga bagian dari rencana Arsitek untuk menguji sesuatu?" Rowan bangkit perlahan, wajahnya penuh amarah dan sedikit rasa sakit. Liontin di lehernya masih retak, namun tetap memancarkan energi ungu gelap yang kini terasa lebih pekat dan liar dari sebelumnya.
+Sylvara dan Zireth menyerang bersama. Panah rune serta gelombang sonik menghantam perisai Void yang dibentuk Rowan tanpa kesulitan.
 
-"Gagal… atau mungkin… ini justru mempercepat prosesnya?" gumam Rowan pada dirinya
+“Terlambat.”
 
-sendiri. Dia menatap Kael dengan tatapan membunuh yang baru. "Tidak masalah. Masih ada cara lain untuk menjadikanmu Kunci Pengorbanan yang sempurna." Dia mengangkat
+Energi murni dari pusaran mengalir deras ke liontin Vorthax.
 
-tangannya yang kini diselimuti energi Void pekat yang berderak. "Waktunya untuk benar-benar mengakhiri ini, Kael." Rowan kini terluka, liontinnya rusak, namun kekuatan Void yang baru diserapnya membuatnya jauh lebih berbahaya. Pertarungan terakhir di Kuil Pengorbanan akan segera dimulai.
+Rowan mengangkat kepala ketika kekuatan memenuhi tubuhnya.
+
+Lalu suara retakan tipis terdengar.
+
+Liontin itu pecah lebih lebar.
+
+“Apa?”
+
+Energi yang dipaksa masuk kehilangan kestabilan. Ledakan Void menghancurkan perisai Rowan dan melemparkannya ke belakang.
+
+Gelombang yang sama menghantam Zevaron.
+
+Cahaya ungu pada matanya padam sesaat. Tatapan emasnya kembali, penuh kebingungan dan rasa sakit.
+
+“Kael?”
+
+Tubuhnya jatuh tidak sadar.
+
+Kael menatap liontin yang retak parah. “Benda itu tidak mampu menahan energinya.”
+
+“Atau sejak awal dirancang untuk gagal,” kata Zireth. “Arsitek mungkin sedang menguji akibat kehancurannya.”
+
+Rowan bangkit perlahan.
+
+Wajahnya terluka dan dipenuhi amarah. Liontin rusak masih tergantung di leher, tetapi energi yang mengelilingi tubuhnya kini lebih pekat dan liar.
+
+“Gagal?” Dia memandang tangannya sendiri. “Mungkin prosesnya justru dipercepat.”
+
+Tatapannya berubah menjadi niat membunuh.
+
+“Masih ada cara lain menjadikanmu Kunci Pengorbanan yang sempurna.”
+
+Void berderak di sekeliling lengannya.
+
+“Kali ini, kita akhiri semuanya.”
+
+Kael mengambil posisi di depan Sylvara, Zireth, dan Zevaron yang pingsan.
+
+Pertarungan sebenarnya baru akan dimulai.

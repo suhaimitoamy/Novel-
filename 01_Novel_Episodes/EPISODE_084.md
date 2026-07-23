@@ -1,27 +1,57 @@
 # Episode 084 — Pertahanan Terakhir Nyara
 
-(Narasi beralih sejenak ke Sanctuary Nyara) Sanctuary Nyara of the 9 Eyes kini terasa berbeda. Taman yang tadinya tenang kini diselimuti kabut Void yang lebih pekat dan dingin. Pohon willow menangis raksasa yang menjadi pusat taman tampak layu, daun-daun peraknya berguguran seperti air mata beku.
+Jauh di belakang mereka, sanctuary Nyara tidak lagi damai.
 
-Nyara duduk bersila tak bergerak di bawah pohon itu, bermeditasi dalam keheningan. Kain penutup matanya kini basah oleh darah hitam yang merembes perlahan. Dia datang... pikir Nyara lemah. Kesadaran Arsitek itu... mencoba merobek tabir pelindung tempat ini… mencari gema penglihatan tentang Kael…
+Kabut Void memenuhi taman. Daun-daun perak pada pohon willow raksasa layu dan jatuh seperti air mata beku.
 
-Kabut Void di sekelilingnya mulai menggumpal, membentuk sosok-sosok bayangan tanpa wajah, mirip Gema Nyxaria yang dihadapi Kael, namun kini jumlahnya puluhan dan aura mereka jauh lebih agresif. Bayangan terbentuk dari kabut.
+Nyara duduk bersila di bawahnya. Darah hitam membasahi kain penutup mata.
 
-Meskipun sangat lemah, Nyara mengangkat tangannya yang keriput. Sembilan titik cahaya lembut muncul di udara di sekelilingnya – mata-mata astralnya yang tersisa. "Tempat ini adalah simpul Gema waktu, jantung dari hutan ini. Kau tidak akan bisa merusaknya semudah itu, Arsitek," bisiknya dalam hati.
+*Dia datang.*
 
-Mata-mata astral Nyara menembakkan cahaya lembut ke arah sosok-sosok bayangan, mencoba mengusir atau menenangkan energi Void mereka. Beberapa bayangan lenyap saat terkena cahaya itu, namun lebih banyak lagi yang terus muncul dari kabut Void yang semakin pekat.
+Kesadaran Arsitek menekan lapisan ilusi, mencari sisa penglihatan tentang Kael.
 
-Dia hanya menguji pertahananku... menunggu celah... Nyara merasakan Kael dan teman-temannya berhasil lolos dari jebakan distorsi Arsitek di hutan luar. Bagus... mereka berhasil lolos... Tiba-tiba, salah satu dari sembilan mata astral Nyara meredup cahayanya lalu pecah seperti kaca.
+Kabut menggumpal menjadi puluhan sosok tanpa wajah. Bentuk mereka menyerupai Gema Nyxaria, tetapi jauh lebih agresif.
 
-Nyara terkesiap menahan sakit. "Ngh! Dia menemukan celah... melalui sisa koneksi singkatku dengan pikiran Kael saat memberikan visi tadi!" Sosok bayangan terbesar, yang bentuknya samar-samar menyerupai pola geometris dingin yang kompleks, berhasil menembus pertahanan cahaya Nyara. Ia mengulurkan tangan kabut hitamnya ke arah Nyara yang tak berdaya.
+Nyara mengangkat tangan.
 
-« Informasi… Gema Kemungkinan… Masa Depan Kael Drayven… Serahkan… » suara dingin Arsitek bergema langsung di benak Nyara.
+Sembilan mata astral muncul di sekelilingnya dan memancarkan cahaya lembut.
 
-Nyara tersenyum tipis meskipun kesakitan. "Masa depan… tidak pernah tertulis di batu, Arsitek. Yang ada hanyalah… pilihan." Dengan sisa kekuatannya, Nyara memfokuskan seluruh energinya. Dia tidak menyerang balik, tapi melepaskan gelombang energi penenang yang murni dan kuat ke seluruh area sanctuary.
+“Tempat ini adalah simpul gema waktu. Kau tidak akan mengambilnya.”
 
-Gelombang energi damai menyebar. Gelombang energi damai itu membuat sosok-sosok bayangan Void goyah dan perlahan memudar. Kabut Void pekat di taman mulai menipis. Namun, harga yang dibayar Nyara untuk mengusir intrusi Arsitek itu sangatlah mahal.
+Cahaya menghantam bayangan. Beberapa lenyap, tetapi kabut terus melahirkan pengganti.
 
-Delapan mata astralnya yang tersisa meredup satu per satu, cahayanya padam. Pohon willow menangis di atasnya menjatuhkan semua daun terakhirnya, menjadi kerangka kayu yang sunyi. Nyara terbatuk lemah, tubuhnya jatuh bersandar ke batang pohon yang kini mati.
+Arsitek belum menyerang dengan seluruh kekuatan. Dia menguji pertahanan dan mencari celah melalui koneksi yang sempat terbentuk antara Nyara dan Kael.
 
-"Pergilah… Kael… Temukan… jalan keempatmu…” bisiknya sebelum kegelapan
+Salah satu mata astral retak.
 
-menelannya. Nyara kini sendirian di sanctuary-nya yang sunyi dan terasa rapuh. Dia berhasil mengusir intrusi Arsitek untuk sementara waktu, namun kekuatannya terkuras habis, nasibnya tak menentu.
+Nyara tersentak. Rasa sakit menembus pikirannya.
+
+“Dia menemukannya.”
+
+Bayangan terbesar muncul dari kabut. Tubuhnya tersusun dari pola geometris yang terus berubah.
+
+Tangan hitam terulur.
+
+*Informasi. Gema kemungkinan. Masa depan Kael Drayven. Serahkan.*
+
+Nyara tersenyum meski napasnya melemah.
+
+“Masa depan tidak pernah dipahat pada batu. Yang ada hanya pilihan.”
+
+Dia tidak menyerang balik.
+
+Seluruh energi yang tersisa dilepaskan sebagai gelombang ketenangan. Cahaya damai menyapu taman dan mengganggu bentuk-bentuk Void yang dibangun dari ketakutan serta paksaan.
+
+Satu demi satu bayangan memudar. Kabut menipis hingga pola Arsitek ikut menghilang.
+
+Namun harga pertahanan itu terlalu besar.
+
+Delapan mata astral yang tersisa padam. Pohon willow melepaskan daun terakhirnya dan menjadi kerangka kayu sunyi.
+
+Nyara jatuh bersandar pada batang.
+
+“Pergilah, Kael.” Suaranya tinggal bisikan. “Temukan Jalan Keempatmu.”
+
+Kegelapan menelan kesadarannya.
+
+Sanctuary bertahan untuk sementara, tetapi peramal legendaris itu tidak lagi memiliki kekuatan untuk menghadapi serangan berikutnya.

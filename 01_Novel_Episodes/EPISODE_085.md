@@ -1,41 +1,61 @@
 # Episode 085 — Perpisahan dan Peringatan
 
-Saat Kael, Sylvara, dan Zireth berjalan mendekati perbatasan Xyphus, mereka merasakan getaran energi samar dari arah hutan tempat sanctuary Nyara berada.
+Ketika mereka mendekati perbatasan Xyphus, getaran energi datang dari arah sanctuary Nyara.
 
-"Getaran energi apa itu?" tanya Sylvara, merasakan hawa tak enak.
+Sylvara menoleh ke hutan. “Apa itu?”
 
-Kael berhenti melangkah. Dia merasakan koneksi mental sesaat yang sangat lemah dengan Nyara, seperti bisikan terakhir sebelum benar-benar terputus. "Nyara..." gumamnya cemas.
+Kael berhenti.
 
-"Dia dalam bahaya!" Dia spontan berbalik, hendak kembali ke sanctuary.
+Koneksi mental yang sangat lemah menyentuh pikirannya, lalu terputus seperti benang yang dipotong.
 
-"Tunggu, Kael!" Zireth menahan lengannya. "Terlalu berbahaya! Arsitek jelas mengincar
+“Nyara.”
 
-Nyara karena hubungannya denganmu! Jika kita kembali ke sana sekarang, kita hanya akan membahayakan dia lebih jauh. Kita harus percaya dia bisa menjaga dirinya sendiri." Kael menatap Zireth, lalu ke arah hutan dengan berat hati. "Tapi..."
+Dia berbalik hendak kembali.
 
-"Zireth benar, Kael," kata Sylvara lembut. "Nyara adalah peramal legendaris. Dia pasti punya cara sendiri untuk bertahan. Dia menyuruh kita pergi. Kita harus menghormati keinginannya dan fokus pada misi kita sekarang."
+Zireth menahan lengannya. “Arsitek mengincarnya karena hubungan denganmu. Kembali sekarang mungkin justru membuka jalan lain menuju sanctuary.”
 
-Kael akhirnya mengangguk pelan, meskipun rasa bersalah dan khawatir terlihat jelas di wajahnya. "Baik." Dia terdiam sejenak, mencoba mengingat kembali detail visi yang diberikan Nyara tadi. "Ingatanku... ada lagi yang hilang. Detail tentang lokasi Fragmen terakhir... lokasi persis jantung mekanis itu... sekarang benar-benar kabur."
+“Tapi dia dalam bahaya.”
 
-"Harga penglihatan itu..." gumam Zireth. "Sial."
+“Nyara menyuruh kita pergi,” kata Sylvara lembut. “Kita harus menghormati pilihannya.”
 
-"Tidak apa-apa, Kael," hibur Sylvara. "Kita masih punya arah tujuan umum – wilayah Xyphus. Kita cari petunjuk lebih lanjut di sana." Mereka melanjutkan perjalanan, kini dengan beban baru di pundak mereka – nasib Nyara yang tak pasti dan ingatan Kael yang semakin terfragmentasi.
+Kael memandang hutan dengan berat hati. Setelah beberapa saat, dia mengangguk dan kembali berjalan.
 
-Efek samping dari kontak mental dengan Arsitek dan visi yang terputus juga mulai terasa pada Kael. Kadang dia merasa dingin dan kosong secara emosional, di lain waktu dia merasakan ledakan amarah atau ketakutan tanpa sebab yang jelas.
+Kekosongan lain muncul dalam ingatannya.
 
-Apa ini... efek sampingnya? pikir Kael saat merasakan gelombang emosi aneh melandanya. Kehilangan ingatan... membuat emosiku jadi tidak stabil? Atau... ini pengaruh dari energi
+“Detail tentang jantung mekanis sudah hilang. Aku tidak dapat mengingat letak persisnya.”
 
-Void yang semakin menyatu di lenganku? Dia menatap lengan kirinya yang kini tampak tenang, tapi menyimpan kekuatan yang belum dia pahami sepenuhnya. Mereka melewati beberapa desa kecil di perbatasan luar Kekaisaran Xyphus. Suasananya suram dan menekan. Penduduk desa, yang sedikit mereka lihat, tampak curiga dan sangat tertutup. Banyak simbol atau ward sihir gelap terpasang di dinding rumah-rumah kayu mereka yang tampak lapuk.
+“Harga visi itu terus mengambil bagianmu,” gumam Zireth.
 
-"Wilayah para Warlock," kata Zireth. "Selalu paranoid. Mereka jelas tidak menyukai kehadiran orang asing." Tiba-tiba, seekor gagak hitam legam dengan mata merah menyala aneh mendarat tak jauh di depan Kael. Gagak itu menjatuhkan sebuah gulungan kulit kecil yang terikat benang hitam dari paruhnya, menatap Kael sesaat, lalu terbang lagi menghilang ke langit mendung.
+“Kita masih memiliki arah umum,” kata Sylvara. “Cari petunjuk lain di Xyphus.”
 
-"Gagak Warlock?" tanya Sylvara heran. "Apa itu tadi?"
+Mereka melanjutkan perjalanan.
 
-Kael mendekat dan mengambil gulungan kulit itu. Dia membukanya. Isinya hanya satu kalimat pendek, ditulis dengan tinta yang tampak seperti darah kering:
+Efek penglihatan tidak berhenti pada ingatan. Emosi Kael berubah tanpa alasan. Sesaat dia merasa dingin dan tidak peduli. Beberapa langkah kemudian, amarah atau ketakutan datang seperti gelombang.
 
-"Dia menunggumu di Kuil Pengorbanan, Belzoth. Jangan terlambat."
+Apakah karena bagian ingatan hilang, atau Void semakin menyatu dalam tubuhnya?
 
-"Belzoth?" Kael mengenali nama itu dari informasi Zireth atau catatan lain. "Bukankah itu
+Lengan kiri tetap tenang, tetapi kekuatan di dalamnya sulit dibaca.
 
-pulau utama Kekaisaran Xyphus? Dan... Kuil Pengorbanan?" Zireth mengangguk. "Tempat paling terkutuk dan berbahaya di seluruh wilayah Warlock. Menurut legenda, di sanalah ritual pemanggilan Void terbesar pernah dilakukan, yang hampir merobek Zerath." Dia menatap pesan di tangan Kael. "'Dia menunggumu'...
+Desa-desa perbatasan Xyphus mulai muncul. Rumah kayu lapuk dipenuhi ward sihir gelap. Penduduk berjubah mengamati mereka dari balik pintu dan jendela.
 
-Mungkinkah ini dari Rowan?" Kael mengepalkan gulungan kulit itu. "Pasti dia. Dia tahu kita menuju ke sini." Mereka kini memiliki tujuan yang spesifik dan sangat berbahaya di jantung wilayah Warlock: Kuil Pengorbanan di Pulau Belzoth, tempat Rowan menunggu.
+“Warlock selalu curiga kepada orang asing,” kata Zireth.
+
+Seekor gagak hitam bermata merah mendarat di jalan. Ia menjatuhkan gulungan kecil yang terikat benang hitam, lalu terbang kembali ke langit mendung.
+
+Kael membuka pesan tersebut.
+
+Tinta seperti darah kering membentuk satu kalimat:
+
+*Dia menunggumu di Kuil Pengorbanan, Belzoth. Jangan terlambat.*
+
+“Belzoth adalah pulau utama Xyphus,” kata Kael.
+
+“Dan Kuil Pengorbanan tempat ritual Void terbesar pernah dilakukan,” tambah Zireth. “Hampir merobek Zerath.”
+
+Sylvara menatap pesan. “Rowan?”
+
+Kael menggenggam gulungan itu.
+
+“Dia tahu kita datang.”
+
+Tujuan mereka kini jelas: Pulau Belzoth, jantung wilayah Warlock, dan kuil yang telah menunggu kedatangan Kael sejak sebelum pesan itu tiba.

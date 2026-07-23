@@ -1,35 +1,51 @@
 # Episode 083 — Sentuhan Arsitek
 
-Perjalanan menuju perbatasan Kekaisaran Xyphus terasa berbeda. Mereka melewati hutan yang semakin gelap, pohon-pohon tampak meranggas dan udara terasa berat, seolah menekan dada. Keheningan terasa tidak wajar.
+Perjalanan menuju Xyphus membawa mereka melewati hutan yang semakin gelap.
 
-"Tempat ini… terasa salah," kata Sylvara pelan, melihat sekeliling dengan waspada.
+Pohon meranggas meski tanah masih subur. Udara menekan dada, dan keheningan terasa dibuat-buat.
 
-"Bahkan lebih buruk dari atmosfer Ngarai Gema."
+“Tempat ini salah,” kata Sylvara. “Lebih buruk daripada Ngarai Gema.”
 
-Zireth memeriksa pemindainya. "Struktur realitas di sekitar kita… sedikit tidak stabil. Seperti ada interferensi dimensional minor tapi konstan." Kael merasakan lengan kirinya berdengung pelan. Bukan karena ada ancaman langsung di dekat mereka, tapi lebih seperti merasakan ‘kehadiran’ halus namun luas yang mengamati.
+Zireth mengarahkan pemindai. “Struktur ruang mengalami gangguan kecil tetapi terus-menerus.”
 
-"Arsitek..." gumamnya. "Dia tahu kita menuju ke sini. Dia mencoba menghalangi."
+Lengan kiri Kael berdengung. Bukan peringatan terhadap ancaman dekat, melainkan rasa sedang diamati oleh sesuatu yang sangat luas.
 
-Seolah menjawab ucapannya, hutan di depan mereka mulai berubah secara tidak alami. Pohon-pohon meliuk dan menyatu membentuk pola-pola geometris yang kaku dan dingin. Tanah di depan mereka tampak melipat pada dirinya sendiri, menciptakan jurang ilusi lalu menutupnya kembali. Apakah ini ilusi sihir Fae? Atau sesuatu yang lebih buruk?
+“Arsitek tahu kita menuju Xyphus.”
 
-Realitas terdistorsi.
+Hutan berubah setelah ucapan itu.
 
-"Apa ini!?" seru Kael kaget.
+Pohon-pohon meliuk dan menyatu menjadi pola geometris. Tanah melipat ke dalam, membentuk jurang yang muncul lalu lenyap. Jalan di depan pecah menjadi susunan sudut yang mustahil.
 
-"Manipulasi spasial!" jawab Zireth cepat. "Ini pasti ulah Arsitek! Dia mencoba menghalangi
+“Manipulasi ruang,” kata Zireth. “Dia menjebak kita dalam labirin.”
 
-kita... atau lebih buruk, menjebak kita di dalam sini!" Mereka mencoba mencari jalan lain, berbelok ke kiri atau ke kanan, tapi ke arah manapun mereka bergerak, lanskap di depan mereka terus berubah dan melipat, membentuk labirin geometris tak berujung yang mustahil untuk dipetakan.
+Mereka mencoba berbelok, tetapi setiap arah kembali menuju tempat yang sama. Lanskap terus menyusun dirinya ulang.
 
-"Kita... terjebak?" tanya Sylvara cemas.
+Kael menahan kepanikan.
 
-Dia tidak menyerang kita secara langsung... tapi bermain dengan pikiran dan persepsi kita, pikir Kael. Dia teringat kemampuannya yang baru dia sadari saat melawan Penjaga Nexus palsu – kemampuan menghapus atau menetralisir struktur energi. Jika dia bisa membengkokkan realitas di sini... bisakah aku... meluruskannya kembali?
+Arsitek tidak menyerang secara langsung. Dia mengubah aturan ruang sampai perjalanan tidak lagi memiliki arti.
 
-Kael fokus pada energi tiga warna di dalam dirinya, mencari Keseimbangan. Dia mencoba merasakan 'jahitan' atau 'lipatan' realitas yang dimanipulasi oleh Arsitek. Dengan hati-hati, dia mengalirkan sedikit energi Void yang terintegrasi dari lengan kirinya ke bilah Zerath's Fang, lalu menebaskannya bukan pada pohon atau tanah, tapi pada ‘udara’ di depannya yang terasa paling 'salah' atau terdistorsi.
+Namun distorsi itu tetap sebuah struktur.
 
-Tebasan itu seolah memotong benang tak terlihat yang menahan distorsi tersebut. Ilusi atau lipatan ruang di depan mereka goyah sesaat, memperlihatkan jalan setapak hutan yang sebenarnya untuk beberapa detik.
+Kael mengalirkan energi tiga warna ke Zerath's Fang. Dia mencari bagian udara yang terasa paling kaku, seperti jahitan pada kain realitas.
 
-Zireth melihatnya dengan tercengang. "Kau... berhasil memotong distorsi itu?" Kael sendiri terkejut, tapi juga merasa sangat lelah setelah menggunakan energi Keseimbangan itu. "Hanya... sesaat! Cepat, sebelum menutup lagi!"
+Pedangnya menebas ruang kosong.
 
-Mereka bertiga segera berlari melewati jalan yang terbuka itu tepat sebelum hutan kembali melipat dan menutup jalan di belakang mereka. Mereka berhasil keluar dari area distorsi utama, namun kini mereka merasa diawasi dengan lebih intens dari sebelumnya.
+Sebuah garis tipis muncul. Lipatan di depan goyah dan memperlihatkan jalan hutan yang sebenarnya.
 
-Arsitek tahu aku bisa melawan manipulasi spasialnya sekarang, pikir Kael. Dia tidak akan membiarkannya semudah ini lain kali. Mereka melihat ke depan. Garis perbatasan wilayah Kekaisaran Xyphus sudah terlihat: tanah yang menghitam seperti terbakar, siluet benteng-benteng obsidian bergerigi di kejauhan, dan langit yang selalu tertutup awan badai sihir berwarna gelap.
+Zireth menatapnya. “Kau memotong distorsi ruang.”
+
+“Hanya sebentar. Cepat.”
+
+Mereka berlari melewati celah sebelum realitas menutup kembali di belakang.
+
+Ketiganya keluar dari pusat labirin, tetapi rasa diawasi justru semakin kuat.
+
+Kael menahan tubuh pada pohon. Tebasan tadi menguras energi jauh lebih besar daripada serangan biasa.
+
+Arsitek kini tahu dia mampu merusak sebagian Struktur.
+
+Di depan mereka, wilayah Xyphus mulai terlihat. Tanah berubah hitam, benteng obsidian menjulang di bawah awan badai sihir, dan tidak ada cahaya matahari yang menyentuh cakrawala.
+
+Jalan menuju Rowan telah terbuka.
+
+Namun sentuhan Arsitek mengikuti mereka sampai ke perbatasan.

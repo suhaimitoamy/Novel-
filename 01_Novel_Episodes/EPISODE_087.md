@@ -1,33 +1,53 @@
 # Episode 087 — Melintasi Perbatasan Gelap
 
-Perahu reyot yang membawa Kael, Sylvara, dan Zireth akhirnya mendekati pantai Pulau Belzoth. Langit di atas pulau selalu tertutup awan badai sihir berwarna ungu gelap, tanpa secercah sinar matahari. Benteng-benteng batu obsidian bergerigi menjulang di kejauhan seperti gigi monster.
+Perahu mendekati pantai Belzoth.
 
-"Sampai di sini perjalananku," kata si Tukang Perahu Arwah. "Kuil Pengorbanan... terletak di jantung pulau terkutuk ini. Ikuti saja... bisikan jiwa-jiwa tersiksa yang memanggil dari sana." Tanpa menunggu jawaban, dia mendayung perahunya kembali ke lautan gelap, menghilang ditelan badai sihir.
+Awan badai menutup seluruh langit. Benteng-benteng obsidian di kejauhan tampak seperti gigi monster yang mencuat dari tanah.
 
-Kael, Sylvara, dan Zireth melompat turun ke pantai yang bukan berpasir, melainkan tertutup kerikil-kerikil hitam setajam pecahan kaca. Sylvara bergidik saat merasakan energi gelap pulau itu menyelimuti mereka. "Tempat ini...
+“Sampai di sini.” Tukang Perahu Arwah menghentikan dayung. “Kuil Pengorbanan berada di jantung pulau. Ikuti bisikan jiwa yang tersiksa.”
 
-rasanya penuh dengan penderitaan dan keputusasaan."
+Dia membiarkan mereka turun, lalu kembali ke laut dan menghilang di balik badai.
 
-"Wilayah Kekaisaran Xyphus memang dibangun di atas pengorbanan dan perjanjian gelap," jelas Zireth. "Berhati-hatilah melangkah. Pasti ada banyak ward sihir dan jebakan ilusi di sekitar sini." Kael merasakan lengan kirinya berdengung pelan namun konstan, jelas merespon energi Void dan sihir gelap yang begitu pekat di pulau ini. "Ayo bergerak."
+Pantai Belzoth tidak memiliki pasir. Kerikil hitam setajam kaca menutupi permukaan.
 
-Mereka berjalan masuk ke daratan Pulau Belzoth. Vegetasinya aneh dan mengerikan – pohon-pohon hitam tanpa daun dengan cabang meliuk seperti cakar, dan tanah yang terasa dingin membeku meskipun tidak ada salju. Mereka melewati beberapa desa kecil Warlock yang tampak suram dan hampir kosong.
+Sylvara merapatkan jubah. “Tempat ini dipenuhi penderitaan.”
 
-Para penghuni yang sedikit mereka lihat – biasanya berjubah gelap atau bertopeng tulang – menatap mereka dengan tatapan kosong atau penuh permusuhan dari balik jendela rumah batu mereka yang gelap. Tidak ada kehidupan normal di sini... pikir Kael. Hanya ritual gelap dan bayangan yang bergerak.
+“Xyphus dibangun dari perjanjian dan pengorbanan gelap,” kata Zireth. “Jangan sentuh ward atau simbol apa pun.”
 
-Saat melewati sebuah alun-alun desa yang sepi, mereka melihat beberapa Warlock tingkat rendah sedang melakukan ritual aneh di depan sebuah patung batu berbentuk spiral pecah yang besar – simbol Vorthax sesat yang sama dengan liontin yang mereka temukan.
+Lengan kiri Kael berdengung terus-menerus, merespons sihir Void yang memenuhi pulau.
 
-"…Demi Kehampaan Abadi… Demi Sang Arsitek…" terdengar gumaman mantra dari para
+Mereka bergerak ke daratan.
 
-Warlock itu. Kael berhenti, mendengar nama Arsitek disebut. "Mereka... menyembah Arsitek?"
+Pohon-pohon hitam berdiri tanpa daun, cabangnya menyerupai cakar. Tanah terasa membeku meski tidak ada salju. Desa-desa Warlock hampir kosong, dan penghuni bertopeng tulang mengawasi dari balik jendela.
 
-"Sepertinya pengaruh Rowan atau Arsitek sudah menyebar luas di kalangan Warlock di pulau ini," gumam Zireth. Salah satu Warlock yang sedang ritual tiba-tiba mengangkat kepalanya, matanya yang ungu gelap menatap tajam ke arah mereka. "Penyusup! Ada orang luar yang tidak membawa Tanda Suci!"
+Tidak ada kehidupan biasa di tempat itu. Hanya ritual dan bayangan.
 
-Para Warlock lainnya segera berbalik, mengangkat tongkat tulang atau belati ritual mereka.
+Di sebuah alun-alun, beberapa Warlock berlutut di depan patung spiral pecah.
 
-"Ketahuan!" seru Sylvara sambil menyiapkan panahnya.
+“Demi Kehampaan Abadi,” gumam mereka. “Demi Sang Arsitek.”
 
-Pertarungan singkat namun sengit terjadi. Para Warlock itu menyerang dengan sihir bayangan, kutukan minor yang menyebabkan pusing atau halusinasi ringan, dan energi Void lemah. Namun, Kael, Sylvara, dan Zireth, yang sudah melewati banyak pertarungan berat, kini jauh lebih kuat. Mereka mengalahkan para Warlock itu dengan relatif mudah, melumpuhkan mereka tanpa perlu membunuh.
+Kael berhenti. “Mereka menyembahnya.”
 
-Kael menatap salah satu Warlock yang pingsan. "Mereka semua sudah terpengaruh oleh Arsitek."
+“Pengaruh Rowan telah menyebar,” kata Zireth.
 
-"Kita harus lebih hati-hati," kata Zireth. "Semakin dekat kita ke Kuil Pengorbanan, penjagaannya pasti akan jauh lebih ketat dan berbahaya." Mereka melanjutkan perjalanan melewati wilayah Warlock yang suram dan penuh permusuhan itu, menuju Kuil Pengorbanan di jantung pulau, tempat Rowan menunggu.
+Salah seorang Warlock mengangkat kepala. Mata ungunya langsung menemukan mereka.
+
+“Penyusup. Mereka tidak membawa Tanda Suci.”
+
+Kelompok ritual berbalik dan mengangkat tongkat tulang serta belati.
+
+Sylvara menarik busur. “Penyamaran kita singkat sekali.”
+
+Sihir bayangan, kutukan, dan proyektil Void lemah menyerang dari berbagai arah.
+
+Kael menahan bagian depan. Sylvara melumpuhkan pemegang tongkat, sementara gelombang sonik Zireth merusak formasi ritual. Para Warlock itu kuat terhadap penduduk biasa, tetapi bukan lawan bagi tiga orang yang telah melewati Puncak Beku.
+
+Pertarungan berakhir tanpa kematian. Semua penyerang tergeletak tidak sadar.
+
+Kael memandang simbol spiral di alun-alun.
+
+“Mereka benar-benar berada di bawah pengaruh Arsitek.”
+
+“Kuil pasti dijaga jauh lebih ketat,” kata Zireth.
+
+Mereka meninggalkan desa sebelum bantuan datang dan bergerak menuju pusat Belzoth, tempat aura Void tumbuh semakin pekat pada setiap langkah.

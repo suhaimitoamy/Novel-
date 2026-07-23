@@ -1,47 +1,63 @@
 # Episode 089 — Benteng Terlarang
 
-Kael, Sylvara, dan Zireth akhirnya tiba di depan Kuil Pengorbanan, jantung kegelapan Pulau Belzoth. Bangunan itu adalah sebuah benteng raksasa yang seluruhnya terbuat dari batu obsidian hitam legam, berbentuk seperti spiral mengerikan yang menunjuk lurus ke langit gelap pekat di atasnya. Aura energi Void yang sangat kuat dan menyesakkan memancar darinya, membuat udara terasa dingin dan berat.
+Kuil Pengorbanan berdiri di jantung Belzoth seperti spiral obsidian yang menusuk langit.
 
-"Tempat ini… rasanya seperti pintu gerbang ke Void itu sendiri," bisik Sylvara, merasa bulu kuduknya berdiri.
+Aura Void memancar dari dindingnya dan membuat udara terasa berat.
 
-"Menurut catatan terlarang Vorth Aereth, kuil ini memang dibangun tepat di atas Nexus Point Void alami – titik di mana tabir antara Zerath dan dimensi Kehampaan paling tipis," jelas Zireth. "Energi di dalam sana pasti sangat tidak stabil dan berbahaya."
+“Tempat ini seperti pintu menuju Kehampaan,” bisik Sylvara.
 
-"Rowan ada di dalam," kata Kael yakin. "Aku bisa merasakan kehadirannya. Dan... liontin spiral Vorthax itu juga ada bersamanya." Pintu masuk utama kuil adalah sebuah gerbang batu raksasa yang tertutup rapat, permukaannya diukir dengan mantra-mantra Void yang rumit dan tampak hidup.
+“Memang dibangun di atas Nexus Point Void,” jawab Zireth. “Tabir antara Zerath dan dimensi lain sangat tipis di sini.”
 
-"Gerbang ini disegel dengan sihir Void yang sangat kuat," kata Zireth setelah memindainya.
+Kael memandang gerbang raksasa di depan.
 
-"Mencoba membukanya secara paksa kemungkinan besar akan memicu sistem pertahanan kuil yang mematikan." Kael mendekati gerbang itu, ragu sejenak, lalu menyentuh permukaannya yang dingin. Lengan kirinya yang berpola rune ungu seketika bereaksi, berdenyut dan bersinar redup.
+“Rowan ada di dalam. Liontin Vorthax juga.”
 
-"Mungkin... kita tidak perlu menggunakan paksaan." Dia fokus, mencoba menyalurkan
+Rune-rune Void menutupi permukaan pintu dan bergerak seperti makhluk hidup.
 
-sedikit energi Void yang kini lebih terkendali dari lengannya ke dalam rune Void di gerbang. Ajaibnya, rune Void di gerbang itu merespon energi Kael. Cahaya ungunya berkedip seirama dengan denyutan di lengan Kael. Dengan suara gemuruh batu bergeser yang pelan, gerbang batu raksasa itu perlahan terbuka ke dalam.
+“Segelnya akan memicu pertahanan jika dibuka paksa,” kata Zireth setelah memindai.
 
-Gerbang batu terbuka.
+Kael mendekat dan menempelkan lengan kiri pada batu.
 
-"Bagaimana…?" tanya Sylvara heran.
+Rune ungu di kulitnya langsung berdenyut. Dia mengalirkan sedikit Void ke pola penjaga.
 
-"Aku tidak yakin," jawab Kael. "Sepertinya energi Void yang sudah menyatu denganku ini... dikenali atau dianggap 'sah' oleh sihir penjaga tempat ini." Mereka bertiga melangkah masuk ke dalam kuil. Interiornya gelap gulita, hanya diterangi oleh cahaya ungu redup yang berasal dari kristal-kristal Void mentah yang tertanam di dinding obsidian. Lorong-lorongnya bercabang dan berkelok seperti labirin yang membingungkan.
+Gerbang menjawab.
 
-Mereka melewati ruangan-ruangan yang mengerikan: altar-altar pengorbanan kuno yang masih ternoda darah kering ribuan tahun, rak-rak buku berisi kitab sihir terlarang yang sebagian besar telah hancur menjadi debu, dan sisa-sisa mengerikan dari eksperimen Void yang gagal – makhluk-makhluk cacat yang diawetkan dalam tabung kristal retak.
+Cahaya pada rune bergerak mengikuti irama energi Kael. Batu obsidian bergeser perlahan dan membuka jalan ke dalam.
 
-"Tempat ini seperti museum sejarah hitam para Warlock Xyphus," gumam Zireth sambil terus memindai sekitar dengan waspada. Mereka bisa merasakan energi Void yang semakin kuat datang dari sebuah ruang utama di depan, di jantung kuil.
+Sylvara menatapnya. “Tempat ini mengenalimu.”
 
-Akhirnya, mereka sampai di sebuah aula tengah yang sangat besar dan melingkar. Di tengah aula, melayang sebuah pusaran energi Void berwarna ungu gelap pekat yang berputar pelan di atas sebuah altar obsidian hitam legam. Dan berdiri di depan altar itu…
+“Lebih tepatnya, mengenali Void dalam tubuhku.”
 
-adalah Rowan. Namun, Rowan tidak sendirian. Di sampingnya berdiri Zevaron, rival Kael dari Kuil Celestial. Tapi ada yang salah dengan Zevaron. Matanya kini kosong dan memancarkan cahaya ungu redup yang sama seperti prajurit Dwarf yang dikendalikan Rowan di Puncak Beku. Dia berdiri kaku seperti boneka.
+Mereka memasuki lorong gelap yang diterangi kristal ungu pada dinding.
 
-Rowan menoleh saat merasakan kehadiran Kael, Sylvara, dan Zireth. Senyumnya dingin dan penuh percaya diri. "Selamat datang di jantung kegelapan Zerath, Kael. Aku sudah menunggumu." Kael menatap Zevaron dengan kaget dan marah. "Rowan! Apa yang kau lakukan pada Zevaron!?"
+Kuil tersebut menyimpan sejarah paling kelam Xyphus. Altar pengorbanan masih ternoda darah tua. Kitab-kitab terlarang hancur menjadi debu. Makhluk hasil eksperimen gagal diawetkan dalam tabung kristal retak.
 
-Rowan tertawa pelan. "Dia? Oh, dia hanya… dengan sukarela setuju untuk meminjamkan tubuhnya demi tujuan yang lebih besar dan mulia." Dia menepuk bahu Zevaron yang tak bereaksi. "Setelah aku mengalahkannya dengan mudah di reruntuhan kuil Celestial itu, tentu saja."
+“Seperti museum kegilaan para Warlock,” gumam Zireth.
 
-Di leher Rowan, tergantung liontin spiral pecah Vorthax. Liontin itu kini bersinar terang dengan energi Void yang baru diserapnya.
+Energi semakin kuat ketika mereka mendekati ruang pusat.
 
-"Liontin ini..." kata Rowan sambil menyentuhnya. "...ternyata lebih dari sekadar kunci
+Aula utama berbentuk lingkaran. Pusaran Void melayang di atas altar hitam, berputar pelan seperti mata yang baru terbangun.
 
-resonansi. Ini adalah fokus yang sempurna untuk menyalurkan kehendak Sang Arsitek."
+Rowan berdiri di depannya.
 
-"Apa rencanamu sekarang!?" desak Sylvara. "Memanggil Arsitek langsung ke Zerath!?"
+Zevaron berada di sisi sang pengkhianat, tetapi tatapan emasnya telah hilang. Kedua mata memancarkan cahaya ungu kosong. Tubuhnya tegak dan kaku seperti boneka.
 
-Rowan menggeleng. "Belum saatnya untuk itu." Dia menunjuk ke arah tongkat Void obsidian yang masih dipegang Kael (sejak diambil di Puncak Beku). "Tapi… sudah saatnya untuk mengambil kembali apa yang menjadi milikku." Matanya lalu tertuju pada Kael. "Dan…
+Kael menahan amarah. “Apa yang kau lakukan kepadanya?”
 
-sudah saatnya untuk ujian terakhirmu sebagai Kunci Pengorbanan, Kael." Kael kini berdiri berhadapan dengan Rowan yang tampak lebih kuat dan Zevaron yang telah menjadi bonekanya, di tengah ruang altar Void yang penuh energi gelap. Pertarungan puncak sepertinya tak terhindarkan lagi.
+Rowan tersenyum. “Dia meminjamkan tubuhnya untuk tujuan yang lebih besar. Setelah aku mengalahkannya di reruntuhan Lykaros, tentu saja.”
+
+Liontin spiral Vorthax tergantung di lehernya. Retakannya kini dipenuhi energi pekat.
+
+“Benda ini lebih dari kunci resonansi,” kata Rowan sambil menyentuhnya. “Ia menyalurkan kehendak Sang Arsitek.”
+
+Sylvara mengangkat busur. “Kau ingin memanggilnya ke Zerath?”
+
+“Belum.” Rowan memandang tongkat obsidian yang masih dibawa Kael. “Pertama, aku mengambil kembali milikku.”
+
+Tatapannya beralih ke dada Kael.
+
+“Lalu kita memulai ujian terakhirmu sebagai Kunci Pengorbanan.”
+
+Zevaron mengangkat tangan. Angin dan petir mulai berkumpul tanpa emosi.
+
+Pertarungan yang mereka hindari sejak Aethelgard akhirnya menunggu di jantung Kuil Pengorbanan.
