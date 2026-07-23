@@ -1,23 +1,61 @@
 # Episode 018 — Memilih Jalan
 
-Kael menatap lama pada Fragmen kelima yang melayang tenang, Hati Bintang Jatuh yang berdenyut dengan cahaya ungu lembut. Dia merasakan tarikan kuat dari energi Fragmen di dadanya yang haus akan kekuatan lebih, juga bisikan gelap dari lengan kirinya yang seolah ingin menyerap energi murni itu.
+Kael menatap Hati Bintang Jatuh yang melayang di atas altar. Cahaya ungunya berdenyut tenang, tetapi kekuatan di dalamnya terasa sangat besar.
 
-Kekuatan... untuk melindungi... untuk menghentikan Rowan... menghentikan Arsitek... pikir Kael. Aku membutuhkannya. Dia melangkah maju perlahan menuju altar Fragmen kelima. Sylvara dan Zireth menahan napas, menunggu apa yang akan Kael lakukan. Penjaga Kawah berdiri diam, mengamati tanpa menghalangi, seolah menyerahkan keputusan sepenuhnya pada Kael.
+Fragmen di dada Kael merespons dengan rasa lapar. Energi Void pada lengan kirinya ikut bergerak, seolah ingin menelan apa pun yang berada di hadapannya.
 
-Kael mengangkat tangannya, hampir menyentuh permukaan Fragmen kristal ungu itu. Dia bisa merasakan energinya yang tenang namun luar biasa besar, siap untuk diserap, siap untuk memberinya kekuatan baru. Tapi kemudian… dia teringat kembali pada visi yang baru saja dia lihat. Gambaran Zerath yang terluka. Gambaran dirinya yang berpotensi menjadi penghancur. Dan gambaran
+Kekuatan itu dapat membantunya melindungi Sylvara dan Zireth. Dapat dipakai untuk menghentikan Rowan, bahkan menghadapi Sang Arsitek.
 
-Fragmen kelima yang bekerja dalam diam selama ribuan tahun untuk menyembuhkan luka dunia itu. Dia juga teringat kata-kata terakhir ibunya sebelum dia menyentuh Fragmen pertama:
+Kael melangkah menuju altar.
 
-"Kekuatan sejati, Kael, bukan tentang seberapa banyak yang bisa kau ambil... tapi tentang seberapa banyak yang bisa kau lindungi." Perlahan, Kael menurunkan tangannya. Dia mundur selangkah dari altar Fragmen kelima.
+Sylvara dan Zireth tidak berkata apa-apa. Penjaga Kawah juga diam, menyerahkan pilihan sepenuhnya kepadanya.
 
-"Aku tidak akan mengambilnya," kata Kael pada Penjaga Kawah, suaranya tenang namun tegas. "Tugasmu… tugas Fragmen ini… terlalu penting bagi Zerath. Mengganggunya demi kekuatanku sendiri… itu bukan Jalan Keempat yang kucari."
+Kael mengangkat tangan.
 
-Penjaga Kawah terdiam sesaat, sosok energinya tampak sedikit bergetar. Lalu, suara Gema pasirnya terdengar lagi di benak mereka, kali ini dengan nada yang terasa seperti… persetujuan? Atau mungkin kelegaan?
+Jarak antara ujung jarinya dan Fragmen tinggal beberapa sentimeter. Energi dari Hati Bintang Jatuh mengalir ke kulitnya, menawarkan kekuatan tanpa perlawanan.
 
-« Pilihan yang… bijak, Pewaris Luka. Kau memilih Keseimbangan jangka panjang… di atas kekuatan sesaat. Jarang sekali makhluk fana… terutama yang membawa beban sepertimu… mampu membuat pilihan seperti itu. » Cahaya lembut terpancar dari Penjaga Kawah, menyelimuti Kael sesaat. Kael merasakan energi hangat dan menenangkan mengalir ke dalam dirinya, menyembuhkan sebagian kelelahannya dan menenangkan gejolak energi di dalam dirinya.
+Lalu penglihatan tadi kembali terlintas.
 
-« Kau telah menunjukkan bahwa kau memahami arti Keseimbangan, meskipun jalanmu sendiri masih panjang dan penuh bahaya, » lanjut Penjaga Kawah. « Aku tidak bisa memberikanmu kekuatan Hati Bintang Jatuh ini. Tapi… aku bisa memberimu petunjuk arah menuju jawaban berikutnya yang kau cari. » Penjaga Kawah mengulurkan tangannya lagi. Kali ini, bukan energi visi yang mengalir, tapi sebuah pola bintang kompleks yang terukir langsung ke dalam pikiran Kael – sebuah peta mental yang menunjuk ke arah utara yang jauh, menuju pegunungan es yang menjulang di perbatasan dunia.
+Zerath yang retak. Perang yang lahir dari perebutan Fragmen. Dirinya sendiri berdiri di antara pahlawan dan penghancur.
 
-"Carilah… Gema Kebenaran… di bawah Langit Beku," bisik Penjaga Kawah sebagai petunjuk terakhir. "Di sanalah… kau mungkin akan menemukan jawaban tentang dirimu… dan tentang musuh yang mengintaimu." Kael merasakan peta bintang itu tersimpan jelas di benaknya. Dia menunduk hormat pada Penjaga Kawah. "Terima kasih… atas petunjuk dan… pengertianmu."
+Selama ribuan tahun, Hati Bintang Jatuh menyerap racun dunia dalam diam. Mengambilnya berarti meninggalkan luka Zerath tanpa penawar.
 
-Penjaga Kawah mengangguk perlahan. « Pergilah sekarang. Dan ingatlah selalu… Jalan Keempat yang kau pilih… adalah jalan Keseimbangan yang kau ciptakan sendiri di antara Cahaya, Kegelapan, dan Api di dalam dirimu. Jangan biarkan salah satunya menelan yang lain. » Dengan petunjuk baru dan pemahaman yang lebih dalam tentang tujuannya, Kael, Sylvara, dan Zireth meninggalkan dasar kawah, membiarkan Fragmen kelima dan penjaganya melanjutkan tugas penting mereka dalam diam.
+Suara ibunya muncul dalam ingatan.
+
+“Kekuatan sejati bukan tentang seberapa banyak yang bisa kau ambil, Kael. Melainkan seberapa banyak yang mampu kau lindungi.”
+
+Tangannya berhenti.
+
+Kael menurunkannya dan mundur satu langkah.
+
+“Aku tidak akan mengambilnya.”
+
+Cahaya di tubuh Penjaga Kawah bergetar.
+
+“Tugas Fragmen ini terlalu penting bagi Zerath,” lanjut Kael. “Mengorbankannya demi kekuatanku bukan Jalan Keempat yang kucari.”
+
+Untuk beberapa saat, tidak ada jawaban. Kemudian suara Penjaga terdengar di dalam pikiran mereka.
+
+*Pilihan yang bijak, Pewaris Luka. Kau memilih keseimbangan yang bertahan lama daripada kekuatan sesaat.*
+
+Cahaya lembut menyelimuti Kael. Kehangatan meresap ke tubuhnya, menenangkan denyut liar di dada dan mengurangi rasa lelah pada otot-ototnya.
+
+*Jalanmu masih panjang. Aku tidak dapat memberikan kekuatan Hati Bintang Jatuh, tetapi aku dapat menunjukkan tempat jawaban berikutnya menunggu.*
+
+Penjaga mengulurkan tangan.
+
+Pola bintang memasuki pikiran Kael. Garis-garis cahaya membentuk peta yang mengarah jauh ke utara, menuju deretan pegunungan es di batas dunia.
+
+*Carilah Gema Kebenaran di bawah Langit Beku. Di sana kau akan menemukan jawaban tentang dirimu dan musuh yang mengintaimu.*
+
+Peta itu menetap jelas dalam ingatan Kael.
+
+Dia menundukkan kepala. “Terima kasih.”
+
+*Ingatlah, Jalan Keempat berada di antara Cahaya, Kegelapan, dan Api dalam dirimu. Jangan biarkan salah satunya menelan yang lain.*
+
+Kael, Sylvara, dan Zireth meninggalkan dasar kawah. Di belakang mereka, Hati Bintang Jatuh tetap melayang dalam cahaya ungu, melanjutkan tugas yang telah dijalankannya selama ribuan tahun.
+
+Kael pergi tanpa membawa kekuatan baru.
+
+Namun untuk pertama kalinya, dia memahami bahwa menolak kekuatan juga dapat menjadi sebuah kemenangan.
