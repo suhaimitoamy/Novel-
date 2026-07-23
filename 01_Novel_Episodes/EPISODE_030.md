@@ -1,51 +1,77 @@
 # Episode 030 — Dinding Krangmar dan Bisikan Rune
 
-Interior Pos Terdepan Kragmar terasa kokoh dan sedikit menyesakkan. Benteng kecil itu dipahat langsung dari dalam gunung es, namun dindingnya dilapisi logam tebal khas Dwarf dan diterangi oleh cahaya hangat dari lentera-lentera rune yang tergantung di langit-langit rendah.
+Pos Terdepan Kragmar dipahat langsung ke dalam gunung es. Dinding batunya dilapisi logam tebal, sementara lentera rune memancarkan cahaya hangat di sepanjang langit-langit rendah.
 
-Kael, Sylvara, dan Zireth ditempatkan di sebuah ruangan batu yang dingin dan kosong, jelas berfungsi sebagai sel sementara meskipun pintunya belum dikunci dari luar. Jeruji besi tebal menjadi satu-satunya pemandangan mereka.
+Kael, Sylvara, dan Zireth ditempatkan di ruangan kosong yang jelas berfungsi sebagai sel sementara. Pintunya belum dikunci, tetapi jeruji besi dan penjaga di luar cukup menjelaskan kedudukan mereka.
 
-Sylvara melihat sekeliling dengan cemas. "Aku tidak suka kalimat 'Kapten Garn yang akan memutuskan nasib kalian'." Zireth sedang memeriksa mekanisme kunci pintu sel dari dalam dengan tangan mekaniknya. "Tenang saja, Pemanah. Dwarf dari Karag Thürm biasanya menghargai kekuatan dan kejujuran. Selama kita tidak berbohong tentang pertarungan melawan Elemental tadi, kita mungkin baik-baik saja."
+“Aku tidak suka bagian saat mereka mengatakan Kapten Garn akan menentukan nasib kita,” ujar Sylvara.
 
-Kael duduk di bangku batu, memejamkan mata, mencoba kembali merasakan peta bintang mental yang membawanya ke utara. "Tapi kita tidak menceritakan semuanya," gumamnya.
+Zireth memeriksa mekanisme kunci dengan tangan logamnya. “Dwarf Karag Thürm menghargai kekuatan dan kejujuran. Selama cerita kita tentang Elemental sesuai kenyataan, peluang kita masih baik.”
 
-"Tentang Fragmen... tentang alasan kita sebenarnya pergi ke utara."
+Kael duduk di bangku batu dan memejamkan mata. Peta bintang di pikirannya masih menunjuk ke utara.
 
-"Dan itu pilihan yang cerdas untuk saat ini," sahut Zireth. "Mengatakan pada sekumpulan Dwarf bahwa kau membawa serpihan kekuatan pencipta dunia yang tidak stabil di dalam dadamu mungkin bukan ide yang bagus." Terdengar langkah kaki berat mendekat. Pintu sel terbuka. Pemimpin patroli yang membawa mereka tadi masuk, diikuti oleh seorang Dwarf wanita berzirah perak berkilauan. Rambut putihnya dikepang rumit dengan hiasan logam, dan mata biru setajam esnya menatap mereka bertiga satu per satu, berhenti sedikit lebih lama pada Kael. Tidak diragukan lagi, inilah Kapten Garn.
+“Tapi kita tidak menceritakan semuanya,” katanya. “Mereka tidak tahu tentang Fragmen atau alasan sebenarnya kita datang.”
 
-"Jadi," suara Kapten Garn terdengar tegas dan berwibawa, "kalian bertiga yang membuat keributan di perbatasan dan berhasil mengalahkan Penjaga Es?"
+“Keputusan yang tepat.” Zireth menjauh dari pintu. “Memberi tahu pasukan Dwarf bahwa kau membawa serpihan kekuatan pencipta dunia yang tidak stabil mungkin bukan pembuka percakapan terbaik.”
 
-"Kami hanya membela diri, Kapten," jawab Kael tenang.
+Langkah berat terdengar dari lorong.
 
-"Penjaga Es tidak muncul tanpa alasan," kata Garn sambil berjalan mendekat. "Mereka terikat pada anomali sihir kuno. Kalian pasti telah memicu sesuatu." Tatapannya tertuju pada Kael. "Terutama kau, bocah. Aku bisa merasakan resonansi energi yang aneh darimu.
+Pintu terbuka. Pemimpin patroli masuk bersama seorang Dwarf wanita berzirah perak. Rambut putihnya dikepang dengan hiasan logam, dan mata birunya mengamati mereka tanpa berkedip.
 
-Sesuatu yang... tua. Dan berpotensi berbahaya." Dia bisa merasakannya? Seberapa kuat Kapten Dwarf ini sebenarnya? pikir Kael dalam hati.
+“Jadi kalian yang membuat keributan di perbatasan dan mengalahkan Penjaga Es,” katanya.
 
-"Kami hanya pengelana biasa, Kapten Garn," Zireth mencoba menimpali. "Menuju utara untuk menyelesaikan urusan pribadi."
+Kael berdiri. “Kami hanya membela diri, Kapten Garn.”
 
-"Urusan pribadi di tengah badai es abadi dan wilayah terlarang yang dijaga?" Garn
+“Penjaga Es tidak muncul tanpa alasan.” Garn berjalan mendekat. “Ia terikat pada anomali sihir kuno. Kalian pasti memicu sesuatu.”
 
-mendengus. "Cerita yang terlalu lemah." Dia berhenti tepat di depan Kael. "Kau bilang Penjaga Es itu menyebut tentang 'Gerbang Es'. Apa lagi yang dikatakannya padamu?" Kael sedikit ragu, tapi memutuskan untuk tetap pada kejujuran parsialnya. "Dia bilang...
+Tatapannya berhenti pada Kael.
 
-gerbang itu hampir terbuka. Dan makhluk fana dilarang mendekat." Kapten Garn mengangguk pelan, ekspresinya berubah muram. "Seperti yang kami khawatirkan. Rune peringatan kuno di terowongan-terowongan utara juga mulai aktif secara sporadis akhir-akhir ini, membisikkan hal yang sama." Dia berbalik, mondar-mandir sejenak.
+“Aku merasakan resonansi tua dari tubuhmu. Sesuatu yang berbahaya.”
 
-"Kami sudah kehilangan tiga patroli dalam seminggu terakhir ini. Sesuatu yang sangat kuat sedang bangkit di Puncak Beku."
+Kael menahan ekspresinya. Kapten itu dapat merasakan Fragmen meski dia tidak menggunakannya.
 
-"Apa sebenarnya Gerbang Es itu?" tanya Sylvara penasaran.
+“Kami pengelana,” kata Zireth. “Kami menuju utara untuk urusan pribadi.”
 
-"Sebuah legenda lama di kalangan tetua kami," jawab Garn. "Sebuah pintu antar dimensi yang konon disegel bersama oleh leluhur bangsa Elemental dan Dwarf setelah Perang Primordial. Dikatakan disegel untuk mengurung... sesuatu yang seharusnya tidak pernah ada di Zerath." Dia menatap Kael lagi. "Dan sekarang, tampaknya ada seseorang, atau sesuatu, yang mencoba membukanya kembali."
+“Urusan pribadi di wilayah terlarang?” Garn mendengus. “Cerita yang lemah.”
 
-"Rowan..." gumam Kael sangat pelan, teringat gambaran di Kristal Gema.
+Dia berdiri tepat di depan Kael.
 
-"Siapa?" tanya Garn tajam.
+“Penjaga Es menyebut Gerbang Es. Apa lagi yang dikatakannya?”
 
-"Tidak... tidak ada," Kael mengelak. Kapten Garn menatap mereka bertiga dalam diam beberapa saat. "Dengar. Aku tidak tahu siapa kalian sebenarnya, atau apa tujuan kalian di utara. Tapi kalian berhasil mengalahkan Penjaga Es yang bahkan sanggup menyulitkan satu peleton prajurit terbaikku. Dan kalian tahu tentang Gerbang Es." Dia tampak membuat keputusan. "Aku tidak bisa membiarkan kalian pergi begitu saja ke utara. Tapi aku juga tidak bisa menahan kalian di sini sementara bahaya besar mengancam dari Puncak Beku."
+“Gerbang itu hampir terbuka,” jawab Kael. “Makhluk fana dilarang mendekat.”
 
-"Jadi, apa yang Anda inginkan?" tanya Zireth.
+Wajah Garn mengeras.
 
-"Aku akan memberimu pilihan," kata Garn. "Bantu kami. Selidiki apa yang sebenarnya terjadi di Puncak Beku. Cari tahu siapa atau apa yang mencoba membuka Gerbang Es itu. Jika kalian berhasil dan kembali dengan informasi yang berguna... kalian bebas pergi kemanapun kalian mau."
+“Rune peringatan di terowongan utara juga mulai aktif. Tiga patroli hilang dalam satu minggu. Sesuatu sedang bangkit di Puncak Beku.”
 
-"Dan jika kami menolak?" tanya Zireth lagi.
+“Apa Gerbang Es itu?” tanya Sylvara.
 
-Kapten Garn tersenyum tipis tanpa humor. "Maka kalian akan tinggal di sel yang nyaman ini... sampai badai di luar sana reda. Mungkin... untuk beberapa dekade ke depan." Membantu mereka? Kael mempertimbangkan. Ini bisa jadi kesempatan mendapatkan informasi lebih lanjut tentang Gerbang Es... dan mungkin tentang rencana Rowan. Tapi ini juga berarti menuju langsung ke sumber bahaya.
+“Pintu antardimensi yang disegel leluhur Elemental dan Dwarf setelah Perang Primordial. Konon, sesuatu yang tidak seharusnya ada di Zerath dikurung di baliknya.”
 
-Dia menatap Kapten Garn, lalu ke teman-temannya. Di dinding sel di belakang Garn, sebuah rune Dwarf kuno yang terukir di batu tampak bersinar redup sesaat, seolah merespon energi Fragmen di dalam diri Kael.
+Garn memandang mereka satu per satu.
+
+“Sekarang seseorang mencoba membukanya.”
+
+“Rowan,” gumam Kael.
+
+“Siapa?”
+
+“Tidak ada.”
+
+Kapten Garn terdiam beberapa saat. “Aku tidak tahu siapa kalian. Namun kalian mengalahkan makhluk yang mampu membantai satu peleton dan mengetahui nama Gerbang Es.”
+
+Dia mengambil keputusan.
+
+“Bantu kami menyelidiki Puncak Beku. Cari tahu siapa yang membuka gerbang. Jika kembali membawa informasi, kalian bebas melanjutkan perjalanan.”
+
+“Kalau kami menolak?” tanya Zireth.
+
+Senyum tipis tanpa humor muncul di wajah Garn.
+
+“Kalian tinggal di sel ini sampai badai reda. Mungkin beberapa dekade.”
+
+Kael melirik Sylvara dan Zireth. Tugas itu membawa mereka langsung menuju sumber bahaya, tetapi juga menuju jawaban tentang rencana Rowan.
+
+Di dinding belakang Garn, sebuah rune Dwarf tua menyala sebentar.
+
+Cahayanya berdenyut mengikuti Fragmen di dada Kael.
