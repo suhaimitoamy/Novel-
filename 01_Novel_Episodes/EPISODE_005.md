@@ -1,49 +1,77 @@
 # Episode 005 — Tarian Luka dan Ilusi
 
-Kael dan Sylvara berdiri di depan sebuah struktur aneh: menara batu yang patah dan melayang di udara, membentuk spiral yang seolah menentang gravitasi.
+Kael dan Sylvara berhenti di hadapan sebuah menara batu yang telah patah menjadi beberapa bagian. Pecahan-pecahannya melayang di udara, membentuk spiral yang menentang gravitasi.
 
-"Tempat itu..." kata Sylvara sambil mengamati menara melayang itu. "...disebut Vault of
+“Vault of Shards,” kata Sylvara. “Menurut legenda, hanya dua orang yang pernah masuk. Keduanya tidak pernah kembali.”
 
-Shards. Menurut legenda, hanya dua orang yang pernah berhasil masuk ke dalamnya – dan keduanya tidak pernah terlihat lagi." Kael menggenggam erat dadanya, merasakan Fragmen di dalamnya berdenyut dengan ritme yang semakin kuat, seperti detak jantung kedua. Aku harus masuk ke sana, tekadnya.
+Fragmen di dada Kael berdenyut seperti jantung kedua. Setiap denyut menariknya semakin dekat ke gerbang tak kasatmata di bawah menara.
 
-Kalau memang Fragmen ini mengunci jawaban tentang diriku... maka aku sendiri yang akan membuka pintunya. Saat Kael melangkahkan kaki melewati gerbang Void tak kasat mata yang melindungi Vault of Shards, dunianya berkedip hitam. Segalanya terasa membeku sesaat, lalu... terpecah menjadi ribuan kepingan.
+Kalau jawaban tentang dirinya terkunci di sana, dia akan membukanya sendiri.
 
-"KAEL! Jangan—!" teriak Sylvara dari luar, tapi sudah terlambat.
+Kael melangkah melewati batas Void.
 
-Kael tiba-tiba mendapati dirinya berada di sebuah ruangan kosong yang aneh. Dindingnya terbuat dari cermin raksasa. Namun, setiap cermin memantulkan versi dirinya yang
+“Kael, jangan—”
 
-berbeda-beda: Kael saat kecil, Kael dengan mata penuh api, Kael yang tampak tua dan lelah, Kael yang menyerupai monster bersisik.
+Suara Sylvara terputus. Dunia menjadi hitam, membeku sekejap, lalu pecah menjadi ribuan serpihan cahaya.
 
-"...Apa ini?" gumam Kael bingung.
+Ketika pandangannya pulih, Kael berdiri di dalam ruangan yang dikelilingi cermin-cermin raksasa. Setiap permukaan memantulkan dirinya dalam bentuk berbeda: seorang anak yang ketakutan, pria tua yang kelelahan, sosok bersisik, dan tubuh yang terbakar api.
 
-"Kita," jawab sebuah suara dari salah satu pantulan cermin. Salah satu cermin berubah menjadi gelap. Sesosok Kael dengan mata hitam kelam dan senyum mengerikan melangkah keluar dari cermin itu.
+“Apa ini?”
 
-"Kau terus lari dari darah keturunanmu," kata Dark Kael itu. "Kau menolak warisan kekuatanmu. Tapi tetap saja... kau membakar mereka semua, bukan?" Kael mundur selangkah, gemetar. "Bukan aku! Itu karena Fragmen—bukan salahku!"
+“Kita.”
 
-"Fragmen tak pernah memilih jiwa yang suci," balas Dark Kael dingin. "Ia selalu mencari wadah yang paling rusak... dan itu adalah kau." Dark Kael langsung menyerang. Gaya bertarungnya cepat, brutal, dan penuh kebencian.
+Salah satu cermin menghitam. Seorang Kael bermata gelap melangkah keluar, senyumnya tipis dan kejam.
 
-Kael berusaha bertahan, tapi setiap serangan Dark Kael memicu kilas balik ingatan masa lalunya yang menyakitkan. Benturan energi. Gema suara di benaknya: "Kau hanyalah sebuah kesalahan." "Ayahmu itu monster."
+“Kau terus lari dari darahmu,” katanya. “Kau menolak warisanmu, tetapi desa itu tetap terbakar.”
 
-"Darahmu adalah kutukan."
+“Itu karena Fragmen.” Kael mundur. “Bukan aku.”
 
-Kael jatuh berlutut, terluka fisik dan mental. Tapi perlahan... api yang berbeda mulai menyala di matanya. Bukan api kehancuran, tapi api tekad.
+“Fragmen tidak memilih jiwa yang utuh. Ia mencari wadah paling rusak.” Sosok itu membuka kedua tangannya. “Ia memilihmu.”
 
-"...Mungkin aku memang rusak..." bisiknya lembut, namun penuh keyakinan. "...Tapi aku
+Dark Kael menyerang.
 
-bukan kalian." Dia menatap tajam pada Dark Kael. "...Dan aku tak akan pernah membiarkan sisi gelap ini mengendalikanku." Kael berdiri tegak. Fragmen di dadanya menyatu lebih erat dengan tubuhnya. Bayangan samar berbentuk sayap naga merah membara terbentuk di belakang punggungnya.
+Pukulannya cepat dan brutal. Setiap benturan memunculkan kembali potongan masa lalu yang ingin Kael kubur.
 
-Aura Kael menguat.
+*Kau sebuah kesalahan.*
 
-"Jika aku adalah luka..." seru Kael. "...maka biarkan lukaku menari!"
+*Ayahmu monster.*
 
-Pertarungan klimaks antara Kael dan Dark Kael pun terjadi. Gerakan mereka cepat, sihir api berputar liar seperti tarian mematikan di tengah ruangan cermin. Sylvara, yang menunggu di luar, melihat cahaya Fragmen Kael berkedip sangat cepat dari dalam Vault. "...Dia... sepertinya mulai bisa menerima dirinya sendiri."
+*Darahmu kutukan.*
 
-Kael menebaskan Zerath's Fang ke arah bayangannya. Cermin-cermin di sekeliling mereka retak hebat. Ruangan mulai runtuh. Dark Kael tersenyum sebelum lenyap. "Luka memang tidak bisa dibunuh, Kael. Tapi... kau bisa belajar menari dengannya. Selamat datang... pada dirimu yang baru."
+Kael jatuh berlutut. Luka di tubuhnya tidak seberapa dibanding suara-suara yang merobek pikirannya.
 
-Cermin-cermin itu pecah total. Kael terbangun di pelukan Sylvara di luar Vault of Shards. Tubuhnya masih sedikit hangus dan penuh luka, tapi matanya kini tampak lebih tenang, lebih menerima.
+Namun di balik rasa sakit itu, sesuatu tetap menyala.
 
-"Kau... berhasil menang?" tanya Sylvara lega.
+“Mungkin aku memang rusak,” katanya pelan.
 
-Kael menggeleng pelan. "...Tidak. Aku hanya... menari bersamanya." Di tempat yang jauh, di puncak menara reruntuhan lain, Rowan memandang langit yang berwarna merah darah. "Jiwa Kael mulai bersatu dengan Fragmen-nya... Hati-hati, Kael.
+Dark Kael berhenti.
 
-Kekuatan sebesar itu... bisa membuatmu menjadi pahlawan terhebat. Atau... iblis terakhir bagi Zerath."
+Kael mengangkat kepala. “Tapi aku bukan dirimu. Dan aku tidak akan membiarkan sisi ini memegang kendali.”
+
+Dia bangkit. Fragmen di dadanya beresonansi lebih dalam dengan tubuhnya. Bayangan sayap naga merah terbentuk di belakang punggungnya, memenuhi ruangan dengan hawa panas.
+
+Dark Kael tersenyum. “Lalu apa yang akan kau lakukan terhadap luka yang tak bisa dibunuh?”
+
+Kael menggenggam Zerath's Fang.
+
+“Belajar hidup bersamanya.”
+
+Mereka kembali bertarung. Api merah berputar di antara cermin, mengikuti tebasan dan langkah mereka seperti tarian yang liar. Dari luar Vault, Sylvara melihat cahaya Fragmen berkedip di sela-sela retakan menara.
+
+Kael akhirnya menebaskan Zerath's Fang ke arah bayangannya. Seluruh cermin pecah dalam satu gelombang.
+
+Dark Kael memudar bersama serpihan kaca.
+
+“Luka tidak pernah benar-benar hilang,” bisiknya. “Kau hanya belajar bergerak tanpa membiarkannya menghentikanmu.”
+
+Ruangan runtuh.
+
+Kael tersadar di luar Vault, bersandar di pelukan Sylvara. Tubuhnya hangus di beberapa bagian, tetapi kepalanya terasa lebih tenang.
+
+“Kau menang?” tanya Sylvara.
+
+Kael menggeleng. “Tidak. Aku hanya berhenti melawannya dengan cara yang salah.”
+
+Di puncak reruntuhan lain, Rowan memandang langit merah darah.
+
+“Jiwanya mulai menyatu dengan Fragmen,” gumamnya. “Kekuatan itu akan menjadikannya pahlawan terbesar Zerath—atau iblis terakhirnya.”
