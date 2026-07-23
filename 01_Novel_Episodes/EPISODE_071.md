@@ -1,29 +1,55 @@
 # Episode 071 — Pilihan Terakhir di Aethelgard
 
-Aula Kuil Celestial runtuh dengan cepat di sekitar mereka. Bongkahan kristal dan es berjatuhan, debu beterbangan. Kael berlutut di depan Inti Cahaya yang energinya masih berputar liar, dilindungi oleh sisa-sisa gelembung energi Penjaga Celestial yang hampir lenyap sepenuhnya.
+Aula runtuh semakin cepat.
 
-« Pilih… cepat… Pewaris… » Suara lemah Penjaga bergema untuk terakhir kalinya di benak Kael sebelum lenyap. Menyegelnya butuh pengorbanan… diriku? Kael menatap Inti Cahaya yang retak itu. Melarikan diri… membiarkannya meledak dan menghancurkan seluruh lembah ini? Tidak…
+Kael berlutut di depan Inti Cahaya. Energinya masih berputar liar di balik sisa perlindungan Penjaga Celestial yang hampir lenyap.
 
-Jalan Keempat… Dia menatap lengan kirinya yang kini terasa dingin, pola rune ungunya tampak stabil. Keseimbangan… Kael mengambil keputusan sepersekian detik. Dia tidak mencoba menyegel total Inti Cahaya itu, tapi dia juga tidak akan lari begitu saja.
+*Pilih, Pewaris.*
 
-"Aku tidak akan jadi korbanmu, Rowan!" teriaknya pada reruntuhan. "Tapi aku juga tidak
+Suara Penjaga terdengar untuk terakhir kalinya.
 
-akan lari dari tanggung jawabku!" Dia menjulurkan kedua tangannya ke arah Inti Cahaya. Dia menyalurkan sisa energi murni dari Fragmen kanannya dan energi Void terkendali dari lengan kirinya secara bersamaan, bukan untuk menyegel paksa, tapi untuk menstabilkan, meredakan energi liarnya. "Seimbangkan… cukup untuk meredakannya…"
+Kael menatap retakan pada Inti. Menyegelnya mungkin menuntut tubuhnya sebagai pengorbanan. Melarikan diri berarti membiarkan ledakan menghancurkan seluruh lembah.
 
-Energi tiga warna beradu untuk menstabilkan.
+Dia tidak menerima kedua pilihan itu.
 
-Inti Cahaya itu bereaksi. Cahayanya yang tadinya liar dan berkedip-kedip kini mulai sedikit lebih tenang, berputar lebih teratur. Retakan di permukaannya tetap ada, tapi energi destruktifnya mereda. Upaya itu menguras habis sisa tenaga Kael.
+Rune pada lengan kirinya telah stabil setelah benturan Aether dan Void. Kael mengangkat kedua tangan.
 
-Tepat saat itu, Sosok Berhelm berhasil mencapai Kael di tengah reruntuhan, meraih lengannya yang lemas. "Cukup, Anomali! Kita harus pergi dari sini!"
+“Aku tidak akan menjadi korban Rowan. Tapi aku juga tidak akan meninggalkan tanggung jawab ini.”
 
-"Inti Cahaya…?" tanya Kael lemah.
+Api merah, es biru, dan Void ungu mengalir menuju Inti. Dia tidak memaksa Fragmen itu tertutup. Kael hanya menahan putarannya dan mengembalikan energi liar ke pola yang lebih teratur.
 
-"Sudah stabil untuk sementara waktu," jawab Sosok Berhelm. "Akan tersegel dengan sendirinya di dalam reruntuhan kuil ini. Prioritas sekarang adalah ekstraksi!" Sosok Berhelm menarik Kael menjauh dari altar tepat saat langit-langit di atas mereka runtuh total, mengubur Inti Cahaya di bawah berton-ton kristal dan es.
+Cahaya tiga warna bertemu di permukaan Inti.
 
-Sylvara dan Zireth segera membantu Kael berdiri. "Kael! Kau tidak apa-apa?" tanya Sylvara cemas.
+Denyutnya perlahan tenang. Retakan masih ada, tetapi tekanan yang hendak meledak mulai mereda.
 
-"Aku… tidak tahu…" jawab Kael, merasa sangat lelah.
+Seluruh sisa tenaga Kael terkuras.
 
-Di tengah kekacauan reruntuhan, Rowan dan Zevaron tampak menghentikan pertarungan mereka sejenak, melihat Kael dibawa pergi oleh Sosok Berhelm. Rowan menyeringai sinis. "Dia menolak menjadi pengorbanan… tapi dia tetap akan menjadi kunci, cepat atau lambat."
+Sosok Berhelm mencapai altar dan menangkap lengannya.
 
-Zevaron menatap Kael dengan marah saat dia dibawa menjauh. "Dia akan jadi milikku nanti!" Kael, Sylvara, Zireth, dan Sosok Berhelm berlari keluar dari kuil yang runtuh total, meninggalkan Rowan dan Zevaron yang nasibnya belum jelas di tengah kehancuran Kuil Celestial.
+“Cukup. Kita keluar sekarang.”
+
+“Intinya?” tanya Kael dengan suara lemah.
+
+“Stabil untuk sementara. Reruntuhan kuil akan menyegelnya.”
+
+Dia menarik Kael menjauh tepat ketika langit-langit runtuh dan mengubur altar di bawah kristal serta es.
+
+Sylvara dan Zireth datang membantu.
+
+“Kau masih sadar?” tanya Sylvara.
+
+Kael mencoba berdiri. “Aku tidak yakin.”
+
+Di antara puing, Rowan dan Zevaron menghentikan pertarungan mereka sesaat.
+
+Rowan melihat Kael dibawa keluar dan tersenyum sinis.
+
+“Dia menolak menjadi pengorbanan. Namun cepat atau lambat, dia tetap akan menjadi kunci.”
+
+Zevaron memandang Kael dengan kemarahan yang belum padam.
+
+“Kekuatan itu akan menjadi milikku.”
+
+Kael, Sylvara, Zireth, dan Sosok Berhelm berlari menuju pintu kuil. Bangunan Lykaros runtuh sepenuhnya di belakang mereka.
+
+Nasib Rowan serta Zevaron tertelan debu dan cahaya, tetapi Kael tahu keduanya terlalu keras kepala untuk mati semudah itu.

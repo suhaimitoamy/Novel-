@@ -1,29 +1,59 @@
 # Episode 075 — Menempa Jalan Keempat
 
-Beberapa hari kemudian, setelah turun dari pegunungan es dan melakukan perjalanan jauh, Kael, Sylvara, dan Zireth menemukan diri mereka berkemah di sebuah hutan pinus yang sunyi di wilayah perbatasan sebelum memasuki daerah pengaruh Kekaisaran Sylphara.
+Beberapa hari kemudian, Kael, Sylvara, dan Zireth berkemah di hutan pinus dekat wilayah Sylphara.
 
-Kael duduk bersila di dekat api unggun, mata terpejam. Dia mencoba bermeditasi, fokus memahami perubahan energi di lengan kirinya setelah semua peristiwa di Puncak Aethelgard. Energi Void ini… terasa dingin, kosong… tapi kini ada struktur di dalamnya, pikirnya. Aku bisa merasakannya menyatu dengan api merah dan biru Fragmen-ku… bukan lagi melawan atau merusak, tapi seperti… melengkapi? Seperti bayangan yang kini mengikuti irama cahaya, bukan menelannya.
+Kael duduk di samping api unggun dengan mata tertutup. Dia memusatkan perhatian pada perubahan di lengan kiri.
 
-Dia mencoba menyalurkan energi itu perlahan ke telapak tangannya. Api berwarna ungu gelap yang stabil muncul, tidak liar dan berderak seperti saat dia gunakan melawan Aether Roc atau Penjaga Kristal. Api Void stabil.
+Void di sana tetap dingin dan kosong, tetapi kini memiliki pola. Energinya tidak lagi terus menolak api merah serta es biru dari Fragmen. Ketiganya bergerak dalam irama yang sama, seperti bayangan yang mengikuti cahaya tanpa berusaha menelannya.
 
-Sylvara mengamati dari dekat, sedikit cemas namun juga penasaran. "Bagaimana rasanya, Kael?"
+Kael membuka telapak tangan.
 
-Kael membuka mata, menatap api ungu gelap di tangannya. "Aneh. Dingin. Tapi… bisa kukendalikan. Sepertinya insiden ledakan energi campuran di kuil itu… menyeimbangkannya secara paksa? Atau memaksanya beradaptasi dengan energi Fragmen-ku?"
+Api ungu gelap muncul. Nyala itu stabil dan tidak berderak liar seperti sebelumnya.
 
-Zireth, yang menganalisis dari jauh dengan pemindai kecil di tangannya yang utuh, tampak tertarik. "Luar biasa. Pola energimu sekarang menunjukkan tiga frekuensi primer yang berbeda namun berputar dalam semacam harmoni paksa. Merah, kemungkinan resonansi Zhorak atau darah nagamu. Biru, resonansi Aelarion atau sisi Elf-mu, mungkin juga sisa energi Inti Cahaya. Dan Ungu Gelap, jelas energi Void yang kini terintegrasi." Dia mencatat di datapadnya. "Teori integrasi paksa setelah paparan energi ekstrem... mungkin benar. Ini bisa memberimu akses ke kemampuan baru yang tak terduga… tapi risikonya tetap sangat tinggi. Kita tidak tahu efek jangka panjang dari perpaduan energi fundamental seperti ini."
+Sylvara mengamatinya. “Bagaimana rasanya?”
 
-"Aku tahu," kata Kael sambil memadamkan api Void itu. "Tapi aku tidak bisa hanya diam dan menunggu. Rowan mungkin sudah dikhianati, tapi Arsitek masih di luar sana dan punya rencana besar. Jika aku ingin punya kesempatan menghentikannya, aku harus bisa menguasai semua potensi yang kumiliki, termasuk sisi gelap ini."
+“Dingin. Tapi dapat kukendalikan.” Kael memutar telapak tangan dan menjaga nyala tetap kecil. “Ledakan di kuil mungkin memaksa Void menyesuaikan diri dengan Fragmen.”
 
-Kael berdiri, menghunus Zerath's Fang. "Zireth, bisakah kau membuat semacam target latihan? Aku perlu mencoba kombinasi baru." Zireth menyeringai sedikit. "Dengan senang hati." Dia melemparkan beberapa drone logam kecil ke udara dari kantungnya. "Drone latihan standar dari Akademi Vorth Aereth. Cukup pintar untuk menghindar, cukup kuat untuk menahan beberapa serangan dasar."
+Zireth membaca pola energinya.
 
-Kael mulai berlatih. Dia mencoba menggabungkan serangan api merah-biru klasiknya dengan semburan atau perisai energi Void dari lengan kirinya. Awalnya terasa kaku, tidak efektif, dan menguras energi dengan cepat. Perisai Void-nya kuat menahan serangan drone, tapi membuatnya lelah. Serangan jarak jauh Void-nya kuat tapi sulit dikontrol arahnya.
+“Tiga frekuensi primer bergerak dalam harmoni paksa. Merah berasal dari resonansi Zhorak atau darah nagamu. Biru dari sisi Elf dan sisa Aether Inti Cahaya. Ungu jelas Void.”
 
-Sylvara memperhatikan dari pinggir. "Jangan terlalu memaksakan kendali, Kael! Coba rasakan alirannya. Energi itu sekarang bagian dari dirimu, baik atau buruk. Jangan melawannya terus-menerus, tapi coba arahkan alurnya."
+Dia mencatat hasilnya.
 
-Kael berhenti sejenak, mengambil napas dalam, mencoba meresapi saran Sylvara. Dia kembali fokus pada keseimbangan tiga energi di dalam dirinya. Merah... Biru... Ungu... Bukan lagi tiga entitas terpisah... tapi... satu kesatuan yang kompleks...
+“Kau mungkin mendapat kemampuan baru. Kita belum tahu harga jangka panjangnya.”
 
-Dia menyerang drone latihan terakhir dengan gerakan baru yang terasa lebih alami. Dia menebaskan Zerath's Fang, namun kali ini bilah pedangnya dilapisi oleh aura energi tiga warna yang berputar harmonis – merah, biru, dan ungu gelap. Tebasan itu tidak menimbulkan ledakan besar, tapi saat mengenai drone, drone itu seolah ‘terhapus’ dari eksistensi seketika, lenyap menjadi debu halus tanpa suara.
+“Aku tidak bisa menunggu sampai Arsitek selesai dengan rencananya.” Kael memadamkan api. “Kalau sisi ini sudah menjadi bagian dariku, aku harus menguasainya.”
 
-Tebasan tiga warna. Zireth, yang terus memantau data energi, terkejut melihat pembacaannya. "Itu… itu bukan penghancuran energi biasa! Energi signaturnya… mirip dengan energi Keseimbangan putih yang kau keluarkan saat melawan Penjaga Nexus palsu! Semacam… Reality Erasure tingkat sangat rendah!? Bagaimana bisa kau memadukannya dengan energi tiga warna!?"
+Dia menghunus Zerath's Fang.
 
-Kael menatap pedangnya, lalu ke lengannya, sama terkejutnya. "Aku… tidak tahu bagaimana caranya. Aku hanya… melakukannya." Dia mulai menyentuh potensi sebenarnya dari ‘Jalan Keempat’ yang dia pilih – sebuah perpaduan kekuatan primordial, kegelapan kosmik, dan keseimbangan fundamental yang berbahaya namun mungkin menjadi satu-satunya harapan Zerath.
+“Siapkan target.”
+
+Zireth melemparkan beberapa drone latihan dari kantungnya. Mesin-mesin kecil itu menyebar dan bergerak tidak beraturan.
+
+Kael mencoba menggabungkan serangan api-es dengan perisai dan proyektil Void. Percobaan awal terasa kaku. Pertahanannya kuat tetapi cepat menguras tenaga. Serangan jarak jauh sulit diarahkan.
+
+“Jangan memaksanya tunduk,” kata Sylvara. “Rasakan alirannya. Arahkan, bukan lawan.”
+
+Kael berhenti dan mengatur napas.
+
+Merah. Biru. Ungu.
+
+Bukan tiga kekuatan terpisah, melainkan satu sistem yang belum dia pahami.
+
+Drone terakhir menyerang.
+
+Kael menebaskan Zerath's Fang. Aura tiga warna menyelimuti bilah dan bergerak tanpa benturan keras.
+
+Ketika tebasan menyentuh drone, mesin itu lenyap menjadi debu tanpa ledakan.
+
+Zireth melihat pemindainya dengan mata membesar.
+
+“Itu bukan penghancuran biasa. Polanya mendekati Reality Erasure tingkat rendah.”
+
+Kael memandang pedangnya. “Aku tidak merencanakannya.”
+
+“Justru itu masalahnya.”
+
+Nyala tiga warna masih berputar tipis di sepanjang bilah.
+
+Kael baru menyentuh permukaan kekuatan Jalan Keempat—perpaduan yang mungkin menyelamatkan Zerath atau menghapusnya tanpa sisa.

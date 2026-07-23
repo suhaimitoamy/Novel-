@@ -1,35 +1,57 @@
 # Episode 073 — Nexus Command
 
-Getaran hebat terus mengguncang Puncak Beku. Retakan-retakan baru muncul di permukaan es di sekitar mereka. Sosok Berhelm melihat ke arah sumber getaran, lalu kembali menatap Kael. "Pembacaan energi dari bawah sangat kacau… Aktivitas tektonik yang tidak wajar… Ini bukan bagian dari skenario yang diperkirakan Nexus." Dia menurunkan tombak energinya sedikit. "Ekstraksi ditunda. Situasi lokal ini menjadi prioritas sementara."
+Getaran terus mengguncang Puncak Beku. Retakan baru menjalar di sekitar kaki mereka.
 
-"Apa maksudmu?" tanya Kael. "Apa yang terjadi di bawah sana?"
+Sosok Berhelm membaca data pada zirahnya, lalu menurunkan tombak.
 
-"Sesuatu di bawah gunung ini terbangun," jelas Sosok Berhelm. "Kemungkinan besar terpicu oleh ledakan energi Inti Cahaya yang tidak stabil tadi." Dia menatap Kael. "Kami dari Nexus Command memantau semua potensi ancaman terhadap Keseimbangan Multiverse.
+“Aktivitas dari bawah tidak sesuai skenario Nexus. Ekstraksi ditunda.”
 
-Itu termasuk kedua belas Fragmen Zerath, energi Void, entitas primordial kuno… dan tentu saja, termasuk anomali sepertimu."
+“Apa yang bangun di sana?” tanya Kael.
 
-"Multiverse?" ulang Zireth. "Jadi kalian benar-benar..."
+“Kemungkinan dipicu ledakan Inti Cahaya.” Helm hitam itu mengarah kepadanya. “Nexus Command memantau ancaman terhadap keseimbangan multiverse: Fragmen Zerath, Void, entitas primordial, dan anomali sepertimu.”
 
-"Penjaga," potong Sosok Berhelm. "Kami tidak berpihak pada Cahaya ataupun Kegelapan, hanya pada Keseimbangan fundamental. Kami baru akan mengintervensi jika satu kekuatan mengancam merusak struktur banyak realitas sekaligus." Dia kembali menatap Kael.
+Zireth menatapnya. “Multiverse. Jadi kalian benar-benar penjaga dari luar dunia ini.”
 
-"Energi Fragmen primordial di dalam dirimu sangat unik, mampu beresonansi dan bahkan terintegrasi dengan energi Void tanpa langsung menghancurkan wadahnya. Itu membuatmu sangat berbahaya… sekaligus, secara teoretis, berpotensi sangat berguna."
+“Kami tidak berpihak pada Cahaya atau Kegelapan. Kami menjaga struktur dasar realitas dan baru turun tangan ketika satu kekuatan mengancam banyak dunia.”
 
-"Berguna untuk apa?" tanya Sylvara curiga.
+Dia kembali memindai Kael.
 
-"Menjadi penyeimbang aktif… atau menjadi senjata terakhir jika Keseimbangan sudah tidak bisa diperbaiki lagi dengan cara lain." Getaran kembali terasa, kali ini lebih kuat dari sebelumnya. "Kita harus segera pergi dari puncak ini sekarang. Apapun yang ada di bawah sana… dia sedang naik ke permukaan."
+“Fragmen dalam tubuhmu mampu beresonansi dengan Void tanpa langsung menghancurkan wadah. Itu membuatmu berbahaya.”
 
-"Kau akan membantu kami pergi dari sini?" tanya Kael.
+Sosok Berhelm berhenti sejenak.
 
-"Kepentinganku saat ini selaras dengan keselamatanmu," jawab Sosok Berhelm. "Jika kau hancur sekarang, data evaluasi Nexus tentang potensimu tidak akan lengkap." Dia memberi isyarat ke arah Void Wyvern yang menunggu. "Naik. Cepat."
+“Dan mungkin berguna.”
 
-Dengan sedikit ragu, Kael, Sylvara, dan Zireth naik ke punggung Void Wyvern bersama Sosok Berhelm. Konstruk magitek itu segera terbang naik, menjauhi Puncak Aethelgard yang kini bergetar hebat. Dari ketinggian, mereka melihat pemandangan yang mengerikan. Puncak gunung es itu mulai retak dan runtuh ke dalam, seolah ada sesuatu yang sangat besar dan kuat sedang mendorong keluar dari bawah permukaannya.
+“Untuk apa?” tanya Sylvara.
 
-Gunung runtuh ke dalam.
+“Sebagai penyeimbang aktif. Atau senjata terakhir jika struktur tidak dapat diperbaiki.”
 
-"Apa yang ada di bawah sana?" tanya Sylvara ngeri.
+Gunung bergetar lebih keras. Bagian puncak mulai melesak ke dalam.
 
-"Menurut legenda Dwarf paling kuno..." Zireth mengingat informasi dari arsip Karag Thürm
+“Kita pergi sekarang,” kata Sosok Berhelm. “Apa pun yang berada di bawah sana sedang naik.”
 
-dan Urdron. "...beberapa tetua mengatakan inti dari Gunung Gromdar, gunung di bawah Puncak Aethelgard ini, adalah penjara… atau mungkin makam… dari salah satu Forge God kuno sebelum Zhorak… Volundr?" Kael merasakan sensasi panas yang familiar dari arah gunung yang runtuh, energi yang mirip dengan yang dia rasakan di reruntuhan Urdron atau di jantung Thürdrak. "Forge God?
+“Kau akan membantu?”
 
-Bangkit dari tidurnya?" Void Wyvern terbang menjauh dengan kecepatan tinggi. Di belakang mereka, Puncak Aethelgard runtuh semakin parah, dan dari kedalaman kawah yang terbentuk, mulai terlihat cahaya merah membara dan siluet logam raksasa yang mulai terbentuk.
+“Untuk saat ini, keselamatanmu sejalan dengan kepentingan Nexus. Data tentang potensimu tidak berguna jika kau mati di sini.”
+
+Void Wyvern merendahkan tubuh.
+
+“Naik.”
+
+Kael, Sylvara, dan Zireth bertukar pandang, lalu menaiki punggung konstruksi tersebut bersama pemiliknya.
+
+Wyvern terbang menjauh ketika Puncak Aethelgard mulai runtuh ke dalam. Dari ketinggian, mereka melihat kawah besar terbentuk di pusat gunung.
+
+Cahaya merah membara muncul dari kedalaman.
+
+“Apa yang dipenjara di sana?” tanya Sylvara.
+
+Zireth mengingat arsip Karag Thürm. “Legenda Dwarf menyebut inti Gunung Gromdar sebagai makam atau penjara salah satu Forge God sebelum Zhorak.”
+
+“Volundr?”
+
+Kael merasakan panas dari kawah. Energinya mengingatkan pada Urdron dan Jantung Mekanis Thürdrak.
+
+“Forge God sedang bangkit.”
+
+Di bawah mereka, siluet logam raksasa mulai terbentuk di dalam cahaya merah.

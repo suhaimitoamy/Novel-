@@ -1,33 +1,59 @@
 # Episode 074 — Gema Pengorbanan
 
-Void Wyvern mendarat di sebuah dataran tinggi bersalju yang cukup jauh dari Puncak Aethelgard, yang kini sebagian telah runtuh dan memancarkan panas vulkanik yang aneh di tengah lanskap es. Sosok Berhelm turun dari Wyvern, mengamati gunung yang membara di kejauhan.
+Void Wyvern mendarat di dataran bersalju yang cukup jauh dari Aethelgard.
 
-"Kebangkitan Inti Bumi Primordial… Ini pasti akan menarik perhatian Kekaisaran Karag Thürm… dan mungkin Zhorak sendiri jika dia masih mengamati Zerath." Kael juga turun, pikirannya masih terpaku pada ucapan Rowan di kuil tadi. "Jadi… aku memang dimaksudkan sebagai pengorbanan? Untuk merobek dimensi?"
+Di belakang mereka, gunung terus runtuh dan memancarkan panas vulkanik di tengah wilayah es.
 
-Sosok Berhelm menoleh pada Kael. "Data dari berbagai kemungkinan timeline memang menunjukkan skenario itu sangat mungkin terjadi. Energi unikmu, terutama saat dilepaskan dalam kondisi kritis di dekat Nexus Point dimensional seperti Inti Cahaya atau Gerbang Es…
+Sosok Berhelm turun lebih dulu. “Kebangkitan Inti Bumi Primordial akan menarik Karag Thürm. Mungkin juga perhatian Zhorak, jika dia masih mengawasi Zerath.”
 
-secara teoretis bisa menciptakan keretakan dimensional permanen. Entah itu tujuan asli Sang Arsitek, atau hanya efek samping yang dia inginkan dari tindakan Rowan."
+Kael turun dengan pikiran tertahan pada ucapan Rowan.
 
-"Dia hanya alat..." desis Sylvara marah. "Digunakan untuk menghancurkan dunia!"
+“Jadi aku memang dirancang menjadi pengorbanan untuk merobek dimensi?”
 
-Zireth menatap Kael. "Pertanyaannya sekarang, Kael, apa yang akan kau lakukan setelah mengetahui kemungkinan itu?" Kael menatap lengan kirinya. Sensasi dingin aneh setelah insiden purifikasi-korupsi di kuil tadi mulai terasa… normal? Pola rune ungunya tampak lebih stabil, menyatu lebih dalam dengan kulitnya. "Aku… tidak tahu pasti." Dia mengepalkan tangan kirinya. Tidak ada rasa sakit seperti dulu, hanya sensasi energi dingin yang kini terasa terkendali, menyatu.
+Sosok Berhelm menghadap kepadanya.
 
-Rasanya... berbeda. Seperti bagian dari diriku sekarang. Dia menatap Sylvara dan Zireth dengan tekad baru. "Tapi aku tahu satu hal. Aku tidak bisa hanya terus mengejar Fragmen seperti yang Arsitek atau siapapun inginkan. Aku harus menghentikan Rowan... dan mencari tahu siapa Arsitek ini sebenarnya, dan bagaimana cara melawannya."
+“Banyak kemungkinan waktu menunjukkan skenario itu. Jika energimu dilepaskan dalam kondisi kritis di dekat titik Nexus seperti Gerbang Es atau Inti Cahaya, keretakan permanen dapat terbentuk.”
 
-"Tujuan yang ambisius," komentar Sosok Berhelm. "Arsitek bukan entitas biasa. Mereka beroperasi dari luar pemahaman linear kita tentang waktu dan ruang." Dia mendekati Kael.
+“Dia dipakai untuk menghancurkan dunia,” kata Sylvara.
 
-"Aku akan meninggalkanmu di sini. Nexus Command akan terus memantau perkembanganmu. Jangan sampai Keseimbangan terganggu lebih jauh oleh tindakan gegabahmu… atau oleh kegagalanmu dalam menghadapi Arsitek."
+“Entah itu tujuan utama Arsitek atau akibat yang ingin dia manfaatkan.”
 
-"Kau tidak akan membantu kami lebih lanjut?" tanya Kael.
+Zireth menatap Kael. “Apa yang akan kau lakukan sekarang?”
 
-"Tugas kami adalah mengamati dan mengintervensi pada skala multiverse," jawab Sosok Berhelm. "Konflik internal di Zerath… adalah ujian bagi realitas ini sendiri untuk membuktikan kelayakannya bertahan. Kecuali jika Void atau Struktur Arsitek mengancam menelan segalanya." Dia menunjuk ke arah yang berbeda, bukan ke utara atau selatan, tapi ke arah hutan lebat di kejauhan. "Jika kau mencari jawaban tentang Arsitek… carilah tempat di mana tabir antar dunia paling tipis. Terkadang, mimpi buruk adalah cermin dari realitas lain yang ingin Dia sembunyikan."
+Kael membuka kain pada lengan kiri.
 
-Dengan kata-kata penuh teka-teki itu, Sosok Berhelm kembali ke Void Wyvern-nya dan terbang pergi, menghilang dengan cepat ke langit yang mulai mendung.
+Rune ungu tampak lebih stabil dan menyatu lebih dalam dengan kulit. Sensasi dingin yang dulu asing kini terasa seperti bagian tubuhnya sendiri.
 
-"Tempat di mana tabir antar dunia paling tipis? Mimpi buruk?" Sylvara tampak bingung. "Apa
+“Aku belum tahu semua jawabannya.” Dia mengepalkan tangan. “Tapi aku tidak akan terus mengejar Fragmen sesuai jalur yang mereka siapkan.”
 
-maksudnya?" Zireth mengakses kembali data dari arsip Akademi Vorth Aereth dan informasi lain yang dia kumpulkan. "Ada beberapa lokasi seperti itu yang tercatat dalam legenda atau teks terlarang. Yang paling terkenal… sekaligus paling berbahaya… adalah Hutan Mimpi Buruk (Nightmare Forest) di perbatasan wilayah Kekaisaran Fae, Sylphara. Tempat di mana entitas kuno Nyxaria the Whisper konon pertama kali muncul dan menyebarkan terornya."
+Tatapannya mengeras.
 
-Kael teringat nama itu dari catatan atau cerita yang pernah dia dengar. "Nyxaria… Entitas Ketakutan Murni?" Tekad baru muncul di matanya. "Mungkin di sanalah kita akan menemukan petunjuk tentang Sang Arsitek… atau setidaknya, cara untuk melawan Rowan jika dia muncul lagi."
+“Aku akan menghentikan Rowan dan menemukan cara melawan Arsitek.”
 
-Kael, Sylvara, dan Zireth kini memiliki arah baru, meskipun penuh bahaya. Mereka akan menuju wilayah Kekaisaran Sylphara yang penuh ilusi dan misteri, mencari jawaban di Hutan Mimpi Buruk.
+“Tujuan besar.” Sosok Berhelm mendekat. “Arsitek bergerak di luar pemahaman waktu dan ruang linear.”
+
+Dia berbalik menuju Wyvern.
+
+“Nexus akan terus mengawasimu. Jangan memperburuk keseimbangan melalui tindakan gegabah—atau kegagalan.”
+
+“Kau tidak membantu kami?”
+
+“Kami mengintervensi pada skala multiverse. Konflik internal Zerath merupakan ujian bagi kelayakan realitas ini sendiri.”
+
+Sosok Berhelm menunjuk hutan lebat di kejauhan.
+
+“Jika mencari Arsitek, temukan tempat tabir antar dunia paling tipis. Mimpi buruk kadang menjadi cermin realitas yang ingin dia sembunyikan.”
+
+Dia menaiki Void Wyvern dan terbang meninggalkan mereka.
+
+Sylvara memandang hutan. “Tabir tipis dan mimpi buruk?”
+
+Zireth membuka catatan terlarang Vorth Aereth. “Lokasi paling terkenal adalah Hutan Mimpi Buruk di perbatasan Sylphara. Tempat Nyxaria the Whisper pertama kali muncul.”
+
+“Entitas Ketakutan Murni,” kata Kael.
+
+Dia memandang arah baru tersebut.
+
+“Mungkin di sana kita menemukan cara memahami Arsitek—atau senjata untuk menghadapi Rowan.”
+
+Mereka meninggalkan dataran es dan memulai perjalanan menuju wilayah Fae yang dipenuhi ilusi.

@@ -1,33 +1,55 @@
 # Episode 072 — Langit Runtuh
 
-Kelompok Kael berhasil berlari keluar dari Kuil Celestial tepat saat struktur utama bangunan kuno itu runtuh total di belakang mereka, mengirimkan gelombang debu kristal dan sisa energi yang kuat ke udara.
+Kelompok Kael keluar dari Kuil Celestial sesaat sebelum struktur utama runtuh.
 
-"Kita berhasil keluar!" seru Zireth lega.
+Gelombang debu kristal dan sisa energi menyapu lereng. Zireth menahan tubuh dengan lengan mekanis, lalu menoleh ke bangunan yang hilang di balik awan putih.
 
-"Bagaimana dengan Rowan dan Zevaron?" tanya Sylvara sambil menoleh ke belakang.
+“Kita keluar.”
 
-Kael melihat ke arah awan debu reruntuhan. Samar-samar, dia melihat dua kilatan energi – satu berwarna ungu gelap pekat, satu lagi seperti badai elemen kecil – melesat ke arah yang berbeda dari dalam reruntuhan, lalu menghilang.
+“Bagaimana Rowan dan Zevaron?” tanya Sylvara.
 
-"Mereka... sepertinya berhasil kabur. Terpisah."
+Dua kilatan muncul dari reruntuhan. Satu ungu gelap, satu lagi dikelilingi badai elemen. Keduanya melesat ke arah berbeda dan menghilang.
 
-Sosok Berhelm menatap reruntuhan kuil dengan tenang. "Inti Cahaya telah tersegel. Anomali Zevaron dan Rowan Galt tercatat sebagai ancaman sekunder. Misi Ekstraksi primer... berhasil." Dia menoleh ke Kael. "Kau ikut denganku sekarang, Kael Drayven."
+“Mereka kabur,” kata Kael. “Terpisah.”
 
-Kael menatap Sosok Berhelm dengan waspada. "Ikut kemana? Siapa sebenarnya kalian dari Nexus Command ini?" Void Wyvern milik Sosok Berhelm mendarat di dekat mereka, mesinnya yang senyap kembali aktif.
+Sosok Berhelm mengamati kuil dengan tenang.
 
-"Kami adalah Nexus Command. Penjaga Keseimbangan antar Realitas," jawab Sosok Berhelm. "Kau, dengan Fragmen hidup dan integrasi energi Void yang tak terduga dalam dirimu… adalah potensi pelanggaran Keseimbangan terbesar sejak Perang Primordial."
+“Inti Cahaya tersegel. Rowan Galt dan Anomali Zevaron dicatat sebagai ancaman sekunder.”
 
-Sylvara melangkah maju, berdiri protektif di depan Kael. "Dia tidak akan ikut denganmu!" Zireth mengamati zirah dan Wyvern Sosok Berhelm. "Nexus Command… Nama itu tidak ada dalam data Zerath manapun. Kalian... berasal dari dimensi lain?"
+Dia berbalik kepada Kael.
 
-"Itu tidak relevan untukmu," jawab Sosok Berhelm. "Kael Drayven harus diamankan dan dievaluasi untuk memahami potensinya." Dia mengangkat tombak energinya sedikit.
+“Misi ekstraksi primer berhasil. Kau ikut denganku.”
 
-"Jangan melawan."
+Kael berdiri dengan tubuh yang masih lemah. “Ke mana? Dan siapa sebenarnya Nexus Command?”
 
-Kael merasakan energi asing namun terasa familiar dari Sosok Berhelm dan Wyvern-nya – energi Void yang terkendali, mirip dengan yang ada di lengannya sekarang. "Kalian bicara soal Keseimbangan… tapi kalian menggunakan teknologi Void?" Dia mencoba menatap mata di balik helm hitam itu. "Kau bilang aku adalah ancaman… tapi Rowan dan Arsitek-nya yang jelas-jelas mencoba merusak segalanya. Kenapa kalian tidak menghentikan mereka?"
+Void Wyvern mendarat di dekat mereka. Mesinnya kembali menyala tanpa suara.
 
-"Tindakan mereka telah tercatat dan sedang dievaluasi," jawab Sosok Berhelm. "Tapi potensi ketidakstabilanmu… jauh lebih besar dan tak terduga. Kau adalah variabel liar dalam perhitungan kami." Tiba-tiba, Puncak Beku di sekitar mereka bergetar hebat. Bukan getaran sisa dari runtuhan kuil, tapi sesuatu yang lain, berasal dari dalam bumi di bawah mereka.
+“Kami menjaga keseimbangan antarrealitas,” jawab Sosok Berhelm. “Fragmen hidup dan integrasi Void dalam tubuhmu merupakan ancaman terbesar sejak Perang Primordial.”
 
-Zireth memeriksa pemindainya. "Getaran ini... sumbernya bukan dari sini! Tapi dari... bawah! Sangat dalam!"
+Sylvara berdiri di depan Kael. “Dia tidak ikut.”
 
-"Apa lagi sekarang?" desah Sylvara cemas.
+Zireth memandang zirah serta Wyvern. “Nama Nexus Command tidak ada dalam arsip Zerath. Kalian berasal dari luar dimensi ini.”
 
-Semua mata, termasuk helm Sosok Berhelm, kini tertuju ke arah tanah yang bergetar hebat. Misi ekstraksi Kael sepertinya harus ditunda karena ancaman baru yang muncul dari kedalaman es.
+“Informasi itu tidak relevan. Kael harus diamankan untuk evaluasi.”
+
+Tombak energi terangkat sedikit.
+
+“Jangan melawan.”
+
+Kael merasakan Void pada Wyvern dan zirah lawannya. Energi tersebut terkendali sempurna, mirip dengan perubahan yang kini terjadi pada lengan kirinya.
+
+“Kalian memakai Void sambil menyebutku ancaman. Rowan dan Arsitek jelas merusak dunia, tapi kalian membiarkan mereka.”
+
+“Tindakan mereka sedang dievaluasi.” Suara Sosok Berhelm tetap datar. “Potensimu lebih besar dan lebih sulit diprediksi. Kau adalah variabel liar.”
+
+Tanah mendadak berguncang.
+
+Retakan menyebar di atas salju. Getaran itu tidak berasal dari kuil, melainkan jauh di bawah gunung.
+
+Zireth mengaktifkan pemindai. “Sumbernya sangat dalam.”
+
+Sylvara menatap tanah. “Apa lagi yang bangun sekarang?”
+
+Sosok Berhelm menurunkan tombak dan mengalihkan perhatian kepada retakan yang terus membesar.
+
+Ekstraksi Kael harus menunggu. Sesuatu di bawah Puncak Aethelgard mulai bergerak menuju permukaan.
