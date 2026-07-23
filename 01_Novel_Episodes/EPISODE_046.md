@@ -1,27 +1,61 @@
 # Episode 046 — Gema Nyanyian Kehampaan
 
-Di tengah badai Puncak Beku, Kael berdiri diam, kedua tangan terulur, menyalurkan energi dua warna Fragmen-nya yang kini lebih tenang ke arah Makhluk Gerbang Es dan Gerbang Es yang retak di belakangnya.
+Kael berdiri di tengah badai dengan kedua tangan terulur. Energi merah dan biru mengalir menuju Nyanyian Kehampaan serta Gerbang Es di belakangnya.
 
-"Kael! Apa yang kau lakukan!? Dia akan menyerangmu!" teriak Sylvara cemas.
+“Kael, ia akan menyerangmu!” teriak Sylvara.
 
-"Aku..." jawab Kael, mata masih terpejam, fokus penuh. "Aku mencoba menenangkannya...
+“Aku mencoba menenangkan sumbernya.” Kael tidak membuka mata. “Gerbangnya terlalu kacau.”
 
-menenangkan sumbernya..." Anehnya, Makhluk Gerbang Es tampak ragu. Serangannya terhenti. Matanya yang ungu gelap menatap Kael lekat, seolah merasakan getaran energi aneh yang dipancarkan Kael, energi yang tidak mengancam tapi mencoba 'berbicara'.
+Anehnya, makhluk raksasa itu berhenti. Kekosongan pada wajahnya mengarah kepada Kael, seolah sedang mendengarkan energi yang tidak datang sebagai ancaman.
 
-Namun, Gerbang Es di belakangnya masih tidak stabil. Retakan di tengahnya memancarkan energi Void yang semakin pekat dan dingin. Tiba-tiba, dari kedalaman retakan Gerbang Es, terdengar suara. Bukan auman monster, bukan pula bisikan Void. Tapi sebuah nyanyian. Nada-nada tinggi, sumbang, tanpa irama yang jelas, namun memiliki kekuatan luar biasa yang seolah merobek gendang telinga dan menusuk langsung ke dalam jiwa.
+Namun retakan Gerbang Es terus memancarkan Void.
 
-Zireth langsung menutup telinganya, wajahnya meringis kesakitan. "Argh! Suara apa itu!? Kepalaku... seperti mau pecah!" Sylvara jatuh berlutut, pandangannya kabur, busurnya terlepas dari genggaman. "Sakit... rasanya... begitu dingin... putus asa..."
+Dari dalam celah muncul sebuah nyanyian.
 
-Para prajurit Dwarf Void yang tadi pingsan mulai kejang hebat di tanah, seolah jiwa mereka yang tertidur disiksa oleh suara itu. Kael membuka mata, dia juga merasakan efek mengerikan dari nyanyian itu – gelombang keputusasaan yang menghanyutkan, rasa dingin yang merayap hingga ke tulang sumsum jiwanya. "Ini... Nyanyian Kehampaan... entitas yang disebut di buku rune itu?"
+Nada tinggi dan sumbang memenuhi puncak tanpa irama yang dapat dipahami. Suaranya tidak hanya menyakiti telinga. Ia menembus pikiran dan menyentuh luka terdalam dalam jiwa.
 
-Nyanyian itu tampaknya mempengaruhi Makhluk Gerbang Es juga. Tubuh es hitamnya bergetar hebat, cahaya ungu di intinya berkedip liar dan tak menentu. Makhluk Gerbang Es meraung kesakitan, kedua tangannya memegangi area di mana seharusnya kepalanya berada. « ...Diam... Diam... Sakit... Pergi... » Rowan, yang berdiri paling jauh, terlihat sedikit pucat di balik auranya, tapi masih bisa bertahan. "Jadi ini kekuatan sebenarnya yang mereka segel di sini... Pantas saja Arsitek menginginkannya... atau setidaknya, menginginkan gema kekuatannya."
+Zireth menutup telinga. “Kepalaku seperti akan pecah.”
 
-Di tengah rasa sakit dan keputusasaan itu, Kael menyadari sesuatu yang aneh. Nyanyian itu menyakiti semua makhluk, bahkan ciptaan Void seperti Makhluk Gerbang Es. Tapi Fragmen di dadanya... terasa berbeda. Alih-alih merasa sakit, Fragmen itu justru berdenyut semakin
+Sylvara jatuh berlutut. Busurnya terlepas dari tangan.
 
-kuat, seolah mencoba 'menjawab' atau 'mengharmonisasi' nada sumbang dari Nyanyian Kehampaan itu. Fragmen ini... bereaksi pada nyanyian itu? pikir Kael. Mungkinkah... alih-alih melawannya... Mengikuti insting yang datang dari dalam Fragmen-nya, Kael mengubah aliran energinya sekali lagi. Bukan lagi mencoba menenangkan, tapi mencoba 'menyanyikan' nada balasan melalui resonansi Fragmen-nya. Dia menyalurkan seluruh tekadnya, rasa sakitnya sendiri, serpihan harapannya yang tersisa, ke dalam energi merah dan biru itu.
+“Dingin... dan putus asa.”
 
-Energi Kael membentuk pola cahaya kompleks di udara, beresonansi dengan nada aneh dari Gerbang Es, menciptakan harmoni yang ganjil namun kuat. Resonansi energi Kael yang kuat. goyah> Terjadi tarik-menarik energi yang hebat antara resonansi Kael dan Nyanyian Kehampaan.
+Prajurit-prajurit Dwarf yang pingsan mulai kejang di atas salju.
 
-Nyanyian sumbang dari gerbang itu terdengar goyah untuk pertama kalinya. Makhluk Gerbang Es tampak semakin tersiksa oleh dua frekuensi kuat yang beradu di sekitarnya. Rowan melihat apa yang dilakukan Kael dengan campuran antara takjub dan khawatir.
+Kael juga merasakan gelombang keputusasaan. Suara itu membawa kehampaan yang membuat setiap perjuangan terasa tidak berarti.
 
-"Dia... mencoba menyelaraskan dirinya dengan energi Kehampaan itu sendiri!? Bodoh! Itu akan menghancurkan jiwanya!" Kael kini bermandi cahaya tiga warna yang bergolak – merah dari apinya, biru dari esnya, dan ungu gelap dari Nyanyian Kehampaan yang mencoba merusaknya. Wajahnya tegang luar biasa, menahan tekanan energi yang tak terbayangkan. Retakan di Gerbang Es mulai berdenyut seirama dengan energi Kael.
+“Inilah Nyanyian Kehampaan yang dimaksud buku itu.”
+
+Makhluk Gerbang Es ikut tersiksa. Tubuh hitamnya bergetar, dan inti ungu berkedip tanpa pola.
+
+*Diam. Sakit. Pergi.*
+
+Rowan berdiri paling jauh dari gerbang. Aura Void melindunginya sebagian, tetapi wajahnya tetap pucat.
+
+“Jadi ini kekuatan yang disegel leluhur.” Tatapannya dipenuhi ketertarikan. “Pantas Arsitek menginginkan gemanya.”
+
+Di tengah rasa sakit, Kael menyadari Fragmen di dadanya bereaksi berbeda.
+
+Ia tidak hanya menahan nyanyian. Denyutnya mencoba menjawab nada-nada sumbang tersebut.
+
+Kael mengubah aliran energi.
+
+Alih-alih sekadar menenangkan gerbang, dia membentuk resonansi balasan. Rasa sakit, tekad, dan harapan yang masih tersisa dimasukkan ke dalam setiap denyut merah-biru.
+
+Pola cahaya terbentuk di udara.
+
+Resonansi Kael bertemu dengan Nyanyian Kehampaan dan menciptakan harmoni yang ganjil. Kedua frekuensi saling menarik serta mendorong, mengguncang es di seluruh puncak.
+
+Nyanyian dari gerbang goyah untuk pertama kalinya.
+
+Makhluk raksasa meraung di antara dua gelombang yang beradu.
+
+Rowan memandang Kael dengan takjub sekaligus cemas.
+
+“Dia mencoba menyelaraskan jiwanya dengan kehampaan.”
+
+Cahaya ungu menyusup ke antara api merah dan biru di tubuh Kael. Retakan pada Gerbang Es mulai berdenyut mengikuti iramanya.
+
+Jika Kael kehilangan kendali, harmoni itu tidak akan menutup gerbang.
+
+Ia akan menghancurkan jiwanya terlebih dahulu.
