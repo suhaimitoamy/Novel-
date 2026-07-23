@@ -1,25 +1,53 @@
 # Episode 148 — Melintasi Arus Leyline
 
-Keheningan datang seperti tangan yang menutup tenggorokan di sungai Leyline menuju permukaan. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Empat orang bergerak di atas jalur cahaya yang terus berubah.
 
-Serangan Rift yang memakan koordinat dan waktu datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Zireth menjaga jangkar Logam Bintang tetap tertanam. Sylvara mengikat mereka dengan tali rune. Zevaron membentuk lorong angin agar arus tidak langsung merobek tubuh, sementara Kael memusatkan perhatian pada simpul kendali Rift.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan jangkar logam bintang Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+“Jika salah satu kehilangan ritme, kita semua tercerai,” kata Zireth.
 
-Kael menerapkan penguncian fase agar tubuh tidak tercerai dalam arus. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael menemukan nada yang terlalu sempurna di dalam kekacauan ruang.
 
-“Sekarang, Kael! Simpul Arus Balik ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Simpulnya bergerak mengikuti kita.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh sungai Leyline menuju permukaan sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Rift menyerang.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Dalam benturan Arus Balik, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Jalur di bawah kaki pecah menjadi beberapa kemungkinan tujuan. Pada satu jalur, Kael melihat Zerath hancur. Pada jalur lain, mereka tiba bertahun-tahun setelah perang berakhir.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Arus Balik tetap memiliki batas yang tak boleh dilanggar.
+“Yang mana waktu kita?” tanya Sylvara.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan jangkar logam bintang Zireth untuk menghantam pusat kendali yang baru terlihat.
+Kael tidak mencari gambaran paling aman. Dia mencari denyut yang sesuai dengan Fragmen, luka, dan orang-orang yang masih menunggu mereka.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: dunia di permukaan telah bergerak lebih cepat daripada waktu mereka. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Sebelah kiri.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Arus Balik, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh sungai Leyline menuju permukaan menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Zevaron mengarahkan angin dan mendorong kelompok ke jalur tersebut.
 
-“Kita membangunkan pusat Arus Balik,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Rift yang memakan koordinat dan waktu mulai bergerak dari kedalaman.
+Rift menutup dari belakang. Kael membalik fase Pulse tepat ketika simpul kendali melewati celah antara dua arus.
+
+Pertahanannya retak.
+
+Energi celah berpindah ke sungai Leyline dan membentuk tangan-tangan hitam yang mencoba menarik mereka ke koordinat berbeda.
+
+Sylvara hampir terlepas.
+
+Kael membentuk perisai tipis, sementara Zevaron memotong tangan-tangan tersebut dengan petir. Zireth memperkuat jangkar sampai lengan bintangnya berderak.
+
+Mereka terus maju.
+
+Pada pusat Rift, Kael melihat benang geometris yang mengarah ke luar Zerath.
+
+“Sang Arsitek mengendalikan arus dari tempat lain.”
+
+Dia tidak mencoba menghancurkan seluruh celah. Pulse merah memisahkan struktur, biru menahan keruntuhan, dan ungu mengurai benang asing.
+
+Zevaron menahan gelombang balik. Sylvara menjaga Kael tetap terikat pada jalur. Zireth menutup simpul yang terbuka.
+
+Benang kendali retak.
+
+Rift kehilangan bentuknya dan jalur ke permukaan terbuka.
+
+Namun arus terakhir datang terlalu cepat.
+
+Tali rune putus.
+
+Mereka terlempar ke dalam cahaya menuju koordinat yang tidak dapat lagi dipastikan.
