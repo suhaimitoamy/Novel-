@@ -1,41 +1,69 @@
 # Episode 052 — Angin Aether
 
-Kael, Sylvara, dan Zireth dengan hati-hati memasuki celah sempit di antara dinding es tinggi yang menjulang. Begitu masuk, angin kencang seketika menerpa mereka dari arah berlawanan. Angin ini aneh, membawa suara siulan melengking dan menerbangkan serpihan-serpihan kristal kecil yang bercahaya redup.
+Kael, Sylvara, dan Zireth memasuki celah sempit di antara dinding es.
 
-Angin kencang + siulan kristal halus. Sylvara melindungi matanya dari terpaan angin dan kristal. "Angin ini... berbeda! Rasanya kuat sekali... seperti mendorong kita mundur!" Zireth berusaha tetap berdiri stabil melawan dorongan angin. "Ini bukan angin biasa! Sensor mendeteksi energi Aether murni! Ini Aether Wind! Angin yang bermuatan energi langit kuno!
+Angin menghantam dari depan begitu mereka melangkah masuk. Serpihan kristal bercahaya terbawa bersama alirannya dan menggores jubah seperti pecahan kaca.
 
-Hati-hati, paparan terlalu lama bisa menguras energi sihir kita, bahkan energi kehidupan!" Kael merasakan angin itu menerpa tubuhnya. Anehnya, lengan kirinya yang terintegrasi dengan Void malah terasa... nyaman? Dengungan pelan di dalamnya semakin kuat, seolah menyukai energi murni ini. "Angin ini... seperti memberi makan sesuatu di dalam lenganku..."
+Sylvara mengangkat lengan untuk melindungi mata. “Angin ini mendorong kita mundur.”
 
-Mereka berjuang berjalan maju melawan angin yang kuat. Serpihan kristal Aether kecil di udara mulai menempel di pakaian dan kulit mereka, bersinar redup seperti debu bintang.
+Zireth menanamkan kaki mekanisnya ke permukaan es. Data pada pemindai bergerak liar.
 
-"Lihat! Kristal-kristal ini..." seru Kael.
+“Aether murni. Ini Aether Wind.”
 
-Zireth memeriksa kristal yang menempel di sarung tangan logamnya. "Kristal Aether... residu energi Celestial murni. Kita pasti sudah sangat dekat dengan perbatasan wilayah kuno mereka." Tiba-tiba, dari dalam badai angin Aether di depan mereka, muncul beberapa siluet terbang dengan kecepatan tinggi. Bentuknya menyerupai burung es raksasa, namun sayap mereka tampak terbuat dari jalinan cahaya kristal murni yang berkilauan.
+Dia meninggikan suara agar terdengar di tengah siulan kristal.
 
-"Makhluk apa itu!?" tanya Sylvara kaget.
+“Paparan terlalu lama akan menguras sihir, bahkan energi kehidupan.”
 
-"Aether Roc!" jawab Zireth cepat. "Makhluk penjaga semi-energi dari wilayah Celestial kuno!
+Kael menahan tubuh melawan angin. Anehnya, lengan kirinya terasa lebih nyaman daripada bagian tubuh lain. Pola rune ungu berdenyut seolah menyerap sebagian energi yang menerpa.
 
-Mereka sangat agresif terhadap energi asing yang dianggap 'tidak murni'!" Kawanan Aether Roc itu menukik tajam ke arah mereka, paruh kristal mereka yang runcing siap menyerang. Teriakan melengking Aether Roc.
+“Angin ini memberi makan sesuatu dalam lenganku.”
 
-"Kita tidak bisa bertarung efektif di tengah angin sekencang ini!" teriak Kael.
+Mereka terus maju. Debu kristal menempel pada pakaian dan kulit, berkilau seperti bintang kecil.
 
-"Ke samping! Ada ceruk di dinding es!" seru Sylvara.
+Zireth mengambil salah satu serpihan dari sarung tangan logamnya.
 
-Mereka bertiga segera berlindung di ceruk kecil tepat saat seekor Aether Roc menyambar tempat mereka berdiri tadi, paruh kristalnya menghantam dinding es dengan keras. Paruh kristal menghantam es.
+“Kristal Aether. Residu energi Celestial. Kita sudah dekat dengan wilayah mereka.”
 
-"Mereka pasti tertarik pada energi Fragmen di dadamu, Kael!" kata Zireth. "Dan mungkin
+Bayangan terbang muncul dari badai.
 
-juga pada energi rune dari teknologi di lenganku!" Kael melihat Aether Roc berputar di udara, bersiap untuk menukik lagi. Lengan kirinya berdenyut kuat, pola rune ungunya bersinar samar. Jika mereka tertarik energi... bagaimana jika aku memberinya... energi yang salah? Energi yang mereka benci?
+Beberapa burung raksasa menukik dengan sayap yang terbentuk dari jalinan cahaya kristal.
 
-Dia mengulurkan lengan kirinya yang korup ke arah Aether Roc yang sedang mendekat. Dia fokus, mencoba menyalurkan energi Void yang kini terasa lebih terkendali itu keluar. Sebuah bola energi ungu gelap kecil yang tidak stabil terbentuk di telapak tangannya.
+“Aether Roc,” kata Zireth. “Penjaga semi-energi. Mereka menyerang apa pun yang dianggap tidak murni.”
 
-"Ambil ini!" seru Kael sambil melemparkannya ke arah Aether Roc.
+Kawanan itu datang dengan paruh terarah kepada mereka.
 
-Bola energi Void mengenai salah satu Aether Roc. Makhluk cahaya itu menjerit kesakitan yang melengking, tubuh kristalnya yang murni tampak meredup dan retak seketika karena kontak dengan energi Void yang korup.
+“Kita tidak bisa bertarung di tengah angin,” ujar Kael.
 
-Jeritan kesakitan Aether Roc. Aether Roc yang terluka itu langsung berbalik arah dan terbang kabur dengan panik, diikuti oleh teman-temannya yang lain, tampaknya takut pada energi yang baru saja Kael lepaskan. Sylvara menatap Kael dengan mulut sedikit terbuka. "Kau... bisa mengendalikan energi Void itu sekarang?"
+“Ada ceruk di sebelah kanan.” Sylvara menunjuk dinding.
 
-Kael menatap lengannya yang kini terasa dingin dan sedikit sakit setelah mengeluarkan energi itu. "Tidak... tidak sepenuhnya. Rasanya masih... salah. Tapi... efektif." Zireth mengamati sisa energi Void di udara. "Tapi efektif. Makhluk berbasis Aether murni sangat rentan terhadap energi Void yang merupakan antitesisnya. Kau baru saja menemukan senjata baru... sekaligus racun baru yang mungkin berbahaya bagi dirimu sendiri, Kael."
+Mereka berlindung sesaat sebelum seekor Roc menghantam tempat semula. Paruh kristalnya menancap dalam pada es.
 
-Kael menatap lengannya yang berpola rune ungu dengan ekspresi khawatir campur penasaran. Angin Aether di luar ceruk perlahan mulai sedikit mereda.
+“Mereka tertarik pada Fragmenmu,” kata Zireth. “Mungkin juga rune di lenganku.”
+
+Kael melihat burung-burung itu berputar untuk serangan berikutnya. Lengan kirinya kembali berdenyut.
+
+Jika mereka mengejar energi murni, dia dapat memberi sesuatu yang berlawanan.
+
+Kael mengangkat tangan korupnya. Energi Void dikumpulkan menjadi bola kecil ungu yang tidak stabil.
+
+Ketika Roc pertama menukik, Kael melemparkannya.
+
+Bola itu menghantam dada makhluk.
+
+Cahaya pada tubuh Aether Roc meredup. Retakan menyebar di sepanjang sayap kristalnya, dan jeritan tajam memenuhi celah.
+
+Makhluk yang terluka berbalik. Seluruh kawanan mengikutinya dan menghilang ke dalam badai.
+
+Sylvara memandang Kael. “Kau dapat mengendalikan Void itu sekarang?”
+
+“Belum sepenuhnya.” Kael menatap telapak tangannya yang dingin dan nyeri. “Rasanya masih salah. Tapi berhasil.”
+
+Zireth mengamati residu ungu di udara.
+
+“Aether murni rentan terhadap Void. Kau menemukan senjata baru.”
+
+Tatapannya turun ke retakan pada lengan Kael.
+
+“Dan mungkin racun baru bagi tubuhmu sendiri.”
+
+Angin di luar ceruk mulai mereda. Kael menutup kembali lengannya, tetapi denyut rune ungu belum berhenti.
