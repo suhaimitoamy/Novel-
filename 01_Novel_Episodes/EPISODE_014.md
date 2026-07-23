@@ -1,31 +1,59 @@
 # Episode 014 — Jejak di Antara Reruntuhan
 
-Setelah berjalan berhari-hari di bawah terik matahari Gurun Bisikan yang kejam, perbekalan air mereka benar-benar menipis. Mereka bertiga mulai menunjukkan tanda-tanda kelelahan dan dehidrasi.
+Setelah berhari-hari berjalan di bawah matahari Gurun Bisikan, persediaan air mereka hampir habis.
 
-"Aku... tidak yakin bisa berjalan lebih jauh lagi..." kata Sylvara lemah, bersandar pada Zireth.
+Langkah Sylvara mulai goyah. “Aku tidak yakin bisa berjalan lebih jauh.”
 
-Zireth juga tampak sedikit lebih lambat dari biasanya. "Sistem pendingin internal tangan mekanikku ini bekerja terlalu keras. Energi cadanganku hampir habis." Kael, meskipun juga sangat lelah, memaksa dirinya terus berjalan. Tekad untuk menemukan Fragmen kelima dan membuktikan Jalan Keempat pilihannya memberinya kekuatan ekstra.
+Zireth menopang tubuhnya. Gerakannya sendiri lebih lambat dari biasanya.
 
-Aku tidak boleh menyerah di sini... Saat mereka mendaki sebuah bukit pasir yang tinggi untuk melihat keadaan sekitar, mereka melihat sesuatu yang tidak terduga di lembah kecil di bawahnya: bangkai sebuah pesawat melayang kecil – sebuah Sky-skiff – yang tampak jatuh belum lama ini.
+“Sistem pendingin lengan mekanisku bekerja terlalu keras,” katanya. “Cadangan energiku juga menipis.”
 
-"Sebuah Sky-skiff?" tanya Kael heran. "Di tengah gurun sejauh ini?"
+Kael tidak berada dalam kondisi lebih baik. Bibirnya pecah, kepalanya berdenyut, dan setiap langkah terasa seperti mengangkat batu. Namun bayangan Fragmen kelima terus mendorongnya maju.
 
-Zireth segera mengaktifkan pemindainya. "Model lama... tapi sepertinya dimodifikasi dengan teknologi rune yang cukup canggih. Tidak ada tanda-tanda kehidupan dari dalamnya." Mereka segera turun ke lembah untuk memeriksa bangkai Sky-skiff itu, berharap menemukan air atau perbekalan lain yang tersisa.
+Dia tidak boleh berhenti di sini.
 
-Bagian depan Sky-skiff itu hancur parah, namun kokpitnya relatif masih utuh. Di dalamnya, mereka menemukan sisa-sisa kerangka pilotnya yang hangus terbakar.
+Mereka mendaki bukit pasir untuk mencari tanda kehidupan. Dari puncaknya, Kael melihat sesuatu di lembah kecil di bawah.
 
-"Pilotnya tidak selamat," gumam Sylvara sedih. Zireth berhasil mengaktifkan kembali log penerbangan terakhir Sky-skiff itu. Layar kecil di kokpit berkedip hidup, menampilkan rekaman terakhir pilot sebelum jatuh.
+Sebuah Sky-skiff tergeletak miring di antara pasir. Bagian depannya hancur, dan asap tipis masih keluar dari mesin rune di bawah badan pesawat.
 
-"Log Penerbangan 734... Sesuatu yang aneh terjadi... Kompas rune-ku berputar liar... Ada cahaya ungu terang jatuh dari langit seperti bintang... Tepat di depan jalurku... Menabrak...? Tidak! Itu... menyedotku ke arahnya! Aarrghh!!" Rekaman terputus dengan suara ledakan keras.
+“Pesawat itu jatuh belum lama,” kata Kael.
 
-"Cahaya ungu terang yang jatuh dari langit..." Kael menatap ke arah depan lembah. "Itu
+Zireth mengaktifkan pemindai. “Model lama, tetapi sudah dimodifikasi dengan rune tingkat tinggi. Tidak ada tanda kehidupan.”
 
-pasti Fragmen kelima!" Mereka berhasil menemukan beberapa kantung air yang masih utuh di kompartemen belakang Sky-skiff, cukup untuk menyegarkan diri mereka sejenak. Saat sedang memeriksa area sekitar bangkai pesawat itu, Kael melihat sesuatu yang lain di pasir.
+Mereka menuruni bukit dan mendekati bangkai dengan hati-hati. Kokpit masih utuh meskipun bagian depan pesawat remuk.
 
-"Lihat ini," katanya pada yang lain. Di dekat roda pendaratan Sky-skiff yang rusak, tercetak jelas beberapa jejak sepatu bot. Tapi bukan jejak biasa. Ukurannya besar, dan polanya tampak sangat rapi dan bersih, seolah ditinggalkan oleh seseorang yang berjalan dengan sangat hati-hati atau... mungkin bukan manusia biasa?
+Di kursi pilot terdapat kerangka yang hangus terbakar.
 
-"Aneh," kata Sylvara sambil berjongkok memeriksanya. "Jejak ini masih baru. Sepertinya ditinggalkan setelah pesawat ini jatuh. Tapi... kenapa hanya satu arah? Menjauh dari pesawat?"
+“Dia tidak sempat keluar,” ujar Sylvara pelan.
 
-Zireth memindai jejak itu. "Tidak ada residu energi sihir yang signifikan. Tapi pola tekannya konsisten... seperti bobot tubuh yang cukup berat." Dia menatap ke arah jejak itu menghilang di balik bukit pasir. "Siapapun pemilik jejak ini... sepertinya memeriksa bangkai pesawat ini setelah jatuh, lalu pergi."
+Zireth menyambungkan lengan mekanisnya ke panel kontrol. Setelah beberapa percikan, layar kokpit menyala dan memutar log terakhir.
 
-Siapa dia? Apa dia juga mengincar Fragmen kelima? Atau dia ada hubungannya dengan kecelakaan Sky-skiff ini? Kael merasa ada misteri lain yang mulai terungkap di tengah perburuannya akan Fragmen. Dengan sedikit air dan petunjuk baru tentang lokasi jatuhnya Fragmen kelima (di arah jatuhnya 'bintang ungu'), mereka kembali melanjutkan perjalanan, kini juga dengan rasa waspada terhadap pemilik jejak sepatu bot misterius itu.
+“Log penerbangan tujuh-tiga-empat. Kompas rune berputar tanpa arah. Ada cahaya ungu jatuh dari langit—seperti bintang. Tepat di jalurku. Benda itu tidak menabrak... benda itu menarik pesawat ini—”
+
+Rekaman berakhir dalam suara ledakan.
+
+Kael menatap gurun di depan lembah. “Cahaya ungu itu pasti Fragmen kelima.”
+
+Mereka memeriksa kompartemen belakang dan menemukan beberapa kantung air yang belum rusak. Jumlahnya tidak banyak, tetapi cukup untuk membuat mereka kembali berdiri tegak.
+
+Saat mengelilingi bangkai pesawat, Kael melihat jejak di dekat roda pendaratan.
+
+“Lihat.”
+
+Jejak sepatu bot besar tercetak jelas di pasir. Polanya rapi, dengan kedalaman yang hampir sama pada setiap langkah.
+
+Sylvara berjongkok. “Masih baru. Dibuat setelah pesawat jatuh.”
+
+Dia mengikuti arahnya dengan tatapan. Jejak itu hanya menjauh dari Sky-skiff.
+
+“Tidak ada jejak kedatangan,” katanya.
+
+Zireth memindainya. “Tidak ada residu sihir. Tekanannya menunjukkan tubuh yang cukup berat, tetapi langkahnya terlalu teratur untuk orang yang berjalan di pasir.”
+
+Jejak tersebut menghilang di balik bukit, menuju arah yang sama dengan jatuhnya cahaya ungu.
+
+Seseorang telah memeriksa bangkai itu sebelum mereka. Seseorang yang mungkin juga memburu Fragmen kelima.
+
+Setelah mengisi kembali kantung air, mereka melanjutkan perjalanan mengikuti jejak sepatu bot.
+
+Kini Kael tidak hanya mengejar Fragmen. Dia juga ingin mengetahui siapa yang sudah berada di depan mereka.
