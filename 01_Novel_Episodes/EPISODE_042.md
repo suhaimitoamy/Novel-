@@ -1,31 +1,59 @@
 # Episode 042 — Musuh Bersama
 
-Di tengah badai salju Void yang mengamuk di Puncak Beku, Kael menatap Rowan.
+Badai salju Void mengamuk di Puncak Beku.
 
-"Pertarungan kita... bisa menunggu. Benda itu... akan membunuh kita semua jika kita tidak bekerja sama." Rowan mendengus, menatap makhluk Gerbang Es dengan kesal, lalu kembali ke Kael.
+Kael menatap Rowan. “Pertarungan kita menunggu. Makhluk itu akan membunuh semua orang jika kita tidak bekerja sama.”
 
-"Hmph. Setidaknya kau tidak sebodoh itu." Dia mengangkat tongkat Voidnya yang tadi
+Rowan mendengus. “Setidaknya kau tidak sepenuhnya bodoh.”
 
-sempat ditinggalkan Kael. "Aku tidak akan membiarkan proyek Arsitek gagal hanya karena makhluk ini bangun terlalu cepat." Sylvara, yang telah membantu Zireth berdiri, bertanya ragu, "Jadi... kita bertarung bersama sekarang?"
+Dia menarik kembali tongkat obsidiannya dari tangan Kael dengan sulur energi gelap.
 
-"Jangan salah paham, Pemanah," sahut Rowan dingin. "Ini hanya... penundaan eksekusi untuk kalian."
+“Aku tidak akan membiarkan rencana Arsitek gagal hanya karena makhluk ini bangun sebelum waktunya.”
 
-"Fokus pada makhluk itu!" seru Zireth. "Dia tampak menarik energi langsung dari Gerbang
+Sylvara membantu Zireth berdiri. “Jadi sekarang kita bertarung bersama?”
 
-Es yang retak!" Kael bertanya pada Rowan, "Kau tahu kelemahannya?"
+“Jangan salah paham.” Rowan memandangnya dingin. “Eksekusi kalian hanya ditunda.”
 
-"Dia seharusnya tidak keluar dalam bentuk ini sekarang," jawab Rowan. "Itu berarti dia tidak stabil. Mungkin... inti energinya rentan." Dia menunjuk pada cahaya ungu redup yang berdenyut di dada makhluk raksasa itu. "Tapi untuk bisa mencapai intinya..."
+“Fokus,” kata Zireth. Pemindainya mengikuti aliran energi antara gerbang dan makhluk raksasa. “Ia menarik kekuatan langsung dari retakan.”
 
-Belum sempat Rowan menyelesaikan kalimatnya, Makhluk Gerbang Es menggerakkan tangannya. Es di tanah sekitar mereka bangkit, membentuk tombak-tombak tajam yang melesat cepat ke arah mereka. Tombak es melesat. Dagna, yang masih terikat di puncak, berhasil menggeser tubuhnya dengan susah payah, menghindari satu tombak yang nyaris mengenainya. "Sialan! Lepaskan aku dari sini, pengkhianat!" teriaknya pada Rowan.
+Kael menoleh kepada Rowan. “Kau tahu kelemahannya?”
 
-Rowan mengabaikan Dagna. "Kael! Kau punya api! Ciptakan celah untukku!" Kael mengangguk tanpa ragu. Dia fokus, memadukan api merah dan birunya, lalu melepaskan gelombang panas dahsyat untuk melelehkan atau menghancurkan tombak-tombak es yang datang.
+“Bentuknya belum sempurna.” Rowan menunjuk cahaya ungu di dada Nyanyian Kehampaan. “Intinya mungkin belum stabil. Masalahnya, kita harus mencapainya.”
 
-"Sekarang!" teriak Kael.
+Makhluk itu mengangkat tangan.
 
-Rowan menggunakan kesempatan itu, melesat maju dengan kecepatan Void yang mengerikan, tongkat obsidiannya memancarkan energi gelap pekat. "Void Tendrils!" Sulur-sulur energi hitam legam muncul dari tanah es, melesat dan mencoba mengikat kaki atau tubuh es Makhluk Gerbang Es.
+Es di seluruh dataran tinggi bangkit menjadi tombak-tombak panjang dan melesat ke arah mereka.
 
-Makhluk itu meraung saat beberapa sulur berhasil mengikatnya, namun banyak sulur lain yang hancur oleh aura dingin ekstrem yang dipancarkannya. Sylvara tidak tinggal diam. Dia menembakkan panah rune khusus, mungkin jenis panah penetrasi armor. "Zireth! Analisis pertahanannya selagi dia terikat!"
+Dagna menggulingkan tubuhnya yang masih terikat. Sebuah tombak menancap beberapa sentimeter dari wajahnya.
 
-Zireth mengaktifkan pemindainya sambil berlindung di balik batu es. "Auranya mengacaukan sihir elemen dan energi murni! Tapi... sepertinya dia sedikit rentan terhadap frekuensi sonik
+“Lepaskan aku, pengkhianat!” teriaknya.
 
-tertentu dan..." Dia berhenti sejenak, melihat pembacaan energi Kael. "...dan energi Fragmen yang tidak stabil seperti milik Kael!" Mendengar itu, Kael menatap Makhluk Gerbang Es, lalu ke tangannya yang dialiri api dua warna. Energi tidak stabil... seperti milikku? Sebuah rencana berbahaya namun mungkin berhasil mulai terbentuk di kepalanya.
+Rowan mengabaikannya. “Kael, buka jalan.”
+
+Kael menyatukan api merah dan biru, lalu melepaskan gelombang panas. Tombak-tombak es meleleh atau pecah sebelum mencapai mereka.
+
+“Sekarang.”
+
+Rowan melesat melewati uap panas. Tongkatnya memancarkan energi gelap.
+
+“Void Tendrils.”
+
+Sulur bayangan muncul dari tanah dan membelit kaki serta lengan makhluk raksasa. Sebagian hancur akibat hawa dingin, tetapi sisanya berhasil menahan gerakannya.
+
+Nyanyian Kehampaan meraung dan menarik ikatan itu hingga tegang.
+
+Sylvara melepaskan panah penetrasi ke dada makhluk. “Zireth, cari celah pertahanannya.”
+
+Zireth berlindung di balik batu sambil membaca pemindai.
+
+“Auranya mengacaukan energi elemen. Tapi struktur tubuhnya bereaksi terhadap frekuensi sonik tertentu.”
+
+Dia membandingkan data tersebut dengan resonansi Kael.
+
+“Dan terhadap energi Fragmen yang tidak stabil.”
+
+Kael menatap api dua warna di tangannya.
+
+Ketidakstabilan yang selama ini mengancam tubuhnya mungkin menjadi satu-satunya senjata yang mampu melukai makhluk tersebut.
+
+Sebuah rencana mulai terbentuk—berbahaya, tetapi tidak ada pilihan aman yang tersisa.
