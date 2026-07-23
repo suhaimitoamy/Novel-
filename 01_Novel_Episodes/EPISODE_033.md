@@ -1,51 +1,67 @@
 # Episode 033 — Jejak yang Membeku
 
-Dari kegelapan gua es, dua makhluk serigala es kehitaman dengan mata merah menyala melangkah keluar, menggeram rendah pada Kael dan kawan-kawan.
+Dua serigala es hitam melangkah keluar dari kegelapan gua. Mata merahnya menyala, sementara cakar obsidian menggores lantai.
 
-"Serigala Void!" seru Borin sambil mengangkat kapaknya. "Cepat sekali mereka bisa sampai
+“Serigala Void,” kata Borin sambil mengangkat kapak. “Mereka tidak pernah berani mendekati wilayah rune Karag Thürm.”
 
-sejauh ini ke utara!"
+“Berarti sesuatu menarik atau mengubah mereka,” ujar Zireth. Tatapannya sempat beralih kepada Kael.
 
-"Mereka biasanya tidak pernah berani mendekati wilayah yang dilindungi rune Karag Thürm!" tambah Dagna heran.
+Kael mengabaikannya. Api merah dan biru menyala di kedua tangan.
 
-"Kecuali jika ada sesuatu yang menarik mereka ke sini," sahut Zireth, melirik ke arah Kael sejenak. "Atau... sesuatu yang mengubah mereka menjadi seperti ini." Kael mengabaikan lirikan Zireth, api merah dan biru langsung menyala di kedua tangannya.
+“Kita selesaikan cepat.”
 
-"Kita habisi mereka dengan cepat!"
+Serigala pertama menerjang.
 
-Pertarungan segera pecah di dalam gua yang relatif sempit. Borin dan Dagna maju, bertarung bahu-membahu dengan kapak dan palu perang mereka yang berat, menahan serangan cakar obsidian dan gigitan dingin dari kedua Serigala Void itu.
+Borin dan Dagna menahan serangan di garis depan. Kapak dan palu mereka membentur cakar hitam, memenuhi gua dengan suara logam dan pecahan es.
 
-Sylvara memberikan tembakan dukungan dari belakang. "Es mereka keras! Tapi mungkin inti Void di dalamnya lemah!" Zireth menggunakan ledakan sonik dari tangan mekaniknya, mencoba mengganggu keseimbangan atau fokus para serigala.
+Sylvara menembakkan panah dari belakang. “Lapisan esnya keras. Bidik inti Void di dalam tubuh.”
 
-Kael melihat celah saat salah satu serigala terpental oleh serangan sonik Zireth. Dia melesat maju, Zerath's Fang menyala terang. "Sekarang!" Dengan tebasan cepat dan kuat, dia berhasil memotong leher serigala itu. Makhluk es hitam itu melolong nyaring sesaat sebelum tubuhnya hancur menjadi debu es hitam yang dingin.
+Zireth melepaskan gelombang sonik. Salah satu serigala kehilangan keseimbangan dan terpental ke dinding.
 
-Serigala kedua, melihat temannya kalah, tiba-tiba melolong panjang dengan nada aneh, lalu berbalik dan berlari kabur ke kedalaman gua yang lebih gelap.
+Kael mengambil celah itu.
 
-"Dia kabur!" seru Borin, hendak mengejar.
+Zerath's Fang menyala ketika dia melesat maju. Satu tebasan memutus leher makhluk tersebut.
 
-"Jangan!" cegah Kael. "Kita tidak tahu apa lagi yang ada di dalam sana."
+Serigala itu melolong sebelum tubuhnya hancur menjadi debu es hitam.
 
-Setelah suasana kembali tenang, mereka memeriksa gua lebih lanjut, terutama area tempat serigala tadi muncul.
+Makhluk kedua mundur. Ia melolong dengan nada panjang yang tidak wajar, lalu berbalik dan berlari ke dalam gua.
 
-"Lihat ini," kata Sylvara sambil menunjuk sesuatu di lapisan es tipis di lantai dekat dinding. Di sana, tercetak jelas beberapa jejak sepatu bot. Polanya sama persis dengan jejak misterius yang mereka temukan di dekat bangkai sky-skiff mereka di Gurun Bisikan.
+Borin hendak mengejar.
 
-"Jejak itu lagi!" Kael terkejut. "Jadi... orang ini juga melewati gua ini? Dan mungkin bertemu
+“Jangan,” kata Kael. “Kita tidak tahu apa yang menunggu di sana.”
 
-serigala-serigala ini?" Zireth mendekat, memeriksa jejak dan sisa-sisa debu serigala yang hancur. "Atau..." katanya pelan, "dialah yang membawa atau memanggil serigala ini ke sini. Jejak energi Void pada serigala tadi... terasa memiliki frekuensi yang mirip dengan energi samar yang tertinggal di jejak sepatu bot ini."
+Setelah keadaan tenang, mereka memeriksa tempat kedua serigala muncul.
 
-"Maksudmu..." Dagna tampak ngeri. "Orang ini bisa mengendalikan makhluk Void?"
+Sylvara menunjuk lantai dekat dinding. “Ada jejak.”
 
-"Itu sebuah kemungkinan," jawab Zireth. "Atau dia bekerja untuk pihak yang bisa."
+Bekas sepatu bot tercetak pada lapisan es tipis. Polanya sama dengan jejak di Gurun Bisikan.
 
-Rowan... pikir Kael dalam hati. Dia punya energi Fragmen rusak... apakah itu terkait dengan Void?
+“Pemiliknya melewati gua ini,” kata Kael. “Mungkin bertemu serigala-serigala itu.”
 
-"Kita harus segera kembali dan laporkan temuan ini pada Kapten Garn!" usul Borin.
+Zireth berjongkok dan memindai jejak tersebut. “Atau dia membawa mereka.”
 
-"Tidak," potong Kael tegas. "Misi kita adalah ke Puncak Beku. Kita harus terus maju. Orang ini... atau apapun dia... sepertinya menuju ke arah yang sama dengan kita."
+Dia membandingkan sisa debu makhluk dengan residu pada bekas langkah.
 
-"Tapi kita tidak tahu siapa dia, Kael," kata Sylvara khawatir. "Ini terlalu berbahaya."
+“Frekuensi Void-nya mirip.”
 
-"Semua di sini berbahaya, Sylvara," balas Kael. "Tapi jika orang ini ada hubungannya dengan Gerbang Es dan Rowan... kita harus mencari tahu siapa dia." Kedua pengawal Dwarf tampak ragu. Mereka saling pandang, lalu Borin menghela napas.
+Dagna menggenggam palunya lebih erat. “Orang itu dapat mengendalikan makhluk Void?”
 
-"Perintah Kapten Garn adalah mengantar kalian sampai kaki gunung. Kami akan antar kalian sampai ujung gua ini saja. Setelah itu... semoga Forge God melindungi kalian." Mereka melanjutkan perjalanan lebih dalam ke gua, mengikuti jejak sepatu bot misterius itu.
+“Mungkin. Atau dia bekerja untuk seseorang yang bisa.”
 
-Cahaya lentera mereka menyorot ukiran-ukiran aneh di dinding yang jumlahnya semakin banyak seiring mereka masuk lebih jauh.
+Rowan langsung muncul dalam pikiran Kael. Fragmen rusak miliknya mungkin berhubungan dengan energi yang menyebar di wilayah utara.
+
+“Kita harus kembali ke Kragmar,” kata Borin. “Kapten Garn perlu mengetahui ini.”
+
+“Tidak.” Kael menatap jejak yang menuju kedalaman gua. “Misi kita ke Puncak Beku. Siapa pun pemilik jejak itu bergerak ke arah yang sama.”
+
+“Kita bahkan tidak tahu siapa dia,” ujar Sylvara.
+
+“Semua jalan di sini berbahaya. Jika dia berhubungan dengan Gerbang Es dan Rowan, kita harus menemukannya.”
+
+Borin dan Dagna saling memandang.
+
+“Perintah kami hanya sampai kaki gunung,” kata Borin akhirnya. “Kami akan mengantar sampai ujung gua. Setelah itu, semoga Forge God menjaga kalian.”
+
+Mereka melanjutkan perjalanan mengikuti jejak sepatu bot.
+
+Semakin dalam mereka masuk, semakin banyak simbol asing memenuhi dinding.
