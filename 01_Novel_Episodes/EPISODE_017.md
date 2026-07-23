@@ -1,31 +1,63 @@
 # Episode 017 — Gema Sang Penjaga
 
-Di dasar kawah kristal ungu, Kael berdiri berhadapan dengan Penjaga Kawah, entitas energi kuno yang menjaga Fragmen kelima.
+Di dasar kawah kristal, Kael berdiri berhadapan dengan Penjaga Kawah.
 
-"Memahaminya?" ulang Kael. "Bagaimana caranya?"
+“Memahaminya?” ulang Kael. “Bagaimana?”
 
-Penjaga Kawah mengulurkan tangannya yang terbuat dari pasir kristal ke arah Kael. « Biarkan Gema jiwamu bersentuhan dengan Gema Kawah ini. Biarkan Fragmen di dalam dirimu berbicara dengan Hati Bintang Jatuh itu. » Kael ragu sejenak, melirik ke arah Sylvara dan Zireth yang tampak sama bingungnya.
+Entitas itu mengulurkan tangan yang terbentuk dari pasir ungu.
 
-Berkomunikasi dengan Fragmen lain? Apakah itu mungkin? Tapi dia juga merasakan tarikan kuat dari energi tenang di kawah ini. Dia melangkah maju perlahan, mengulurkan tangannya, dan menyentuh tangan energi Penjaga Kawah.
+*Biarkan gema jiwamu menyentuh gema kawah. Biarkan Fragmen di dalam dirimu berbicara dengan Hati Bintang Jatuh.*
 
-Seketika, gelombang energi tenang namun sangat kuat mengalir masuk ke dalam dirinya. Fragmen merah-biru di dadanya dan energi Void ungu di lengan kirinya bereaksi bersamaan, berputar dan beresonansi dengan energi ungu murni dari kawah itu.
+Kael menoleh kepada Sylvara dan Zireth. Keduanya tampak sama ragu.
 
-Resonansi energi kuat tapi tenang. Visi-visi kembali membanjiri pikiran Kael. Kali ini bukan ingatan masa lalu atau ilusi ketakutan, tapi gambaran-gambaran kosmik yang luas: Dia melihat Zerath dari luar angkasa, tampak seperti permata biru indah yang retak dan terluka parah akibat Perang Primordial.
+Berkomunikasi dengan Fragmen lain terdengar mustahil. Namun energi di kawah memanggilnya tanpa paksaan, berbeda dari bisikan rakus yang biasa dia rasakan.
 
-Dia melihat dua belas Fragmen jatuh seperti bintang ke permukaannya, beberapa
+Kael melangkah maju dan menyentuh tangan Penjaga.
 
-membawa kehancuran, beberapa mencoba menyembuhkan, namun kebanyakan hanya tertidur menunggu dibangunkan. Dia melihat Fragmen kelima – Hati Bintang Jatuh – mendarat di gurun ini, menciptakan kawah, lalu perlahan mulai menyerap energi kacau sisa perang dari tanah di sekitarnya, mengubah pasir biasa menjadi kristal ungu yang stabil dan menenangkan.
+Gelombang energi memasuki tubuhnya.
 
-Kemudian visi beralih ke masa depan – atau setidaknya, kemungkinan masa depan. Dia melihat Zerath kembali tercabik-cabik oleh perang baru, kali ini antara faksi-faksi yang memperebutkan kedua belas Fragmen. Dia melihat dirinya sendiri berdiri di tengah kehancuran itu, terkadang sebagai pahlawan yang menyatukan, terkadang sebagai monster api yang menghancurkan segalanya. Dia juga melihat bayangan geometris dingin Sang Arsitek mengintai di balik semua kekacauan itu.
+Fragmen merah-biru di dada dan energi Void pada lengan kirinya bereaksi bersamaan. Keduanya berputar mengikuti irama Hati Bintang Jatuh, lalu menyatu dalam resonansi yang kuat tetapi tenang.
 
-"Keseimbangan... sangat rapuh," suara Penjaga Kawah bergema dalam visinya. "Terlalu banyak Cahaya akan membakar. Terlalu banyak Kegelapan akan menelan. Terlalu banyak Api akan menghanguskan. Terlalu banyak Es akan membekukan." Visi menunjukkan Kael yang mencoba menyeimbangkan ketiga energi di dalam dirinya. "Dan di dalam dirimu, Kael... terdapat percikan dari semua itu. Potensi untuk menyatukan... atau menghancurkan Keseimbangan terakhir yang tersisa."
+Penglihatan memenuhi pikirannya.
 
-Visi berakhir. Kael terengah-engah, kembali berdiri di dasar kawah, koneksi dengan Penjaga terputus.
+Kael melihat Zerath dari luar angkasa—sebuah dunia biru yang retak dan terluka akibat Perang Primordial.
 
-"Apa... apa yang kau lihat?" tanya Sylvara cemas.
+Dua belas Fragmen jatuh ke permukaannya seperti bintang. Sebagian membawa kehancuran. Sebagian mencoba menyembuhkan. Kebanyakan tertidur sambil menunggu seseorang membangunkannya.
 
-Kael menatap Fragmen kelima yang melayang tenang di atas altar, lalu ke Penjaga Kawah.
+Hati Bintang Jatuh mendarat di gurun dan membentuk kawah besar. Selama ribuan tahun, Fragmen itu menyerap energi kacau dari tanah, mengubah pasir menjadi kristal ungu yang stabil.
 
-"Aku melihat... kemungkinan. Dan tanggung jawab yang besar."
+Penglihatan lalu bergerak menuju kemungkinan masa depan.
 
-Penjaga Kawah mengangguk perlahan. « Hati Bintang Jatuh memilih untuk tetap di sini, menyerap racun dunia ini dalam diam. Itu adalah jalannya menuju Keseimbangan. Bagaimana dengan jalanmu, Pewaris Luka? Apakah kau akan mengambilnya dengan paksa demi kekuatan sesaat? Atau kau akan menghormati tugasnya dan mencari Keseimbanganmu sendiri? » Kael kini dihadapkan pada pilihan moral yang penting. Merebut Fragmen kelima mungkin akan memberinya kekuatan besar yang dia butuhkan, tapi itu berarti mengganggu proses penyembuhan Zerath yang penting. Membiarkannya tetap di sana berarti menghormati Keseimbangan, tapi juga berarti melanjutkan perjalanannya yang berbahaya tanpa kekuatan tambahan itu.
+Zerath kembali tercabik oleh perang. Faksi-faksi saling membunuh demi menguasai dua belas Fragmen. Kael berdiri di tengah semuanya—dalam satu kemungkinan sebagai pemersatu, dalam kemungkinan lain sebagai monster api yang membakar dunia.
+
+Di balik kekacauan itu, bayangan geometris Sang Arsitek menunggu dalam diam.
+
+*Keseimbangan mudah pecah,* suara Penjaga bergema. *Cahaya yang berlebihan akan membakar. Kegelapan akan menelan. Api akan menghanguskan. Es akan membekukan.*
+
+Kael melihat dirinya mencoba menahan tiga energi yang saling menolak di dalam tubuhnya.
+
+*Di dalam dirimu terdapat bagian dari semuanya. Kau mampu menyatukan keseimbangan terakhir—atau menghancurkannya.*
+
+Koneksi itu terputus.
+
+Kael kembali berdiri di dasar kawah dengan napas berat. Tangannya telah terlepas dari Penjaga.
+
+“Apa yang kau lihat?” tanya Sylvara.
+
+Kael memandang Fragmen kelima yang melayang di atas altar.
+
+“Kemungkinan.” Dia menelan napas. “Dan tanggung jawab yang tidak bisa kuabaikan.”
+
+Penjaga Kawah mengangguk.
+
+*Hati Bintang Jatuh memilih tinggal di sini dan menyerap racun Zerath. Itu jalannya menuju keseimbangan.*
+
+Cahaya ungu pada tubuhnya berdenyut pelan.
+
+*Sekarang pilih jalanmu, Pewaris Luka. Ambil kekuatannya demi perjalananmu, atau biarkan ia melanjutkan tugas yang telah dijalankan selama ribuan tahun.*
+
+Kael menatap altar.
+
+Mengambil Fragmen itu akan memberinya kekuatan yang dia butuhkan. Namun Zerath akan kehilangan sesuatu yang selama ini menyembuhkan lukanya tanpa pernah meminta pengakuan.
+
+Untuk pertama kalinya, kekuatan berada tepat di depan tangannya—dan pertanyaan terbesar bukan apakah dia mampu mengambilnya, melainkan apakah dia berhak.
