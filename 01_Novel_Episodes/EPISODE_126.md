@@ -1,25 +1,31 @@
 # Episode 126 — Penjaga Serpihan
 
-Bayangan-bayangan memanjang meski tak ada matahari di makam pandai besi Volundr. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Makam pandai besi Volundr berada di bawah tambang yang telah dibebaskan.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: merebut logam bintang bagi Zireth. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Zireth berdiri di depan gerbang dengan lengan mekanis yang nyaris hancur. Di baliknya tersimpan Logam Bintang—bahan yang mungkin dapat menempanya kembali.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zireth. Kael mengangguk. Mereka mengambil posisi dengan keberanian Zireth menghadapi warisan klannya, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Aku harus masuk,” katanya. “Benda itu bagian dari warisan klanku.”
 
-Kael memusatkan napas dan menggunakan penggeseran gravitasi mikro di sekitar serpihan. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Penjaga Serpihan berlapis gravitasi.
+Kael mengirim penggeseran gravitasi mikro melalui lantai. Gema kembali membawa pola Penjaga Serpihan yang menunggu di pusat makam.
 
-Denyut Serpihan Bintang segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Mereka memasuki lorong sempit.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di Serpihan Bintang, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Tekanan gravitasi berubah pada setiap langkah. Debu terangkat lalu membeku di udara. Ruang di depan melipat menjadi jebakan.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan keberanian Zireth menghadapi warisan klannya, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael menggeser fase Pulse beberapa derajat. Celah aman terbuka hanya beberapa detik.
 
-Di balik penghalang Serpihan Bintang, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa makam pandai besi Volundr melupakan bentuk alaminya.
+Mereka menerobos.
 
-“Kita sudah melewati pintu Serpihan Bintang, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zireth. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Di balik penghalang, simbol-simbol geometris memenuhi dinding makam. Bahkan tempat suci Volundr pernah disentuh kehendak Sang Arsitek.
 
-Suara pertama dari Penjaga Serpihan berlapis gravitasi datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Rasanya seperti warisan kami sudah dirampas sebelum aku lahir,” kata Zireth.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Serpihan Bintang terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Tekanan mendadak meningkat.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Penjaga Serpihan berlapis gravitasi muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Serpihan Bintang baru saja dimulai.
+Dari cahaya merah tungku muncul Penjaga Serpihan—raksasa logam berlapis medan gravitasi. Sebuah kepingan bercahaya tertanam di dadanya.
+
+Kael membuka telapak tangan.
+
+Mereka tidak datang untuk menghancurkan warisan tersebut.
+
+Mereka datang untuk membuktikan bahwa Zireth pantas membawanya.

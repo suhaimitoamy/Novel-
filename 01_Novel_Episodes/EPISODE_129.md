@@ -1,27 +1,51 @@
 # Episode 129 — Harga Sebuah Jalan
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di makam pandai besi Volundr. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Penjaga menyesuaikan frekuensi dan memantulkan Pulse Kael kembali ke dadanya.
 
-Mereka telah kehilangan ruang untuk bergerak. Penjaga Serpihan berlapis gravitasi menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Dia jatuh pada satu lutut.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Zireth harus merelakan sisa lengan lamanya. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Zireth berdiri di depan, tetapi lengan mekanis lamanya sudah retak hampir sampai bahu.
 
-“Kita mundur dari Serpihan Bintang. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zireth. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Kita mundur,” katanya. “Logam Bintang tidak sepadan dengan nyawamu.”
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan keberanian Zireth menghadapi warisan klannya. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Jalan belakang telah hilang.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan penggeseran gravitasi mikro di sekitar serpihan untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael mendengarkan nada kecil di balik medan gravitasi. Sesuatu dalam Penjaga masih berusaha melawan kendali Sang Arsitek.
 
-Penjaga Serpihan berlapis gravitasi bereaksi liar di pusat Serpihan Bintang. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zireth berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Dia memakai penggeseran fase untuk memisahkan benang asing dari wadah.
 
-Kael menemukan benang kendali milik Penjaga Serpihan berlapis gravitasi. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh makam pandai besi Volundr.
+Tekanan meningkat. Zireth menahan satu serangan yang mengarah kepada Kael.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Serpihan Bintang akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Sisa lengan mekanisnya hancur.
 
-“Tidak,” kata Kael di hadapan Serpihan Bintang, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Zireth!”
 
-Serangan mereka melalui keberanian Zireth menghadapi warisan klannya tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zireth; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+“Lakukan.” Dia menahan rasa sakit. “Ini harga yang sudah kupilih.”
 
-Saat debu Serpihan Bintang turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Zireth harus merelakan sisa lengan lamanya. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Kael menemukan benang kendali dan mengubah fase sekali, dua kali, lalu ketiga.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Serpihan Bintang terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Makam menjerit.
+
+*Gunakan entropi penuh,* tawar Sang Arsitek.
+
+Kael menurunkan amplitudo.
+
+“Tidak.”
+
+Benang tersebut retak. Zireth menempelkan Logam Bintang pada celah yang sama.
+
+Gelombang balik menyapu mereka. Kael menangkap tubuhnya sebelum terhempas ke tungku.
+
+Ketika debu turun, lengan mekanis lama Zireth telah lenyap dari bahu ke bawah.
+
+Serpihan Bintang tetap berada di tangannya.
+
+Jalur terakhir menuju tungku pusat terbuka.
+
+Zireth memandang kehilangan tersebut tanpa berusaha menyembunyikan rasa sakit.
+
+“Ayo. Kita belum selesai.”
+
+Kael membantunya berdiri.
+
+Setiap langkah menuju penempaan ulang kini membawa harga yang tidak dapat dibatalkan.

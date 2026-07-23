@@ -1,25 +1,31 @@
 # Episode 121 — Perjanjian dengan Gema
 
-Debu bergerak melawan arah angin di jalur tambang terlupakan di bawah Urdron. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jalur tambang di bawah Urdron dipenuhi kristal Void yang tumbuh dari dinding.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mengikuti jejak korupsi menuju sumber sinyal Hati Dunia. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Kael mengirim resonansi rendah melalui batu untuk mengikuti sinyal Hati Dunia. Getarannya kembali membawa pola penghuni yang bergerak tanpa nama dan tanpa ingatan.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan cahaya Gema Pengetahuan Sylvara, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Jangan hancurkan semuanya,” kata Sylvara. Gema Pengetahuan menyala di tangannya. “Mungkin masih ada orang hidup di dalam terowongan.”
 
-Kael memusatkan napas dan menggunakan resonansi rendah untuk membaca ingatan kristal. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik kristal Void dan penghuni terowongan yang kehilangan nama.
+Kael menggeser fase Pulse dan membuka celah pada ruang yang terlipat. Mereka menerobos sebelum jebakan kembali menutup.
 
-Denyut Terowongan Korup segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Di baliknya, garis geometris memenuhi dinding. Kehendak Sang Arsitek telah memaksa tambang melupakan bentuk alaminya.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di Terowongan Korup, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Tekanan berubah.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan cahaya Gema Pengetahuan Sylvara, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kristal-kristal terangkat dan membentuk sosok humanoid tanpa wajah. Beberapa masih mengenakan sisa pakaian penambang Dwarf.
 
-Di balik penghalang Terowongan Korup, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa jalur tambang terlupakan di bawah Urdron melupakan bentuk alaminya.
+“Mereka penghuni terowongan,” gumam Sylvara. “Namanya telah dihapus.”
 
-“Kita sudah melewati pintu Terowongan Korup, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael menahan serangan pertama dengan perisai tipis. Dia dapat menghancurkan seluruh kristal, tetapi tubuh di dalamnya mungkin ikut lenyap.
 
-Suara pertama dari kristal Void dan penghuni terowongan yang kehilangan nama datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Aku akan memisahkan kendali dari mereka.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Terowongan Korup terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Sylvara mengangkat Gema Pengetahuan.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama kristal Void dan penghuni terowongan yang kehilangan nama muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Terowongan Korup baru saja dimulai.
+“Kalau begitu, aku membantumu menjaga ingatan mereka.”
+
+Cahaya keemasan dan Pulse Kael bertemu pada kristal pertama. Di balik lapisan Void, suara lemah seorang penambang terdengar meminta agar namanya dikembalikan.
+
+Pertarungan di Terowongan Korup bukan lagi perburuan terhadap musuh.
+
+Ia menjadi perjanjian untuk menyelamatkan orang-orang yang telah dilupakan.
