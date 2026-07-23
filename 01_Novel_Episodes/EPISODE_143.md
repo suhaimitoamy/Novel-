@@ -1,25 +1,45 @@
 # Episode 143 — Pesan untuk Pewaris
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di bagian dalam Hati Dunia. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Setelah mekanisme pemanen jiwa terungkap, seluruh Ruang Penciptaan berubah.
 
-Serangan gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Cahaya di sekeliling altar memadat menjadi jaringan simbol. Salah satunya berdenyut seirama dengan Fragmen di dada Kael.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan tangan Sylvara yang menjaga Kael tetap mengingat namanya, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+“Pesan pewaris,” kata Sylvara.
 
-Kael menerapkan superposisi kuantum pada ingatan penciptaan. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael menyentuh simbol tersebut.
 
-“Sekarang, Kael! Simpul Ruang Penciptaan ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sosok tanpa wajah muncul dalam proyeksi. Bentuknya tidak menyerupai dewa atau ras mana pun yang dikenal Zerath.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh bagian dalam Hati Dunia sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+*Bagi pewaris yang lahir di luar rantai sebab-akibat,* ujar suara itu. *Jika kau mendengar pesan ini, para penjaga pertama telah gagal.*
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Ruang Penciptaan, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael menahan napas.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Ruang Penciptaan tetap memiliki batas yang tak boleh dilanggar.
+*Dua belas Fragmen bukan senjata. Mereka adalah jangkar kebebasan dunia. Selama setiap Fragmen mempertahankan kehendaknya sendiri, tidak ada satu kesadaran yang dapat menulis ulang seluruh Zerath.*
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan tangan Sylvara yang menjaga Kael tetap mengingat namanya untuk menghantam pusat kendali yang baru terlihat.
+Proyeksi menampilkan Sistem Pahlawan yang mengikat jangkar-jangkar tersebut ke singgasana para dewa.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Sistem Pahlawan memanen energi jiwa untuk memperpanjang usia para dewa. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+*Sistem yang kami bangun telah diubah. Putuskan rantainya, tetapi jangan hancurkan jaring yang menjaga dunia tetap utuh.*
 
-Kael merasakan kemenangan kecil atas lapisan luar Ruang Penciptaan, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh bagian dalam Hati Dunia menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Zireth memperbesar pola dengan lengan bintang. “Itulah Jalan Keempat. Bukan mempertahankan sistem lama atau menghancurkannya total. Memisahkan fungsi perlindungan dari kendali para dewa.”
 
-“Kita membangunkan pusat Ruang Penciptaan,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan mulai bergerak dari kedalaman.
+Kael belum sempat menjawab ketika gelombang penciptaan bangkit.
+
+Cahaya menyelimuti tubuhnya dan membelah keberadaannya menjadi puluhan kemungkinan. Pada setiap versi, dia memilih cara berbeda untuk menghadapi Sistem: menjadi penguasa baru, menghancurkan semuanya, menyerahkan diri, atau melarikan diri.
+
+Sylvara menggenggam tangannya.
+
+“Kael. Pilih dirimu yang sekarang.”
+
+Dia mengikuti suara itu di antara seluruh kemungkinan.
+
+Ragnarok Pulse menyatu dengan pesan pewaris. Kael menolak semua masa depan yang meminta dunia tunduk kepadanya.
+
+“Aku akan memutus rantainya tanpa mengambil tempat mereka.”
+
+Gelombang cahaya retak.
+
+Di pusat altar, sebuah koordinat menuju permukaan Zerath terbuka. Namun arus Leyline yang menjadi jalan pulang mulai runtuh.
+
+Pesan terakhir muncul sebelum proyeksi padam:
+
+*Waspadai pahlawan yang tidak tahu bahwa jiwanya telah dijadikan milik para dewa.*
