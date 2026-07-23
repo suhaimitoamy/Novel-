@@ -1,27 +1,59 @@
 # Episode 159 — Keputusan Kael
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di jantung rawa terkutuk. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Ritual memasuki tahap terakhir.
 
-Mereka telah kehilangan ruang untuk bergerak. Agen penyusup dan akar pemakan ingatan menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Seluruh korupsi rawa terkumpul pada satu akar raksasa di tengah lingkaran. Agen penyusup bersembunyi di dalamnya dan memakai semua pola Pulse yang telah dicuri Nexus.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Pemimpin suku kehilangan hidupnya untuk membuka jalur aman. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Setiap serangan Kael sudah diketahui sebelum dilepaskan.
 
-“Kita mundur dari Ritual Lumut Sunyi. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Pemimpin Suku Lumut berdiri di depan akar dan mengangkat kedua tangan.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan nyanyian Suku Lumut dan lengan bintang Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Aku akan membuka jalur menuju intinya.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan resonansi biologis pada jaringan akar untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Jangan,” kata Kael. “Tekanannya akan membunuhmu.”
 
-Agen penyusup dan akar pemakan ingatan bereaksi liar di pusat Ritual Lumut Sunyi. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Rawa ini menyimpan nama nenek moyang kami. Seseorang harus membayar agar mereka tidak dilupakan.”
 
-Kael menemukan benang kendali milik agen penyusup dan akar pemakan ingatan. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh jantung rawa terkutuk.
+Kael menolak pilihan tersebut. “Kita cari cara lain.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Ritual Lumut Sunyi akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Akar hitam menyerang sebelum mereka sempat berdebat.
 
-“Tidak,” kata Kael di hadapan Ritual Lumut Sunyi, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Pemimpin suku mendorong Kael keluar dari jalur dan menerima tusukan akar menembus tubuhnya. Darah hijau gelap mengalir ke tanah.
 
-Serangan mereka melalui nyanyian Suku Lumut dan lengan bintang Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Nyanyiannya tidak berhenti.
 
-Saat debu Ritual Lumut Sunyi turun, mereka sadar kemenangan kecil itu menuntut harga permanen: pemimpin suku kehilangan hidupnya untuk membuka jalur aman. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Nada terakhir membuka celah pada akar pusat.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Ritual Lumut Sunyi terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Jangan jadikan kematianku alasan untuk kehilangan dirimu,” katanya. “Selesaikan tanpa menjadi seperti musuhmu.”
+
+Tubuhnya berubah menjadi lumut bercahaya yang menyebar ke seluruh lingkaran.
+
+Kael merasakan amarah memenuhi Ragnarok Pulse. Satu ledakan entropi cukup untuk menghapus akar, agen, dan mungkin separuh rawa.
+
+Sang Arsitek membisikkan jalan termudah.
+
+*Gunakan semuanya.*
+
+Kael menurunkan amplitudo.
+
+Dia mengikuti nyanyian terakhir sang pemimpin dan memisahkan agen penyusup dari jaringan hidup. Sylvara menjaga irama, Zireth menahan struktur, dan Sosok Berhelm memutus saluran data terakhir.
+
+Agen itu menjerit ketika benang kendalinya retak.
+
+Akar hitam runtuh menjadi debu, sementara akar asli rawa tetap hidup.
+
+Ritual selesai.
+
+Anggota suku berkumpul di tempat pemimpin mereka lenyap. Tidak ada ucapan kemenangan.
+
+Kael berdiri di antara cahaya lumut dengan kepala tertunduk.
+
+Dia telah menyelamatkan rawa, tetapi tidak semua orang di dalamnya.
+
+Keputusan berikutnya menunggu: mengejar Wadah Sekunder ke Rhythor atau tetap membantu suku yang baru kehilangan pemimpin.
+
+Kael menyerahkan persediaan Nexus, menyiapkan perlindungan rawa bersama Zireth, dan memastikan suku memiliki jalur komunikasi sebelum pergi.
+
+Dia tidak dapat tinggal selamanya.
+
+Namun dia juga menolak meninggalkan mereka seolah pengorbanan tersebut hanya angka dalam perjalanan.
