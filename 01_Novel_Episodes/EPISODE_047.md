@@ -1,29 +1,67 @@
 # Episode 047 — Kunci Pengorbanan
 
-Kael terus menyalurkan energinya, berjuang menyelaraskan resonansi Fragmen-nya dengan Nyanyian Kehampaan yang menggelegar dari Gerbang Es. Tekanan ini... berat sekali... pikirnya, merasa jiwanya seperti ditarik ke dua arah yang berlawanan – keseimbangan Fragmen dan kekosongan Void. Tapi... aku bisa merasakan gerbangnya... segelnya... rune-rune itu...
+Kael mempertahankan resonansi di tengah tekanan yang menarik jiwanya ke dua arah.
 
-Dia melihat pola rune kuno di permukaan Gerbang Es bersinar lebih terang saat energi resonansinya menyentuhnya. Sebuah pemahaman baru melintas. Rune ini... bukan hanya segel... tapi juga... kunci resonansi! Sama seperti liontin Vorthax itu!
+Di satu sisi ada keseimbangan Fragmen. Di sisi lain, kehampaan yang ingin menghapus segala bentuk.
 
-Di bawah, Zireth berhasil sedikit pulih dari efek sonik Nyanyian Kehampaan. Dia melihat Kael dan gerbang dengan cemas. "Kael! Apa yang terjadi!? Energimu dan energi gerbang... seperti menyatu!"
+Namun di antara keduanya, dia mulai merasakan struktur Gerbang Es.
 
-"Dia... mencoba menutupnya?" tanya Sylvara lemah, masih berusaha bangkit.
+Rune-rune kuno pada permukaan lengkungan menyala ketika resonansinya menyentuh. Maknanya terbuka seperti pola mekanisme yang selama ini tersembunyi.
 
-"Bukan... hanya menutup..." jawab Kael susah payah, melawan tekanan energi yang luar
+Rune tersebut bukan hanya segel.
 
-biasa. "Tapi... menyeimbangkan kembali... segelnya butuh... resonansi yang tepat untuk aktif..." Makhluk Gerbang Es, yang terjebak di antara Nyanyian Kehampaan dan resonansi Kael, mulai retak semakin parah. Es hitam berjatuhan dari tubuh raksasanya seperti kelopak bunga layu.
+Mereka adalah kunci resonansi—seperti liontin spiral Vorthax.
 
-Rowan melihat Kael berhasil mempengaruhi gerbang. "Tidak... Dia tidak boleh menutupnya kembali!" Dia bersiap menyerang Kael untuk menghentikan prosesnya. Namun, sebelum Rowan sempat melancarkan serangan, Dagna, tawanan Dwarf yang rantai Void-nya sedikit longgar karena kekacauan energi, berhasil meraih kapak milik Borin yang tergeletak tak jauh darinya.
+Zireth mulai pulih dari serangan nyanyian. Dia memandang aliran energi antara Kael dan gerbang.
 
-Dengan teriakan perang khas Dwarf, Dagna menyerang Rowan dari belakang. "Untuk Karag Thürm!!"
+“Energi kalian menyatu. Apa yang sedang terjadi?”
 
-Rowan terpaksa berbalik dan menangkis serangan kapak Dagna, perhatiannya kini teralih dari Kael untuk sesaat. "Serangga pengganggu!" geramnya. Kael menggunakan kesempatan emas itu. Dia teringat kembali pada tulisan rune di buku kuno: Pengorbanan Darah Pewaris... diperlukan untuk melemahkan segel. Dia menatap lengan kirinya yang kini terasa dingin dan sedikit mati rasa setelah kontak dengan energi Void.
+“Dia mencoba menutupnya,” kata Sylvara sambil memaksa tubuhnya bangkit.
 
-Bagaimana jika... darah pewaris itu tidak harus untuk melemahkan? Bagaimana jika... darah dan energi unikku ini... bisa digunakan untuk memperkuat segel itu kembali? Dia teringat rasa sakit di lengannya yang korup. Energi asing ini... korupsi Void ini... mungkin justru ini kuncinya?
+“Bukan sekadar menutup.” Kael berbicara di sela tekanan. “Segelnya harus diseimbangkan kembali. Ia hanya aktif pada frekuensi yang tepat.”
 
-Sebuah keputusan gila, berbahaya, namun mungkin satu-satunya jalan, terlintas di benaknya. Dia harus menyalurkan tidak hanya energi murni Fragmen-nya, tapi juga energi korupsi Void yang mulai menyatu dengan dirinya, ke dalam rune kunci di Gerbang Es.
+Tubuh Nyanyian Kehampaan semakin retak. Bongkahan es hitam berjatuhan seperti kulit mati.
 
-"Mundur sejauh mungkin!" teriak Kael pada Sylvara dan Zireth. "Aku akan mencoba
+Rowan menyadari gerbang mulai tunduk pada resonansi Kael.
 
-sesuatu!" Dia mengarahkan kedua tangannya lurus ke arah rune kunci besar di tengah retakan Gerbang Es. Api merah-biru dari Fragmen-nya bercampur dengan energi ungu gelap yang bocor dari retakan di lengan kirinya, membentuk seberkas cahaya tiga warna yang tampak sangat tidak stabil dan berbahaya.
+“Tidak.” Energi Void berkumpul di tangannya. “Dia tidak boleh menutupnya.”
 
-Zireth melihat apa yang akan Kael lakukan dengan ngeri. "Dia mau menyalurkan energi korupsinya sendiri!? Itu bisa menghancurkan tubuhnya dari dalam!" Kael mengabaikan peringatan itu. Dengan ekspresi penuh rasa sakit namun berbalut tekad bulat, dia menembakkan sinar energi tiga warna yang tidak stabil itu lurus menuju rune kunci di Gerbang Es.
+Sebelum Rowan menyerang, Dagna berhasil meraih kapak Borin yang tergeletak di dekatnya. Rantai Void di tangannya telah mengendur akibat kekacauan energi.
+
+“Untuk Karag Thürm!”
+
+Kapak itu mengayun dari belakang.
+
+Rowan berbalik dan menangkis. “Serangga.”
+
+Perhatiannya teralihkan.
+
+Kael menggunakan kesempatan tersebut untuk menelusuri bagian terakhir dari pola rune.
+
+Buku kuno menyebut Pengorbanan Darah Pewaris sebagai alat untuk melemahkan segel. Namun darah dan energi pewaris seharusnya juga dapat digunakan dengan arah sebaliknya.
+
+Bukan untuk membuka.
+
+Untuk memperkuat.
+
+Kael menatap lengan kirinya. Korupsi Void telah masuk jauh ke dalam tubuh, menyatu dengan Fragmen meski terus merusaknya.
+
+Energi asing itu mungkin menjadi bagian kunci yang hilang.
+
+“Mundur!” teriak Kael kepada Sylvara dan Zireth. “Aku akan mencoba sesuatu.”
+
+Dia mengarahkan kedua tangan ke rune utama di tengah retakan.
+
+Api merah dan biru keluar dari Fragmen. Dari celah hitam pada lengan kirinya, energi ungu ikut mengalir.
+
+Ketiganya menyatu menjadi cahaya yang tidak stabil.
+
+Pemindai Zireth langsung memberi peringatan.
+
+“Kael, jangan. Menyalurkan korupsi itu dapat menghancurkan tubuhmu dari dalam.”
+
+Kael tidak menghentikannya.
+
+Dia melepaskan sinar tiga warna tepat ke rune kunci Gerbang Es.
+
+Seluruh puncak berguncang ketika energi pewaris bertemu dengan segel kuno.
