@@ -1,27 +1,63 @@
 # Episode 150 — Benang Baru
 
-Bayangan-bayangan memanjang meski tak ada matahari di sungai Leyline menuju permukaan. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael, Sylvara, dan Zireth berdiri di lereng sambil memandang segel Nexus di langit.
 
-Semua jalan di sungai Leyline menuju permukaan berakhir pada satu pusat. Di sanalah Rift yang memakan koordinat dan waktu menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat keluar dari Hati Dunia sebelum jalurnya tertutup mustahil dilakukan.
+Delapan bulan telah berlalu. Peta, aliansi, dan ancaman yang mereka kenal mungkin tidak lagi sama.
 
-“Kita mencapai pusat Arus Balik bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zireth. Kael menatap Zireth, lalu pada jangkar logam bintang Zireth. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Kita harus mencari informasi sebelum bergerak,” kata Zireth. “Datang dengan asumsi lama akan membuat kita mati.”
 
-Mereka bergerak serempak. Sekutunya menggunakan jangkar logam bintang Zireth untuk memecah lapisan luar, sedangkan Kael menyusupkan penguncian fase agar tubuh tidak tercerai dalam arus ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Sinyal dari lengan bintangnya menangkap transmisi terbuka. Potongan berita muncul satu demi satu:
 
-Kael tidak melawan semua lapisan Arus Balik. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Gerbang Es kembali tidak stabil.
 
-Di pusat jaring Arus Balik itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Beberapa kekaisaran menuduh Karag Thürm menyembunyikan Fragmen terakhir.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di pusat Arus Balik, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zireth tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Pasukan Nexus membangun zona karantina di wilayah utara.
 
-Rift yang memakan koordinat dan waktu mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Nama Kael Drayven telah ditetapkan sebagai ancaman dan penyelamat dalam laporan yang berbeda.
 
-Tidak ada ledakan besar. Rift yang memakan koordinat dan waktu retak dalam keheningan sungai Leyline menuju permukaan. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zireth menahannya sebelum kepalanya membentur tanah.
+Sylvara mendengus. “Setidaknya dunia masih belum bisa memutuskan apakah harus membunuhmu atau memujamu.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: dunia di permukaan telah bergerak lebih cepat daripada waktu mereka. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kael memandang langit tanpa tersenyum.
 
-Kael memandangi sisa-sisa pusat kendali Arus Balik. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+“Di mana Zevaron?”
 
-Zireth menyentuh bahu Kael, memastikan ia masih sadar. Tepat saat Kael berdiri, segel Nexus muncul di langit barat. Kemenangan mereka langsung berubah menjadi awal pengejaran berikutnya.
+Sinyalnya berada jauh di barat, bergerak menuju wilayah Iskali. Dia selamat dan tampaknya memilih pulang sendiri.
 
-Jalan di depan Arus Balik terbuka selebar satu langkah. Kael mengambilnya, diikuti yang lain, sementara dunia menunggu keputusan berikutnya tanpa berani memberi perintah.
+Sebuah kapal kecil terpisah dari armada Nexus dan turun ke lereng.
+
+Sosok Berhelm melompat dari dalam. Zirahnya kini membawa bekas pertempuran baru.
+
+“Kalian kembali delapan bulan lebih lambat dari prediksi.”
+
+“Apa yang terjadi?” tanya Kael.
+
+“Rencana Sang Arsitek memasuki tahap berikutnya. Sistem Pahlawan aktif kembali di berbagai kekaisaran dan memilih pahlawan baru secara paksa.”
+
+Helm hitam mengarah kepada Kael.
+
+“Sebagian dari mereka telah diperintahkan memburumu.”
+
+Kael teringat pesan di Ruang Penciptaan: pahlawan yang tidak menyadari jiwanya telah dimiliki para dewa.
+
+“Lalu segel Nexus itu?”
+
+“Zona penahanan. Ada sesuatu keluar dari Urdron setelah kalian menghilang.”
+
+Zireth mengepalkan tangan bintangnya. “Apa?”
+
+“Benih Struktur. Ia sudah menanam akar pada jaringan Leyline Karag Thürm.”
+
+Sosok Berhelm membuka pintu kapal.
+
+“Naik. Kalian perlu melihat keadaan dunia sebelum menentukan langkah.”
+
+Kael memandang Sylvara dan Zireth.
+
+Perjalanan lama telah berakhir, tetapi benang baru terbentang di depan: Sistem Pahlawan, pahlawan-pahlawan yang diperbudak, dan Benih Struktur yang tumbuh di jantung Zerath.
+
+Dia menaiki kapal.
+
+Kali ini, Kael tidak hanya memburu jawaban.
+
+Dia kembali untuk memutus rantai yang telah mengikat dunia sejak awal penciptaannya.
