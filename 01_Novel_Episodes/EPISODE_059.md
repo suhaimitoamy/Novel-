@@ -1,43 +1,69 @@
 # Episode 059 — Puncak Aethelgard
 
-Setelah Zireth berhasil menemukan dan mengaktifkan mekanisme jembatan darurat tersembunyi di reruntuhan, Sylvara dan Zireth akhirnya bisa menyeberangi jurang dan bergabung kembali dengan Kael. Mereka bertiga, kini bersatu lagi, melanjutkan perjalanan mendaki menuju dataran tinggi terakhir sebelum Puncak Aethelgard yang sesungguhnya.
+Zireth menemukan mekanisme darurat yang mengaktifkan jembatan cahaya kedua. Setelah menyeberang, dia dan Sylvara kembali bergabung dengan Kael.
 
-Pemandangan di depan mereka sungguh menakjubkan sekaligus sangat aneh. Puncak gunung itu sendiri, jika dilihat dari kejauhan beberapa waktu lalu, tampak seperti puncak bersalju biasa. Namun semakin dekat, mereka menyadari puncak itu diselimuti oleh semacam medan energi distorsi yang kasat mata, membuatnya tampak berkilauan dan beriak seperti fatamorgana di tengah udara dingin yang membeku.
+Mereka melanjutkan pendakian menuju dataran terakhir sebelum Puncak Aethelgard.
 
-"Jadi ini... Puncak Aethelgard?" tanya Sylvara heran. "Kenapa puncaknya terlihat seperti...
+Puncak yang sebelumnya tampak biasa kini berkilau dan beriak seperti fatamorgana. Ruang di sekelilingnya melengkung, membuat bentuk gunung berubah setiap kali dilihat dari sudut berbeda.
 
-tidak nyata?" Zireth memeriksa pemindainya yang kembali menunjukkan data kacau. "Ini medan distorsi spasial tingkat tinggi! Terlihat seperti ilusi, tapi sensor menunjukkan ini nyata secara fisik. Teknologi bangsa Celestial memang luar biasa... atau ini sesuatu yang lain."
+“Puncaknya tidak terlihat nyata,” kata Sylvara.
 
-Kael teringat pesan rune di bukunya: 'bukan puncak... tapi gerbang... di dalam cermin'. "Ini bukan puncak gunung," katanya yakin. "Ini... sebuah kamuflase." Lengan kirinya berdenyut semakin kuat, seolah tertarik oleh energi besar di pusat distorsi itu. "Fragmen keenam...
+Zireth mengarahkan pemindai. Data kembali kacau. “Medan distorsi spasial. Ini bukan ilusi sederhana. Struktur fisiknya benar-benar disembunyikan.”
 
-atau apapun petunjuk berikutnya... ada di baliknya." Mereka berjalan hati-hati mendekati medan energi distorsi itu. Udara di sekitarnya terasa berat dan penuh dengan energi murni yang hampir membuat sesak napas.
+Kael teringat pesan buku rune.
 
-Saat mereka semakin dekat, mereka mulai bisa melihat struktur samar di balik riak energi: sebuah kuil megah terbuat dari kristal putih bersih yang besar, tampak melayang beberapa meter di atas tanah, memancarkan cahaya lembut dan aura kedamaian kuno.
+“Aethelgard bukan puncak.”
 
-"Sebuah kuil... Kuil Celestial?" bisik Sylvara takjub.
+Dia memandang riak energi di depan.
 
-"Tersembunyi dengan sempurna di balik medan distorsi ini selama ribuan tahun..." tambah
+“Gunung itu hanya kamuflase.”
 
-Zireth, sama terpesonanya. Tiba-tiba, medan distorsi di depan mereka beriak hebat. Sosok Berhelm dan Void Wyvern-nya muncul dari sisi lain medan energi itu, terbang keluar seolah baru saja menyelesaikan pertempuran sengit. Zirah hitam keperakan Sosok Berhelm tampak sedikit rusak di beberapa bagian.
+Rune pada lengan kirinya berdenyut semakin kuat. Sesuatu di pusat distorsi menarik Fragmen dalam dadanya.
 
-Sosok Berhelm melihat Kael dan yang lain. "Anomali... Kalian lagi." Suaranya terdengar sedikit terganggu. "Puncak ini... dijaga lebih kuat dari perkiraan Nexus Command."
+Mereka mendekat dengan hati-hati.
 
-"Apa yang ada di dalam sana?" tanya Kael cepat. "Siapa yang kau lawan?"
+Di balik riak ruang, bentuk sebuah kuil mulai terlihat. Bangunannya terbuat dari kristal putih dan melayang beberapa meter di atas tanah. Cahaya lembut mengelilinginya seperti lapisan kabut.
 
-"Penjaga terakhir Kekaisaran Lykaros," jawab Sosok Berhelm. "Dan... dia. Zevaron."
+“Kuil Celestial,” bisik Sylvara.
 
-Mendengar nama itu lagi, meskipun samar dari catatan Zireth atau legenda, Kael terkejut.
+“Tersembunyi selama ribuan tahun,” ujar Zireth.
 
-"Zevaron?"
+Medan distorsi mendadak berguncang.
 
-"Hibrida lain sepertimu," jelas Sosok Berhelm. "Tapi tujuannya sangat berbeda. Dia tidak mencari keseimbangan sepertimu... dia mencari dominasi absolut atas semua kekuatan Fragmen." Dia menatap kuil kristal yang tersembunyi itu. "Dan sepertinya... dia sudah berhasil masuk lebih dulu."
+Void Wyvern menerobos keluar dari dalamnya. Zirah Sosok Berhelm di punggung makhluk itu rusak pada beberapa bagian, seolah baru melewati pertempuran berat.
 
-Terdengar suara ledakan energi yang teredam dari dalam kuil, diikuti getaran hebat yang merambat melalui tanah es.
+Dia melihat Kael.
 
-"Energi di dalam sana melonjak drastis!" seru Zireth. "Sesuatu yang besar sedang terjadi!"
+“Anomali. Kalian lagi.”
 
-"Kita harus masuk!" kata Sylvara tegas.
+“Apa yang ada di dalam?” tanya Kael. “Siapa yang kau lawan?”
 
-Sosok Berhelm bergerak, menghalangi jalan Kael. "Terlalu berbahaya bagimu, Anomali. Biar kami yang menangani Zevaron." Kael menatap Sosok Berhelm, tidak gentar. "Aku tidak percaya padamu sepenuhnya. Dan jika Fragmen keenam ada di dalam sana... itu adalah urusanku." Dia bersiap menerobos paksa jika perlu.
+“Penjaga terakhir Lykaros.” Sosok Berhelm berhenti sebentar. “Dan Zevaron.”
 
-Pertarungan tampaknya sudah dimulai di dalam Kuil Celestial yang tersembunyi. Kael kini harus menghadapi Sosok Berhelm sekali lagi jika ingin masuk dan menghadapi Zevaron serta misteri Fragmen keenam.
+Nama itu tidak sepenuhnya asing. Kael pernah melihatnya dalam catatan yang dibuka Zireth.
+
+“Siapa Zevaron?”
+
+“Hibrida lain.” Tombak energi diarahkan ke kuil. “Namun dia tidak mencari keseimbangan. Dia menginginkan dominasi atas seluruh Fragmen.”
+
+Sosok Berhelm memandang pintu kuil.
+
+“Dia masuk lebih dulu.”
+
+Ledakan teredam terdengar dari dalam. Tanah es bergetar, dan cahaya pada kuil berdenyut tidak stabil.
+
+“Energinya melonjak,” kata Zireth.
+
+“Kita harus masuk,” ujar Sylvara.
+
+Sosok Berhelm turun dan menghalangi jalan Kael.
+
+“Terlalu berbahaya. Nexus Command akan menangani Zevaron.”
+
+Kael menggenggam Zerath's Fang.
+
+“Aku tidak mempercayaimu. Jika Fragmen keenam berada di sana, aku akan melihatnya sendiri.”
+
+Di balik pintu kuil, pertarungan kembali mengguncang udara.
+
+Kael dan Sosok Berhelm saling berhadapan di bawah riak medan distorsi. Untuk mencapai Fragmen berikutnya, dia mungkin harus melewati penjaga Nexus itu sekali lagi.

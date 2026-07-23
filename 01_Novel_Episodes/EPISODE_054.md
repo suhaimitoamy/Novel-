@@ -1,41 +1,63 @@
 # Episode 054 — Penjaga Kristal
 
-Di dalam aula reruntuhan Celestial, Kael, Sylvara, dan Zireth kini dikepung oleh Penjaga Kristal yang mengancam.
+“Penyusup akan dimurnikan.”
 
-"Penyusup akan dimurnikan," ucap para penjaga itu serempak, suara mereka harmonis namun dingin. Tanpa peringatan lebih lanjut, para penjaga itu melesat maju. Gerakan mereka sangat cepat, senyap, dan mengalir seperti tarian mematikan. Mereka menyerang dengan pedang yang terbuat dari cahaya solid dan menembakkan proyektil energi murni berwarna putih kebiruan.
+Para Penjaga Kristal melesat dari udara. Gerakan mereka senyap dan cepat, seperti tarian yang telah diulang selama ribuan tahun.
 
-"Mereka cepat sekali!" seru Sylvara sambil menghindar dari tebasan pedang cahaya dan
+Pedang cahaya menyapu ke arah Kael. Dia menangkis dengan Zerath's Fang, menghasilkan percikan putih yang memenuhi aula.
 
-membalas dengan panah rune-nya. Zireth mengaktifkan perisai energinya untuk menahan beberapa tembakan energi. "Mereka bukan sihir murni, tapi juga bukan mesin!" lapornya sambil menganalisis. "Semacam...
+Sylvara menghindari proyektil energi dan membalas dengan panah rune. Anak panahnya menembus sebagian tubuh penjaga, tetapi cahaya di sekeliling luka segera menyatu kembali.
 
-konstruksi energi Aether yang dipadatkan! Sangat sulit untuk dilukai dengan serangan fisik atau sihir elemen biasa!" Kael menangkis serangan pedang cahaya dengan Zerath's Fang. Benturan antara logam pedangnya dan energi murni menghasilkan percikan cahaya yang hebat. "Lalu bagaimana cara kita melawan mereka!?"
+“Mereka bukan mesin dan bukan sihir biasa,” kata Zireth sambil membangun perisai. “Tubuhnya adalah Aether yang dipadatkan.”
 
-Salah satu penjaga menembakkan sinar energi lurus ke arah Kael. Dia mencoba menahannya dengan perisai api merah-biru, tapi sinar energi murni itu perlahan namun pasti menembus perisainya.
+“Bagaimana cara menghancurkannya?” Kael menahan tebasan lain.
 
-"Energi mereka... seperti menetralkan apiku?" kata Kael terkejut.
+Sinar putih ditembakkan langsung ke dadanya. Kael membentuk perisai api merah-biru, tetapi energi Celestial menembus lapisannya sedikit demi sedikit.
 
-"Itu energi Celestial murni!" jelas Zireth. "Mungkin sifatnya berlawanan langsung dengan
+“Energinya menetralkan api.”
 
-energi Fragmen-mu yang lebih... kacau! Coba gunakan energi dari lengan kirimu itu!" Kael ragu sejenak, mengingat rasa sakit dan bahaya dari energi Void itu. Tapi dia tidak punya banyak pilihan. Dia fokus pada lengan kirinya, menyalurkan energi ungu gelap itu, lalu menembakkan ledakan kecil ke arah penjaga yang menyerangnya.
+“Aether murni berlawanan dengan kekacauan Fragmenmu,” jawab Zireth. “Gunakan Void pada lengan kiri.”
 
-Penjaga Kristal itu menjerit saat terkena ledakan energi Void – suaranya terdengar seperti kaca yang retak pecah. Tubuh cahayanya berkedip-kedip hebat, lalu retak dan hancur menjadi debu kristal halus yang tertiup angin aula.
+Kael ragu.
 
-"Energi... korup..." desisnya sebelum lenyap. "Sistem... gagal..."
+Setiap penggunaan energi itu memperdalam retakan pada tubuhnya. Namun sinar di depannya hampir menembus pertahanan.
 
-"Berhasil!" seru Sylvara.
+Dia mengangkat lengan kiri dan melepaskan ledakan ungu kecil.
 
-Kael menatap lengannya. "Jadi Void... adalah kelemahan mereka?" Dia merasakan sengatan rasa sakit lagi di lengannya setelah menggunakan energi itu. "Ngh..."
+Energi Void menghantam Penjaga Kristal.
 
-"Secara logis memang begitu," kata Zireth. "Energi Void adalah antitesis langsung dari energi Aether murni Celestial. Tapi jika kau menggunakan itu terus menerus..."
+Makhluk itu menjerit seperti kaca yang retak. Cahaya tubuhnya berkedip, lalu pecah menjadi debu kristal.
 
-"Aku tahu risikonya," potong Kael. Dia menatap penjaga kristal lainnya yang kini menyerang lebih agresif. "Kita harus selesaikan ini dengan cepat." Mereka bertiga kini bekerja sama dengan lebih terkoordinasi. Sylvara dan Zireth bertugas mengalihkan perhatian atau melumpuhkan penjaga sejenak dengan serangan sonik atau panah pengikat, sementara Kael memanfaatkan celah itu untuk menghancurkan mereka satu per satu dengan ledakan energi Void kecil namun terarah dari lengan kirinya.
+“Energi korup. Sistem gagal.”
 
-Pertarungan berlangsung cepat tapi sangat intens, dan jelas menguras energi Kael setiap kali dia terpaksa menggunakan kekuatan Void. Setelah penjaga kristal terakhir hancur menjadi debu, ruangan kembali sunyi. Hanya suara dengungan lembut dari Orrey dan peta bintang holografik di tengah ruangan yang masih bersinar tenang.
+Sylvara menoleh. “Berhasil.”
 
-Sylvara terengah-engah. "Penjagaan yang sangat ketat untuk reruntuhan yang tampak kosong."
+Rasa sakit menyengat lengan Kael. Dia menahan napas dan memandang penjaga lain yang mulai bergerak lebih agresif.
 
-"Mungkin tidak sepenuhnya kosong," sahut Zireth sambil mendekati mekanisme Orrey itu lagi. "Peta bintang ini... sepertinya bukan sekadar peta biasa." Dia mengamati panel kontrol di dekat bola kristal. "Ada input energi spesifik yang dibutuhkan untuk mengaktifkan fungsi penuhnya... Dan dari simbolnya, sepertinya hanya bisa diaktifkan oleh... resonansi energi Fragmen Zerath atau energi Celestial asli." Dia melirik Kael.
+“Void adalah kelemahan mereka.”
 
-Kael melangkah mendekati Orrey. Lengan kirinya masih terasa sakit dan dingin setelah menggunakan energi Void, tapi anehnya, lengan itu juga terasa berdenyut pelan, seolah ingin terhubung dengan energi murni dari Orrey tersebut. "Apa yang akan terjadi... jika aku menyentuhnya?"
+“Benar,” kata Zireth. “Tapi tubuhmu juga membayar setiap serangan.”
 
-Kael berdiri di depan Orrey Celestial yang kini kembali tenang namun penuh misteri. Tangannya terulur ragu ke arah bola kristal yang memancarkan peta bintang holografik yang memukau.
+“Aku tahu. Buka celah saja.”
+
+Mereka mengubah pola bertarung.
+
+Sylvara memakai panah pengikat untuk menahan gerakan. Zireth mengganggu struktur Aether dengan gelombang sonik. Ketika satu penjaga kehilangan keseimbangan, Kael menghancurkannya memakai ledakan Void yang kecil dan terarah.
+
+Satu demi satu, tubuh cahaya pecah.
+
+Setelah penjaga terakhir lenyap, aula kembali sunyi. Kael berdiri dengan napas berat, sementara rasa dingin menjalar dari lengan kiri sampai bahu.
+
+“Pertahanan yang berlebihan untuk reruntuhan kosong,” ujar Sylvara.
+
+“Mungkin tempat ini tidak kosong.” Zireth kembali mendekati Orrey. “Mekanisme tersebut membutuhkan masukan energi khusus untuk membuka fungsi penuh. Simbolnya mengarah pada resonansi Fragmen atau energi Celestial asli.”
+
+Kael berdiri di depan bola kristal.
+
+Lengan kirinya masih sakit, tetapi rune ungu di kulit berdenyut menuju cahaya Orrey seolah ingin menyentuhnya.
+
+“Apa yang terjadi jika aku mengaktifkannya?”
+
+Tak seorang pun dapat menjawab.
+
+Kael mengulurkan tangan ke arah bola kristal yang memancarkan peta bintang.

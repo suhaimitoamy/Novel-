@@ -1,43 +1,75 @@
 # Episode 058 — Pesan dari Seberang
 
-Jembatan Foton Celestial retak parah di bawah kaki Kael. Cahayanya berkedip semakin liar, dan jurang es hitam di bawah terasa seperti siap menelannya kapan saja. Aku tidak bisa kembali... tapi maju pun... jembatan ini pasti akan runtuh sebelum aku sampai! pikir Kael panik. Lengan kirinya terasa sakit dan panas saat energi Void di dalamnya bereaksi keras terhadap energi murni jembatan.
+Jembatan Foton retak di bawah kaki Kael.
 
-"Kael!" terdengar teriakan Sylvara dari seberang jurang. "Coba fokuskan energi murnimu!
+Cahaya berkedip liar, sementara jurang gelap menunggu di bawahnya. Dia tidak bisa kembali. Namun jika bergerak dengan tergesa-gesa, jembatan akan runtuh sebelum mencapai sisi lain.
 
-Energi Fragmen-mu! Jangan biarkan energi gelap di lenganmu bereaksi!" Kael menarik napas dalam, mencoba mengabaikan rasa sakit dan panik. Dia fokus pada keseimbangan api merah dan biru di dalam dirinya, membayangkan ketenangan, bukan kekuatan. Fokus... Keseimbangan... Jalan Keempat...
+Lengan kirinya terbakar akibat benturan antara Void dan Aether.
 
-Perlahan, dengan susah payah, keretakan di jembatan sedikit melambat penyebarannya. Cahaya jembatan menjadi sedikit lebih stabil saat Kael memfokuskan niatnya pada pencarian jawaban dan perlindungan, bukan pada kekuatan destruktifnya.
+“Fokus pada energi murnimu,” teriak Sylvara dari seberang. “Jangan biarkan lengan itu mengambil kendali.”
 
-Sosok Berhelm yang mengamati dari ujung jembatan memiringkan kepalanya sedikit, helmnya tidak menunjukkan ekspresi tapi gerakannya menyiratkan ketertarikan. "Dia... menstabilkannya? Bagaimana mungkin?" Dengan langkah hati-hati terakhir, Kael berhasil mencapai ujung jembatan yang lain dengan selamat, tepat saat bagian tengah jembatan di belakangnya runtuh berkeping-keping menjadi debu cahaya yang menghilang ke dalam jurang.
+Kael menarik napas.
 
-Jembatan runtuh. Kael jatuh terduduk di platform batu di seberang, terengah-engah karena kelelahan fisik dan mental. Tapi dia berhasil melewatinya.
+Dia menahan kepanikan dan memusatkan pikiran pada keseimbangan api merah serta biru. Bukan kekuatan untuk menghancurkan, melainkan alasan dia terus berjalan.
 
-"Dia berhasil!" seru Sylvara lega dari seberang.
+Melindungi. Menemukan jawaban. Memilih jalannya sendiri.
 
-"Tapi kita masih terjebak di sini dengan Wyvern itu!" tambah Zireth cemas.
+Penyebaran retakan melambat.
 
-Sosok Berhelm kini menatap Kael yang kelelahan dengan pandangan berbeda. "Kau berbeda dari parameter data awal kami, Anomali." Dia menurunkan tombak energinya sedikit. "Mungkin... protokol penahanan bisa ditunda untuk sementara waktu."
+Jembatan masih bergetar, tetapi cahaya di bawah kakinya menjadi lebih stabil.
 
-"Siapa... kalian sebenarnya!?" tanya Kael sambil mencoba bangkit.
+Sosok Berhelm memiringkan kepala. “Dia menstabilkannya?”
 
-Sebelum Sosok Berhelm sempat menjawab, sebuah sinyal darurat berbunyi nyaring dari zirahnya, memecah keheningan. Suara mekanis otomatis terdengar dari zirah Berhelm: "Peringatan: Anomali Energi Dimensi tingkat tinggi terdeteksi. Sumber tidak dikenal. Lokasi: Puncak Aethelgard."
+Kael melangkah perlahan.
 
-Sosok Berhelm seketika menoleh ke arah puncak gunung yang samar terlihat di kejauhan.
+Satu langkah. Lalu satu lagi.
 
-"Dia sudah memulai? Lebih cepat dari jadwal yang diperkirakan!" Dia kembali menatap Kael.
+Dia mencapai platform di sisi lain tepat ketika bagian tengah jembatan pecah menjadi debu cahaya dan jatuh ke jurang.
 
-"Takdirmu sepertinya menanti di puncak gunung itu, Kael Drayven. Hati-hati dengan 'kunci' yang kau bawa di dalam dirimu." Tanpa penjelasan lebih lanjut, Sosok Berhelm berbalik cepat menuju Void Wyvern-nya yang menunggu di sisi jurang tempat Sylvara dan Zireth berada. "Misi berubah. Prioritas utama: Puncak Aethelgard."
+Kael terduduk, terengah-engah.
 
-Sosok Berhelm melompat ke punggung Void Wyvern, lalu terbang melesat pergi dengan kecepatan tinggi ke arah Puncak Aethelgard, mengabaikan Kael yang sendirian dan Sylvara serta Zireth yang masih terjebak.
+“Dia berhasil,” seru Sylvara.
 
-"Dia... pergi begitu saja?" tanya Sylvara tak percaya.
+“Tapi kami masih bersama Wyvern,” kata Zireth.
 
-"Anomali Dimensi? Di Puncak Aethelgard?" gumam Zireth. "Ini pasti ada hubungannya
+Sosok Berhelm memandang Kael dengan cara berbeda. Tombaknya turun sedikit.
 
-dengan Fragmen keenam... atau dengan rencana Rowan."
+“Kau menyimpang dari parameter awal, Anomali. Protokol penahanan dapat ditunda.”
 
-Kael berdiri, menatap ke arah perginya Sosok Berhelm dan Wyvern-nya. 'Kunci yang kubawa'... Apa maksudnya? Dia melihat ke seberang jurang tempat Sylvara dan Zireth masih terjebak. "Kita harus mencari jalan lain untuk kalian menyeberang!"
+“Siapa kalian sebenarnya?” Kael mencoba berdiri.
 
-Tiba-tiba, Kael merasakan getaran energi samar dari buku rune kuno yang dia bawa dari reruntuhan sebelumnya. Dia segera membuka buku itu. Di salah satu halaman yang tadinya kosong, sebuah rune baru tampak bersinar dengan cahaya biru lembut, membentuk pesan singkat:
+Sebelum jawaban datang, sinyal darurat berbunyi dari zirah hitam itu.
 
-"Aethelgard… bukanlah puncak… tapi sebuah gerbang… Dia menunggumu… di dalam cermin…” Gerbang? Cermin? Pesan dari siapa ini? Kael menatap pesan rune misterius itu, sementara Sylvara dan Zireth di seberang jurang mulai mencari jalan memutar. Pertanyaan baru muncul menggantikan jawaban yang baru saja dia dapatkan.
+“Peringatan. Anomali energi dimensi tingkat tinggi terdeteksi. Lokasi: Puncak Aethelgard.”
+
+Sosok Berhelm menoleh ke arah puncak yang tersembunyi di kejauhan.
+
+“Dia memulai lebih cepat dari perkiraan.”
+
+Tatapannya kembali kepada Kael.
+
+“Takdirmu menunggu di sana. Berhati-hatilah dengan kunci yang kau bawa dalam tubuhmu.”
+
+Dia melompat ke punggung Void Wyvern.
+
+“Misi berubah. Prioritas utama: Aethelgard.”
+
+Wyvern terbang meninggalkan reruntuhan dengan kecepatan tinggi.
+
+Sylvara menatap kepergiannya. “Dia pergi begitu saja?”
+
+“Anomali di puncak pasti berhubungan dengan Fragmen keenam atau Rowan,” kata Zireth.
+
+Kael memandang jurang yang memisahkan mereka. “Cari jalan memutar. Aku akan menunggu di sisi ini.”
+
+Buku rune dalam pakaiannya bergetar.
+
+Kael membukanya. Sebuah simbol baru bersinar pada halaman yang sebelumnya kosong.
+
+*Aethelgard bukan puncak, melainkan gerbang. Dia menunggumu di dalam cermin.*
+
+Kael membaca pesan itu sekali lagi.
+
+Siapa yang menunggu? Gerbang apa yang disembunyikan puncak?
+
+Di seberang jurang, Sylvara dan Zireth mulai mencari mekanisme lain. Kael menutup buku, tetapi kata-kata tersebut tetap menyala dalam pikirannya.

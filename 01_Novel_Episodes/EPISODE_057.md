@@ -1,47 +1,65 @@
 # Episode 057 — Jembatan Cahaya Rapuh
 
-Pertarungan tak terhindarkan pecah di dalam aula utama reruntuhan Celestial. Kael, Sylvara, dan Zireth kini harus menghadapi Sosok Berhelm dan tunggangannya, Void Wyvern. Sosok Berhelm bergerak dengan kelincahan dan presisi yang mengerikan, tombak energinya menebas dan menusuk dengan kecepatan tinggi, setiap gerakannya terukur dan efisien. "Perlawanan sia-sia, Anomali," ucapnya dingin.
+Pertarungan pecah di dalam aula.
 
-"Siapa kau sebenarnya!?" teriak Kael sambil menangkis serangan tombak dengan Zerath's
+Sosok Berhelm bergerak dengan presisi yang tidak pernah Kael lihat. Tombak energinya menusuk dan menebas tanpa satu gerakan sia-sia.
 
-Fang. Setiap benturan terasa mengirimkan getaran kuat ke lengannya. Sementara Kael menahan Sosok Berhelm, Void Wyvern menyemburkan api ungu gelap yang pekat, memaksa Sylvara dan Zireth terus bergerak mencari perlindungan dan memisahkan mereka dari Kael.
+“Perlawanan tidak akan mengubah hasil, Anomali.”
 
-Api Void Wyvern.
+Kael menangkis dengan Zerath's Fang. Setiap benturan mengirim getaran kuat sampai bahunya.
 
-"Kael!" teriak Sylvara saat dia nyaris terkena semburan api itu.
+Di sisi lain, Void Wyvern menyemburkan api ungu untuk memisahkan Sylvara dan Zireth dari Kael.
 
-"Kita tidak bisa mendekat!" seru Zireth sambil menembakkan gelombang sonik ke arah
+“Kami tidak bisa mendekat,” teriak Zireth. Gelombang soniknya hanya menggores pertahanan logam Wyvern. “Intinya terlindungi terlalu dalam.”
 
-Wyvern, yang tampaknya tidak terlalu berpengaruh pada konstruksi magitek kuno itu. "Inti energinya terlindungi dengan sangat baik! Sulit untuk dilumpuhkan!"
+Kael semakin terdesak.
 
-Kael semakin terdesak oleh serangan beruntun Sosok Berhelm. "Dia kuat sekali... dan teknik bertarungnya... aku tidak pernah melihat gaya seperti ini sebelumnya." Lengan kirinya yang terintegrasi Void berdenyut, seolah menawarkan kekuatannya. Haruskah aku pakai kekuatan Void ini lagi untuk melawannya?
+Gaya bertarung lawannya tidak memberinya celah. Setiap kali dia mengubah arah, tombak sudah menunggu di titik berikutnya.
 
-Seolah bisa membaca keraguan Kael, Sosok Berhelm berkata, "Energi korupsi itu... hanya akan mempercepat kehancuran struktur jiwamu. Kami datang untuk mencegah hal itu terjadi." Sosok Berhelm menekan serangannya. Satu tebasan kuat dari tombak energinya berhasil menembus pertahanan Kael, membuatnya terlempar keras ke arah belakang ruangan dan menabrak dinding es yang rapuh.
+Rune ungu pada lengan kiri berdenyut, menawarkan tenaga tambahan.
 
-"Ugh!"
+“Korupsi itu hanya mempercepat kehancuran jiwamu,” kata Sosok Berhelm, seolah membaca niatnya. “Kami datang untuk mencegahnya.”
 
-Dinding es di belakang Kael retak hebat akibat benturan itu, dan di baliknya terlihat sesuatu yang tak terduga: sebuah jalan keluar lain. Sebuah jembatan sempit yang seluruhnya terbuat dari cahaya biru solid, melayang anggun melintasi jurang es dalam yang menganga di bawah reruntuhan.
+Tombak menembus pertahanan Kael.
 
-Sylvara, melihat celah itu, berteriak, "Kael! Di belakangmu! Jalan keluar!" Kael menoleh, melihat jembatan cahaya yang aneh itu. "Jembatan... cahaya?" Sosok Berhelm, melihat Kael memperhatikan jembatan itu, berhenti menyerang sejenak.
+Tubuhnya terlempar dan menghantam dinding es. Retakan menyebar dari titik benturan, lalu bagian dinding runtuh.
 
-"Jembatan Foton Celestial," jelasnya. "Hanya bisa dilewati dengan aman oleh mereka yang hatinya murni atau... yang tujuannya selaras dengan Keseimbangan Agung."
+Di baliknya terdapat jurang dalam dan sebuah jembatan sempit yang tersusun dari cahaya biru padat.
 
-"Itu pasti jebakan!" peringat Zireth dari jauh. "Jembatan energi seperti itu biasanya sangat
+“Kael, ada jalan keluar,” seru Sylvara.
 
-tidak stabil dan bereaksi negatif pada emosi kuat atau energi yang tidak murni!" Kael menatap jembatan cahaya yang tampak rapuh itu, lalu ke Sosok Berhelm yang kembali mendekat perlahan. Pilihan sulit lagi, seperti biasa.
+Kael bangkit dan menatap jembatan tersebut.
 
-Dia mengambil keputusan cepat. Mengabaikan peringatan Zireth, Kael bangkit dan berlari ke arah jembatan cahaya itu.
+Sosok Berhelm berhenti sesaat. “Jembatan Foton Celestial. Hanya mereka yang tujuannya selaras dengan Keseimbangan Agung dapat melewatinya.”
 
-"Percuma," kata Sosok Berhelm dari belakangnya. "Perpaduan energi Fragmen dan Void di dalam dirimu akan menghancurkan jembatan itu... dan dirimu bersamanya." Kael melompat ke atas jembatan cahaya. Awalnya, jembatan itu terasa solid dan stabil di bawah kakinya.
+“Jebakan,” kata Zireth. “Struktur itu bereaksi terhadap emosi dan energi tidak murni.”
 
-Sejauh ini aman... pikirnya lega. Namun, saat dia melangkah lebih jauh ke tengah jembatan, struktur cahaya itu mulai bergetar hebat. Cahayanya berkedip tidak stabil, terutama di bagian jembatan di bawah kaki kirinya, kaki yang paling dekat dengan lengan korupnya.
+Kael melihat tombak lawannya kembali terangkat.
 
-"Kael! Hati-hati!" teriak Sylvara cemas.
+Tidak ada pilihan lain.
 
-Kael mencoba menenangkan pikirannya, fokus pada tujuannya mencari jawaban dan melindungi teman-temannya, bukan pada kekuatan atau pertarungan. Tapi energi Void di lengan kirinya seolah bereaksi negatif secara instingtif pada cahaya murni dari jembatan Celestial itu.
+Dia berlari menuju jembatan.
 
-Retakan-retakan halus mulai muncul di permukaan jembatan cahaya di bawah kakinya, menyebar dengan cepat.
+“Perpaduan Fragmen dan Void dalam tubuhmu akan merusaknya,” ujar Sosok Berhelm. “Kau akan jatuh bersama jembatan itu.”
 
-"Tidak!" seru Kael panik.
+Kael melompat ke atas cahaya.
 
-Sosok Berhelm kini berdiri diam di ujung jembatan tempat Kael masuk tadi, hanya mengamati. "Sudah kubilang." Kael kini terjebak di tengah jembatan cahaya yang retak dan hampir runtuh, dengan jurang es gelap menganga di bawahnya. Sosok Berhelm menunggu dengan tenang di seberang.
+Permukaannya terasa padat pada langkah pertama. Dia bergerak cepat menuju tengah.
+
+Kemudian jembatan mulai bergetar.
+
+Cahayanya berkedip di bawah sisi kiri tubuh Kael. Rune Void pada lengannya bereaksi terhadap energi Celestial, dan retakan tipis menyebar di permukaan.
+
+“Kael, tenangkan energimu,” teriak Sylvara.
+
+Dia memperlambat langkah dan mencoba menahan rasa takut. Fokusnya diarahkan pada satu tujuan: melindungi teman-temannya dan menemukan jawaban, bukan memenangkan pertarungan.
+
+Namun Void dalam lengannya terus menolak cahaya murni.
+
+Retakan semakin lebar.
+
+Di belakang, Sosok Berhelm berdiri di ujung jembatan dan menurunkan tombak.
+
+“Sudah kuperingatkan.”
+
+Kael kini berada di tengah jurang, sementara jembatan cahaya runtuh sedikit demi sedikit di bawah kakinya.
