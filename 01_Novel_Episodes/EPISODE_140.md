@@ -1,27 +1,35 @@
 # Episode 140 — Di Ambang Pintu
 
-Butiran cahaya melayang seperti abu dari bintang mati di akar Leyline purba. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Semua akar Leyline bertemu pada satu pusat.
 
-Semua jalan di akar Leyline purba berakhir pada satu pusat. Di sanalah gema Arsitek yang menyamar sebagai suara dunia menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menyelaraskan denyut Kael dengan planet mustahil dilakukan.
+Gema Arsitek menunggu di sana, dikelilingi lapisan energi yang memakai suara dunia sebagai topeng.
 
-“Kita mencapai pusat Panggilan Hati Dunia bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada Gema Pengetahuan yang membedakan suara asli dan palsu. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Kita masuk bersama,” kata Sylvara. “Jangan ambil seluruh beban.”
 
-Mereka bergerak serempak. Sekutunya menggunakan Gema Pengetahuan yang membedakan suara asli dan palsu untuk memecah lapisan luar, sedangkan Kael menyusupkan sinkronisasi frekuensi Schumann magitek planet ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Gema Pengetahuan memecah lapisan luar. Kael menyisipkan sinkronisasi frekuensi planet ke celah yang terbuka.
 
-Kael tidak melawan semua lapisan Panggilan Hati Dunia. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Dia memilih denyut dasar dan menyelaraskan tubuh dengannya. Struktur musuh terlihat sebagai jaring cahaya dengan benang kendali pada pusatnya.
 
-Di pusat jaring Panggilan Hati Dunia itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di pusat Panggilan Hati Dunia, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Kael membiarkan Sylvara mengisi bagian yang tidak sanggup dia tahan sendiri.
 
-Gema Arsitek yang menyamar sebagai suara dunia mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Satu demi satu simpul padam.
 
-Tidak ada ledakan besar. Gema Arsitek yang menyamar sebagai suara dunia retak dalam keheningan akar Leyline purba. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Gema palsu melipat ruang dan memadamkan cahaya. Kael hanya mendengar detak jantung serta suara Sylvara.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Fragmen Kael berada di luar rantai sebab-akibat Zerath. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Dia mengikuti keduanya pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
 
-Kael memandangi sisa-sisa pusat kendali Panggilan Hati Dunia. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Tidak ada ledakan.
 
-Debu Panggilan Hati Dunia belum menyentuh tanah saat peringatan berikutnya tiba. Pintu Hati Dunia membuka mata raksasanya. Kael dan Sylvara saling pandang; keduanya tahu perjalanan tak memberi mereka waktu berkabung.
+Topeng Arsitek retak dalam keheningan. Benang kendali terbakar, sementara arus asli Hati Dunia tetap hidup.
 
-Kael menutup pintu pusat Panggilan Hati Dunia. Ia tidak menutup ingatan tentang apa yang terjadi di sana. Ingatan itulah yang dibawanya sebagai batas bagi kekuatan sendiri.
+Rekaman terakhir terbuka:
+
+*Fragmen Kael berada di luar rantai sebab-akibat Zerath.*
+
+Di depan mereka, sebuah pintu tanpa engsel membuka mata raksasa di permukaannya.
+
+Hati Dunia telah mendengar kedatangan Kael.
+
+Kini dunia itu sendiri akan menilai apakah dia layak mendengar jawabannya.

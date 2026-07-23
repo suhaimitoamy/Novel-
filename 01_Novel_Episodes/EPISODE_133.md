@@ -1,25 +1,31 @@
 # Episode 133 — Kemampuan Baru Zireth
 
-Debu bergerak melawan arah angin di simpul energi di bawah Karag Thürm. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Penjaga Persimpangan menyerang dengan tekanan ruang yang menghantam seperti palu.
 
-Serangan Penjaga Persimpangan yang menilai niat setiap pelintas datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Kael menahan benturan pertama. Zireth membalas dari samping memakai lengan bintang barunya, sementara panah Sylvara memaksa musuh membagi perhatian.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan lengan bintang Zireth dan panah penanda Sylvara, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael mencari frekuensi alami penjaga dan menemukan satu nada yang terlalu sempurna—simpul kendali asing.
 
-Kael menerapkan induksi elektromagnetik dari inti planet. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Sekarang,” seru Zireth.
 
-“Sekarang, Kael! Simpul Persimpangan Leyline ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Lengan bintangnya mengirim medan elektromagnetik yang menahan simpul selama beberapa detik.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh simpul energi di bawah Karag Thürm sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael membalik fase Pulse. Selubung pertahanan retak, tetapi energinya berpindah ke dinding. Seluruh Persimpangan menjadi tubuh baru bagi musuh.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Persimpangan Leyline, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Bilah dan tangan logam tumbuh dari setiap permukaan.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Persimpangan Leyline tetap memiliki batas yang tak boleh dilanggar.
+Kael menunggu gelombang kendali melewati sambungan terkecil, lalu menghantam titik itu. Lorong terbuka tanpa merusak arus utama Leyline.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan lengan bintang Zireth dan panah penanda Sylvara untuk menghantam pusat kendali yang baru terlihat.
+Satu serangan datang dari belakang menuju Zireth. Kael membentuk perisai tipis dan menerima benturan sampai pandangannya putih.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Leyline mengingat semua luka yang pernah ditimpakan para kekaisaran. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Zireth memanfaatkan jeda tersebut. Lengan bintangnya menembakkan medan terarah ke pusat kendali.
 
-Kael merasakan kemenangan kecil atas lapisan luar Persimpangan Leyline, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh simpul energi di bawah Karag Thürm menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Jaringan simbol pecah.
 
-“Kita membangunkan pusat Persimpangan Leyline,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Penjaga Persimpangan yang menilai niat setiap pelintas mulai bergerak dari kedalaman.
+Rekaman tersembunyi terbuka:
+
+*Leyline menyimpan luka semua kekaisaran.*
+
+Zireth memandangi tangan barunya. Untuk pertama kalinya, warisan Volundr tidak hanya menjadi pengganti bagian tubuh yang hilang.
+
+Ia telah menjadi alat untuk melindungi arus kehidupan Zerath.
