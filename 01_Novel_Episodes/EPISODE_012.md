@@ -1,25 +1,67 @@
 # Episode 012 — Persimpangan Jalan Keempat
 
-Kael, Sylvara, dan Zireth kembali ke Akademi Vorth Aereth setelah kegagalan mereka di Craveth Hollow. Mereka mendapati suasana di akademi terasa berbeda, lebih tegang. Tiga kelompok berbeda ternyata telah menunggu kedatangan Kael.
+Kael, Sylvara, dan Zireth kembali ke Akademi Vorth Aereth setelah gagal merebut Fragmen keempat. Suasana di halaman utama terasa tegang.
 
-Kelompok Pertama: Dipimpin oleh sosok berjubah putih keemasan dengan topeng emas tanpa cela – Arkanis, perwakilan dari Arcanum Wardens. "Kael Drayven," kata Arkanis dengan suara tenang namun penuh wibawa. "Kekuatan Fragmen yang kau bawa terlalu berbahaya untuk makhluk fana. Serahkan Fragmen itu pada kami. Kami akan menyegelnya dengan aman, memastikan kekuatannya tidak akan pernah bisa disalahgunakan lagi."
+Tiga kelompok telah menunggu mereka.
 
-Kelompok Kedua: Dipimpin oleh Nyrah, sang Pendiam dari Spires of Silence. Dia tidak berbicara, hanya memberikan Kael sebuah pesan rune yang berarti: "Lupakan kekuatan itu. Lupakan ingatanmu. Lepaskan bebanmu. Kembalilah pada keheningan. Di sana kau akan menemukan kedamaian sejati." Mereka adalah Choir of Silence.
+Kelompok pertama dipimpin sosok berjubah putih keemasan dengan topeng emas tanpa cela. Arkanis, perwakilan Arcanum Wardens, melangkah maju.
 
-Kelompok Ketiga: Rowan muncul dari bayangan, senyumnya dingin seperti biasa. "Jangan dengarkan mereka, Kael. Kekuatan adalah hakmu. Hancurkan semua aturan lama yang mengekangmu. Bakar dunia yang korup ini sampai ke akarnya. Lalu kita bisa membangunnya kembali dari abu menjadi sesuatu yang lebih baik, lebih kuat."
+“Kael Drayven, kekuatan yang kau bawa terlalu berbahaya untuk makhluk fana. Serahkan Fragmen itu. Kami akan menyegelnya agar tidak pernah disalahgunakan.”
 
-Kael berdiri di tengah, dikelilingi oleh tiga ideologi yang berbeda tentang kekuatan dan takdirnya: Pengendalian total, Pengingkaran total, atau Kehancuran total. Melkisha, Kepala Akademi, hanya mengamati dari jauh, tidak ikut campur. Zireth berdiri diam di samping Kael, ekspresinya sulit dibaca.
+Di sisi lain berdiri Nyrah bersama Choir of Silence. Dia tidak berbicara. Rune bercahaya terbentuk di udara di hadapan Kael.
 
-Kael menatap Arkanis, lalu ke Nyrah, lalu ke Rowan. Dia merasakan tarikan kuat dari ketiga pilihan itu. Bagian dirinya ingin dikendalikan agar tidak menyakiti siapa pun lagi. Bagian lain ingin melupakan semua rasa sakitnya. Dan bagian gelap di dalam dirinya tergoda oleh janji kekuatan absolut Rowan.
+*Lupakan kekuatan itu. Lepaskan ingatanmu. Kembalilah pada keheningan dan temukan kedamaian.*
 
-Dia menarik napas dalam, lalu berbicara dengan suara tenang namun tegas. "Aku menolak." Ketiga pemimpin kelompok itu tampak terkejut. "Apa?" tanya Arkanis.
+Bayangan di belakang barisan murid bergerak. Rowan muncul dengan senyum tenang.
 
-"Aku tidak akan menyerahkan kekuatanku untuk disegel," kata Kael pada Arkanis. "Aku juga tidak akan melupakan siapa diriku demi kedamaian semu," katanya pada Nyrah. "Dan aku… tidak akan menghancurkan dunia ini hanya karena aku terluka," katanya pada Rowan.
+“Jangan dengarkan mereka,” katanya. “Kekuatan itu hakmu. Hancurkan aturan lama yang mengekangmu. Bakar dunia yang busuk ini sampai ke akar, lalu kita bangun sesuatu yang lebih kuat dari abunya.”
 
-Dia melangkah maju, api merah dan biru serta secercah energi ungu gelap berputar samar di sekelilingnya. "Kalian semua menawarkan jalan yang sudah ada. Jalan yang sudah terbukti gagal membawa kedamaian atau keseimbangan sejati pada Zerath." Matanya bersinar dengan tekad baru. "Aku akan mencari jalanku sendiri. Jalan Keempat. Jalan yang belum pernah ada."
+Kael berdiri di tengah tiga pilihan.
 
-Arkanis menyipitkan mata di balik topengnya. Nyrah menunduk sedikit. Rowan tertawa pelan. "Pilihan yang menarik, Kael. Tapi ingat... jalan yang kau ciptakan sendiri... seringkali adalah jalan yang paling sunyi dan paling berbahaya."
+Arkanis menawarkan kendali mutlak. Nyrah menawarkan pelarian dari seluruh luka. Rowan menawarkan kehancuran.
 
-Tiba-tiba, Zireth menerima sinyal darurat di lengan mekaniknya. "Laporan baru masuk! Sebuah energi Fragmen masif baru saja terdeteksi jatuh di Gurun Bisikan! Fragmen kelima!" Semua mata langsung tertuju pada peta energi yang ditampilkan Zireth. Sebuah kesempatan baru, sebuah perlombaan baru akan segera dimulai.
+Melkisha mengamati dari balkon tanpa ikut campur. Zireth berdiri di samping Kael, wajahnya sulit dibaca.
 
-Kael menatap ke arah Gurun Bisikan yang jauh. "Kalau begitu... perburuanku dimulai lagi. Kali ini... dengan caraku sendiri." Dia berbalik, meninggalkan ketiga faksi itu di belakangnya, siap untuk memulai perjalanan barunya di bawah bendera ‘Jalan Keempat’ yang baru saja dia deklarasikan. Sylvara dan Zireth segera mengikutinya.
+Sebagian dari diri Kael ingin menyerahkan Fragmen agar dia tak pernah melukai siapa pun lagi. Sebagian lain ingin melupakan Aranyel, ibunya, dan semua suara yang terus mengejarnya. Di tempat paling gelap dalam dirinya, tawaran Rowan terdengar menggoda.
+
+Kael menarik napas.
+
+“Aku menolak.”
+
+Arkanis memiringkan kepala. “Apa?”
+
+Kael menatap topeng emasnya. “Aku tidak akan menyerahkan kekuatanku untuk disegel.”
+
+Dia beralih kepada Nyrah. “Aku juga tidak akan menghapus diriku demi kedamaian palsu.”
+
+Terakhir, tatapannya berhenti pada Rowan.
+
+“Dan aku tidak akan menghancurkan dunia hanya karena dunia pernah menghancurkanku.”
+
+Api merah dan biru berputar di sekeliling tubuh Kael, diselingi percikan ungu dari lengan kirinya.
+
+“Kalian menawarkan jalan yang sudah pernah dipilih orang lain. Kendali, penyangkalan, dan kehancuran. Tak satu pun membawa keseimbangan bagi Zerath.”
+
+Kael melangkah melewati mereka.
+
+“Aku akan mencari jalanku sendiri. Jalan Keempat.”
+
+Arkanis terdiam di balik topeng. Nyrah menundukkan kepala sedikit. Rowan tertawa pelan.
+
+“Pilihan menarik,” katanya. “Tapi jalan yang dibuat sendiri biasanya paling sepi—dan paling berbahaya.”
+
+Lengan mekanis Zireth mendadak berbunyi. Peta energi muncul di udara.
+
+“Sinyal baru,” katanya. “Energi Fragmen dalam jumlah besar terdeteksi di Gurun Bisikan.”
+
+Sebuah titik ungu menyala pada peta.
+
+“Fragmen kelima,” ujar Sylvara.
+
+Kael menatap arah gurun yang jauh.
+
+“Kalau begitu, perburuan dimulai lagi.”
+
+Dia meninggalkan tiga faksi itu di belakang. Sylvara dan Zireth mengikutinya tanpa ragu.
+
+Kali ini, Kael akan berjalan dengan caranya sendiri.
