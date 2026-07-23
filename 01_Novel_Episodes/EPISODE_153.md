@@ -1,25 +1,51 @@
 # Episode 153 — Latihan dan Informasi
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di markas pengamatan Nexus di hutan rawa. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael menghentikan simulasi secara paksa.
 
-Serangan simulasi Nexus dan rawa yang terkorupsi datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Dia tidak menghancurkan ruangan. Ragnarok Pulse diarahkan ke batas antara proyeksi dan akar nyata, memutus aliran yang membuat korupsi Nexus merembes ke rawa.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Suku Lumut Sunyi dan analisis Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Dinding buatan berkedip lalu padam.
 
-Kael menerapkan medan simulasi yang mengubah konstanta gesek dan massa. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sosok Berhelm menunggu di ruang kontrol.
 
-“Sekarang, Kael! Simpul Rawa Nexus ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Ujian belum selesai.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh markas pengamatan Nexus di hutan rawa sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Sudah.” Kael menunjuk data yang masih bergerak pada layar. “Setiap latihan menyalin pola Pulse-ku. Sementara fasilitas kalian meracuni rawa di luar.”
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Dalam benturan Rawa Nexus, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Itu efek samping yang dapat dikendalikan.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Rawa Nexus tetap memiliki batas yang tak boleh dilanggar.
+Sylvara menatapnya tajam. “Makhluk hidup di sana bukan efek samping.”
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Suku Lumut Sunyi dan analisis Zireth untuk menghantam pusat kendali yang baru terlihat.
+Zireth membuka log tersembunyi dari terminal simulasi. Di dalamnya terdapat ribuan rekaman gerakan Kael, respons emosional, dan strategi penahanan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Nexus mengukur Kael sebagai aset, bukan sebagai manusia. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Bukan hanya Nexus yang mengakses data ini,” katanya. “Ada jalur transmisi asing menuju utara.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Rawa Nexus, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh markas pengamatan Nexus di hutan rawa menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Simbol geometris Sang Arsitek terlihat pada beberapa paket yang telah dicuri.
 
-“Kita membangunkan pusat Rawa Nexus,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama simulasi Nexus dan rawa yang terkorupsi mulai bergerak dari kedalaman.
+Kael memandang Sosok Berhelm. “Fasilitas kalian telah disusupi.”
+
+Untuk pertama kalinya, penjaga Nexus itu tidak langsung menjawab.
+
+“Mustahil. Jaringan ini terpisah dari realitas lokal.”
+
+“Tidak cukup terpisah.” Zireth menampilkan log. “Setiap kali Kael berlatih, salinan polanya dikirim kepada seseorang yang sedang membangun lawan khusus untuknya.”
+
+Alarm markas berbunyi.
+
+Lantai bergetar. Akar hitam menerobos dinding dan memadamkan beberapa terminal.
+
+Dari lorong luar terdengar teriakan anggota Suku Lumut Sunyi.
+
+Kael menghunus Zerath's Fang.
+
+“Kalian mau terus mengukurku, atau membantu memperbaiki kerusakan yang dibuat fasilitas ini?”
+
+Sosok Berhelm mengaktifkan tombaknya.
+
+“Prioritas berubah. Korupsi rawa harus ditahan.”
+
+Mereka berlari keluar bersama.
+
+Latihan Nexus berakhir tanpa hasil yang diinginkan pihak mana pun.
+
+Namun informasi yang bocor jauh lebih berbahaya daripada kegagalan simulasi: Sang Arsitek kini memiliki salinan pola Ragnarok Pulse Kael.
