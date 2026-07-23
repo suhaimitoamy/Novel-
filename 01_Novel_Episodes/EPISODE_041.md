@@ -1,27 +1,51 @@
 # Episode 041 — Cakar dari Kehampaan
 
-Pertarungan sengit antara Kael dan Rowan terhenti seketika. Semua mata kini tertuju pada Gerbang Es yang retak di puncak gunung. Cakar raksasa, tampak terbuat dari campuran es hitam pekat dan bayangan yang menggeliat hidup, merobek keluar dari celah dimensional itu.
+Pertarungan Kael dan Rowan berhenti.
 
-yang menusuk) Sylvara mundur selangkah, ngeri. "Benda apa itu...!?" Pemindai di lengan Zireth berbunyi liar, menampilkan data yang kacau. "Energi Void masif... bercampur dengan sihir es primordial! Ini bukan Elemental Es biasa!"
+Cakar raksasa merobek keluar dari retakan Gerbang Es. Bentuknya tersusun dari es hitam dan bayangan yang terus bergerak, seolah benda itu hidup di antara dua wujud.
 
-Perlahan, sosok di balik cakar mengerikan itu mulai menampakkan diri: makhluk humanoid raksasa, menjulang setinggi puluhan meter. Tubuhnya tampak terbentuk dari pusaran es hitam legam, bayangan pekat yang terus bergerak, dan di intinya, berdenyut sebuah cahaya ungu redup yang menyakitkan mata untuk dilihat. Makhluk itu tidak memiliki wajah, hanya kekosongan gelap di tempat seharusnya ada mata dan mulut.
+Sylvara mundur. “Apa itu?”
 
-Kael merasakan tekanan luar biasa dari makhluk itu, hawa dinginnya menembus perisai api pelindungnya. Fragmen di dadanya bereaksi liar, bukan resonansi seperti biasa, tapi seperti alarm bahaya yang meraung di jiwanya. "Tekanan energi ini... jauh lebih kuat dari Penjaga Kawah..."
+Pemindai Zireth dipenuhi data kacau. “Energi Void dalam jumlah besar bercampur dengan sihir es primordial. Itu bukan Elemental.”
 
-Rowan menatap makhluk yang baru muncul itu. Senyum dinginnya sedikit memudar, digantikan ekspresi terkejut dan... sedikit kecewa? "Ini... bukan seperti yang dijanjikan Arsitek... Dia keluar terlalu cepat... bentuknya belum sempurna."
+Sosok di balik cakar mulai keluar.
 
-Makhluk Gerbang Es itu mengeluarkan suara, bukan dari mulut, tapi seolah berasal dari udara di sekitarnya – dengungan rendah yang dalam dan membuat bulu kuduk berdiri.
+Tubuh humanoid raksasa menjulang puluhan meter di atas puncak. Pusaran es hitam dan bayangan membentuk tubuhnya. Cahaya ungu berdenyut di dada, menyakitkan mata setiap kali memancar. Di tempat wajah seharusnya berada, hanya ada kekosongan.
 
-« ...Lapar... Dingin... Kosong... » Makhluk itu mengayunkan cakarnya yang lain keluar dari gerbang. Seketika, suhu udara di sekitar Puncak Beku turun drastis. Badai salju instan terbentuk, membutakan pandangan dengan cepat.
+Tekanan energinya menembus perisai api Kael. Fragmen di dadanya bereaksi seperti alarm yang meraung di dalam jiwa.
 
-Badai salju tiba-tiba. Dagna, prajurit Dwarf yang masih terikat di puncak, berteriak putus asa. "Ini akhir dunia! Nyanyian Kehampaan telah datang!" Kael menoleh pada Rowan. "Nyanyian Kehampaan!? Jadi itu makhluk yang disegel di sini!?"
+“Kekuatannya jauh melampaui Penjaga Kawah.”
 
-Rowan mengabaikan Kael, tampak berbicara pada dirinya sendiri atau pada Arsitek yang tak terlihat. "Terlalu dini... segelnya hanya retak, belum hancur total... Kenapa dia bisa keluar sebagian!?" Makhluk Gerbang Es mengaum lagi dengan dengungan rendahnya. Gelombang energi Void dingin yang kasat mata menyebar darinya, membuat para prajurit Dwarf yang tadi pingsan mengerang kesakitan saat energi kehidupan mereka seolah tersedot habis.
+Rowan memandangi makhluk itu. Senyumnya memudar.
 
-Energi Void menyebar.
+“Ini bukan bentuk yang dijanjikan Arsitek. Ia keluar terlalu cepat.”
 
-"Dia menyerap energi kehidupan di sekitarnya!" seru Zireth. "Kita harus menghentikannya
+Makhluk tersebut bersuara tanpa mulut. Dengungannya datang dari udara dan batu di sekeliling mereka.
 
-atau Puncak Beku ini akan jadi gurun es tanpa nyawa!"
+*Lapar. Dingin. Kosong.*
 
-Makhluk Gerbang Es berdiri menjulang di tengah badai salju Void yang baru saja diciptakannya, cakarnya yang mengerikan terulur. Kael dan Rowan saling pandang sesaat, menyadari pertarungan pribadi mereka harus menunggu demi menghadapi ancaman yang jauh lebih besar.
+Cakar kedua menembus gerbang.
+
+Suhu Puncak Beku jatuh dalam sekejap. Badai salju terbentuk di sekitar tubuh raksasa, menelan pemandangan dengan pusaran putih dan hitam.
+
+Dagna masih terikat di dekat gerbang. “Nyanyian Kehampaan telah datang!”
+
+Kael menoleh kepada Rowan. “Jadi itu makhluk yang kalian coba bebaskan?”
+
+Rowan tidak menjawab. Dia menatap gerbang seolah sedang berbicara kepada seseorang yang tidak terlihat.
+
+“Segelnya baru retak. Kenapa ia dapat keluar sejauh ini?”
+
+Nyanyian Kehampaan mengaum.
+
+Gelombang dingin Void menyebar dari tubuhnya. Prajurit-prajurit Dwarf yang tergeletak di dataran tinggi mulai mengerang. Cahaya tipis keluar dari tubuh mereka dan tersedot menuju inti ungu makhluk tersebut.
+
+“Ia menyerap energi kehidupan,” kata Zireth. “Kalau dibiarkan, seluruh Puncak Beku akan menjadi tanah mati.”
+
+Cakar makhluk itu terulur lebih jauh. Badai di sekitarnya semakin kuat.
+
+Kael dan Rowan saling memandang.
+
+Kebencian di antara mereka belum hilang. Namun ancaman di depan tidak membedakan kawan dan musuh.
+
+Untuk bertahan hidup, pertarungan mereka harus ditunda.
