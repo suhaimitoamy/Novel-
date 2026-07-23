@@ -1,45 +1,65 @@
 # Episode 034 — Reruntuhan Kuno di bawah Es
 
-Kelompok Kael akhirnya berjalan keluar dari ujung sistem gua es, kembali ke jalur pendakian Puncak Beku yang terbuka namun sunyi. Borin dan Dagna berhenti di mulut gua.
+Kelompok Kael keluar dari ujung gua dan kembali ke jalur terbuka Puncak Beku.
 
-"Sampai di sini tugas kami, bocah Elf dan kawan-kawan," kata Borin dengan nada berat.
+Borin dan Dagna berhenti di mulut gua.
 
-"Jalan di depan sana tidak terpetakan dan tidak ada dalam catatan patroli kami."
+“Tugas kami sampai di sini,” kata Borin. “Jalan di depan tidak tercatat dalam peta patroli.”
 
-"Hati-hati," tambah Dagna. "Medannya curam dan badai salju bisa datang kapan saja tanpa peringatan. Jangan pernah percaya pada pijakan es di bawah kakimu."
+Dagna menatap lereng bersalju. “Medannya curam dan badai datang tanpa peringatan. Jangan percaya pada pijakan es.”
 
-"Terima kasih atas bantuannya," ucap Kael tulus. Kedua Dwarf itu mengangguk singkat, memberi hormat ala Dwarf, lalu berbalik dan berjalan kembali ke arah Kragmar, menghilang di tikungan gua.
+“Terima kasih,” ujar Kael.
 
-Kini Kael, Sylvara, dan Zireth benar-benar sendirian, melanjutkan pendakian yang terasa semakin terjal dan menusuk dingin. Zireth terus memeriksa pemindai di lengannya. "Jejak sepatu bot itu mengarah lurus ke atas.
+Kedua Dwarf memberi hormat singkat, lalu kembali menuju Kragmar hingga menghilang di tikungan.
 
-Tujuannya... tonjolan batu besar yang aneh di lereng sana."
+Kael, Sylvara, dan Zireth melanjutkan pendakian sendirian.
 
-"Apakah ada tempat berlindung di sana?" tanya Sylvara, menarik jubahnya lebih erat.
+Jejak sepatu bot misterius masih terlihat pada salju yang membeku.
 
-"Pemindai mendeteksi adanya struktur kosong di balik lapisan es tebal di sekitar tonjolan batu itu," jawab Zireth. "Kemungkinan besar reruntuhan kuno." Mereka mendaki dengan susah payah selama beberapa jam berikutnya. Udara terasa semakin tipis dan dinginnya seolah bisa membekukan napas di paru-paru.
+“Jejaknya menuju tonjolan batu di lereng,” kata Zireth sambil membaca pemindai.
 
-Akhirnya, mereka mencapai tonjolan batu yang ditunjuk Zireth. Ternyata itu adalah semacam gerbang batu kuno yang megah, namun kini setengah terkubur oleh es dan salju tebal. Arsitekturnya sangat berbeda, bukan gaya ukir Dwarf yang kokoh, bukan pula gaya melengkung Elf yang elegan. Ini sesuatu yang lebih tua, lebih... asing.
+“Ada tempat berlindung?” tanya Sylvara.
 
-Kael menyentuh ukiran aneh dan halus di permukaan gerbang itu. "Tempat apa ini sebenarnya?"
+“Ruang kosong terdeteksi di balik lapisan es. Kemungkinan reruntuhan.”
 
-"Kelihatannya sangat tua..." gumam Sylvara. "Mungkin dari era sebelum The Sundering?"
+Mereka mendaki selama beberapa jam. Udara semakin tipis, dan setiap tarikan napas terasa membeku di dada.
 
-"Atau bahkan lebih tua lagi," tambah Zireth. "Energi residual di sini... sangat stabil tapi terasa sangat kuno." Dia menemukan celah sempit di antara timbunan es dan batu gerbang. "Ada jalan masuk di sini." Mereka merunduk dan masuk melalui celah itu, menemukan diri mereka berada di dalam sebuah ruangan besar yang terbuat dari batu hitam mengkilap yang aneh. Sebagian besar ruangan tertutup oleh es tebal yang membeku, namun bagian tengahnya relatif bersih dari salju.
+Tonjolan batu itu ternyata bagian atas gerbang kuno yang hampir seluruhnya terkubur salju. Arsitekturnya tidak menyerupai bangunan Dwarf maupun Elf. Bentuknya lebih tua dan asing.
 
-Di tengah ruangan, berdiri pilar-pilar batu hitam berukir rumit dengan pola geometris yang tidak mereka kenali, dan sebuah altar rendah dari bahan yang sama. Udara di dalam terasa sunyi senyap, namun seolah dipenuhi oleh bisikan-bisikan yang tertahan ribuan tahun.
+Kael menyentuh ukiran halus pada permukaannya. “Siapa yang membangun tempat ini?”
 
-"Reruntuhan ini... terasa seperti tempat ibadah kuno," bisik Sylvara. Kael melihat jejak sepatu bot yang sama di lapisan debu tipis di lantai. "Dia sudah ada di sini." Perhatian Kael tertuju pada altar. Di atasnya, tergeletak sebuah buku tua bersampul kulit aneh berwarna gelap, tampak tidak terpengaruh oleh dingin maupun waktu yang telah berlalu.
+“Mungkin sebelum The Sundering,” kata Sylvara.
 
-"Hati-hati, Kael," peringat Zireth. "Bisa jadi itu jebakan."
+“Atau jauh lebih tua,” jawab Zireth. “Energi yang tertinggal sangat stabil.”
 
-Kael mendekat dengan hati-hati. Dia mengulurkan tangannya, ragu sejenak, lalu memberanikan diri membuka buku itu. Halaman-halamannya tampak kosong pada awalnya. Namun, saat ujung jarinya tanpa sengaja menyentuh permukaan halaman yang dingin itu...
+Dia menemukan celah di antara gerbang dan es. Mereka merunduk masuk.
 
-rune-rune bercahaya biru redup mulai muncul, membentuk tulisan-tulisan rumit dalam bahasa yang sangat kuno, bahasa yang belum pernah mereka lihat sebelumnya. Rune kuno muncul.
+Di baliknya terdapat ruangan besar dari batu hitam mengilap. Es menutupi sebagian dinding, tetapi area tengah tetap bersih.
 
-"Bahasa apa itu?" tanya Sylvara heran.
+Pilar-pilar geometris mengelilingi altar rendah. Keheningan di dalam ruangan terasa berat, seolah ribuan tahun bisikan terperangkap di balik batu.
 
-"Bukan bahasa yang kukenal," sahut Zireth. "Ini terlalu tua..."
+“Tempat ibadah?” tanya Sylvara.
 
-Kael menatap rune-rune itu. Dia tidak bisa membacanya, tapi anehnya, dia merasakan koneksi. Fragmen di dadanya beresonansi pelan dengan cahaya rune itu. "Aku... aku bisa merasakannya..." gumamnya. "Bukan membacanya, tapi... memahaminya." Matanya terpaku pada rune yang terus bersinar. "Ini... sebuah catatan... tentang Gerbang Es."
+Kael melihat jejak sepatu bot pada debu tipis. “Dia sudah datang ke sini.”
 
-Di hadapannya, rahasia kuno mulai terbuka, ditulis dalam bahasa yang terlupakan, menunggu untuk dipahami oleh sang Pewaris.
+Di atas altar tergeletak buku tua bersampul kulit gelap. Benda itu tidak rusak oleh dingin maupun waktu.
+
+“Hati-hati,” kata Zireth. “Bisa jadi jebakan.”
+
+Kael mendekat dan membuka sampulnya.
+
+Halaman-halaman pertama kosong. Ketika ujung jarinya menyentuh kertas, rune biru muncul satu demi satu, menyusun baris dalam bahasa yang tidak mereka kenal.
+
+Sylvara mendekat. “Bahasa apa itu?”
+
+“Bukan sesuatu dalam arsipku,” jawab Zireth. “Terlalu tua.”
+
+Kael tidak dapat membacanya, tetapi Fragmen di dadanya beresonansi dengan cahaya rune. Makna dari simbol-simbol itu perlahan terbentuk dalam pikirannya.
+
+“Aku tidak membaca kata-katanya,” gumam Kael. “Aku merasakan artinya.”
+
+Tatapannya mengikuti baris-baris yang terus menyala.
+
+“Ini catatan tentang Gerbang Es.”
+
+Di tengah reruntuhan yang membeku, sebuah rahasia dari masa sebelum sejarah mulai membuka dirinya kepada Kael.
