@@ -1,43 +1,79 @@
 # Episode 036 — Penyergapan dalam Keheningan
 
-Pertarungan sengit berkecamuk di dalam reruntuhan es kuno. Kael, Sylvara, dan Zireth melawan sosok-sosok berjubah hitam bertopeng perak yang bergerak dengan kecepatan dan koordinasi mengerikan.
+Pertarungan memenuhi reruntuhan es dengan benturan logam dan ledakan energi.
 
-"Siapa yang mengendalikan kalian!?" teriak Kael sambil menangkis serangan belati energi
+Sosok-sosok berjubah hitam bergerak dalam formasi sempurna. Tidak ada yang ragu, mundur, atau menunjukkan rasa sakit meski panah Sylvara dan serangan Zireth mengenai tubuh mereka.
 
-gelap yang lintasannya tak terduga.
+“Siapa yang mengendalikan kalian?” Kael menangkis belati energi yang menyapu lehernya.
 
-"Kami melayani Kehampaan Abadi," jawab pemimpin sosok berjubah itu, suaranya tetap datar dan tanpa emosi, meskipun sedang bertarung. Gerakan mereka tidak wajar, terlalu presisi, tanpa rasa takut atau ragu, seolah tidak merasakan sakit saat serangan Sylvara atau Zireth berhasil mengenai mereka.
+“Kami melayani Kehampaan Abadi,” jawab pemimpin mereka. Suaranya tetap datar, seolah tubuh yang sedang bertarung tidak memiliki hubungan dengannya.
 
-"Mereka seperti tidak punya kelemahan!" seru Sylvara frustrasi, bersembunyi di balik pilar
+Sylvara berlindung di balik pilar untuk memasang panah baru. “Mereka tidak punya kelemahan.”
 
-untuk mengisi ulang panah rune-nya. Zireth terus menganalisis dengan pemindainya sambil menghindar dari tebasan energi gelap. "Mereka bukan makhluk hidup, tapi juga bukan undead seperti ciptaan Necromancer. Lebih mirip... wadah kosong yang diisi paksa dengan energi Void. Mirip dengan The Hollowed yang membawa Fragmen keempat, tapi ini jauh lebih stabil dan terkendali."
+Zireth menghindari tebasan dan membaca data pada pemindainya. “Mereka bukan makhluk hidup, tapi juga bukan undead. Tubuh-tubuh ini telah dikosongkan lalu diisi energi Void.”
 
-Mendengar penjelasan Zireth, sebuah ide muncul di benak Kael. Wadah kosong... diisi energi Void... Dia teringat bagaimana Fragmen unik di dadanya terkadang bereaksi aneh atau bahkan menolak energi Void murni. Mungkinkah...
+“Seperti The Hollowed?” tanya Kael.
 
-Kael berhenti menyerang secara fisik. Dia mundur sedikit, mengambil posisi bertahan, lalu fokus pada Fragmen di dadanya. Dia membiarkan energi merah (api) dan biru (es/cahaya) miliknya beresonansi keluar perlahan, bukan sebagai serangan langsung, tapi sebagai gelombang energi halus yang menyebar.
+“Mirip, tetapi jauh lebih stabil. Ada sesuatu yang mengirim perintah langsung kepada mereka.”
 
-"Kael! Apa yang kau lakukan!?" tanya Sylvara heran.
+Kael memandangi gerakan para penyerang. Setiap langkah datang pada saat yang sama. Setiap serangan mengikuti irama yang tidak berubah.
 
-Energi Kael yang unik – perpaduan warisan Aelarion dan Zhorak dari garis keturunannya, mungkin? – mulai mengganggu aliran energi Void yang mengendalikan sosok-sosok berjubah itu. Interferensi energi halus. Gerakan para sosok berjubah mulai tersendat. Kepala mereka menoleh dengan kaku dan aneh.
+Jika mereka bergerak karena satu sinyal, dia tidak perlu menghancurkan tubuhnya. Dia hanya perlu merusak hubungan yang mengendalikan mereka.
 
-"Energi... kacau..." terdengar bisikan statik dari balik topeng salah satu dari mereka.
+Kael mundur dan menurunkan Zerath's Fang.
 
-"Perintah... hilang..."
+“Apa yang kau lakukan?” seru Sylvara.
 
-Zireth melihat efeknya melalui pemindainya. "Dia mengganggu frekuensi sinyal kendali mereka! Teruskan, Kael! Tingkatkan resonansimu!" Kael meningkatkan aliran resonansi energinya. Sosok-sosok berjubah mulai kejang-kejang tak terkendali. Asap hitam tipis mulai keluar dari celah topeng perak mereka.
+Dia memusatkan perhatian pada Fragmen di dadanya. Api merah dan energi biru tidak dibentuk menjadi ledakan. Kael menyebarkannya sebagai getaran tipis yang merambat melalui lantai, pilar, dan udara.
 
-Pemimpin sosok berjubah menatap Kael dengan mata kosongnya yang kini memancarkan sedikit kepanikan. "Tidak... bisa... lepas..." Dengan satu teriakan terakhir yang terdengar seperti statik radio rusak, semua sosok berjubah itu jatuh lemas ke lantai, tak bergerak sama sekali. Asap hitam menguar dari tubuh mereka lalu lenyap.
+Resonansi itu menyentuh para penyerang.
 
-Kael terengah-engah, energi terasa terkuras oleh upaya resonansi tadi. "Sudah... berakhir?" Sylvara mendekati salah satu sosok yang jatuh, dengan hati-hati membuka topeng peraknya. Wajah di baliknya... benar-benar kosong. Tidak ada ciri, tidak ada bekas luka, tidak ada identitas. Hanya kulit pucat yang halus.
+Gerakan mereka tersendat.
 
-Zireth memeriksa salah satu senjata energi gelap yang terjatuh. "Senjata ini... teknologinya sangat rumit. Bukan buatan Akademi Vorth Aereth atau akademi manapun yang kukenal di Zerath. Ini... seperti teknologi Void?"
+Salah satu sosok mengangkat belati, tetapi lengannya berhenti di tengah jalan. Kepalanya menoleh dengan sentakan kaku.
 
-"Jadi benar ada pihak lain yang terlibat selain Rowan..." gumam Kael. "'Kehampaan Abadi'...
+“Energi... kacau...”
 
-Mungkinkah itu nama lain untuk Arsitek?" Dia mengambil kembali buku rune kuno yang sempat terjatuh saat pertarungan tadi. "Kita harus cepat ke Puncak Beku." Tiba-tiba, Zireth melihat sesuatu yang berkilau samar di balik jubah sosok berjubah pemimpin yang tergeletak paling dekat dengannya. "Tunggu sebentar. Ini..."
+“Perintah... hilang...”
 
-Dia meraih dan mengambil sebuah liontin kecil dari leher sosok itu. Liontin itu terbuat dari logam hitam kusam, berbentuk spiral yang retak atau sengaja dibuat patah di ujungnya. Sylvara melihat liontin itu dan terkesiap pelan, wajahnya menegang. "Bentuk itu... aku seperti pernah melihatnya... di..." Dia berhenti, tampak ragu dan sedikit takut.
+Pemindai Zireth menyala. “Kau mengganggu frekuensi kendali mereka. Pertahankan resonansinya.”
 
-"Di mana, Sylvara?" tanya Kael lembut.
+Kael memperkuat getaran.
 
-Sylvara menatap Kael dengan tatapan yang sulit diartikan, campuran antara rasa malu dan ketakutan. "...Di antara barang-barang peninggalan keluargaku. Peninggalan kuno dari keluarga Vorthax." Keterkejutan dan kecurigaan baru menggantung di udara dingin reruntuhan itu, terpancar dari ekspresi Kael dan Zireth saat menatap Sylvara dan liontin misterius di tangan Zireth.
+Tubuh-tubuh berjubah itu mulai kejang. Asap hitam merembes dari celah topeng perak, seolah energi di dalamnya dipaksa keluar.
+
+Pemimpin mereka berusaha melangkah maju.
+
+“Tidak... bisa... lepas...”
+
+Suara terakhirnya pecah seperti gangguan statik. Satu demi satu, seluruh penyerang jatuh ke lantai. Asap hitam terlepas dari tubuh mereka dan lenyap di udara.
+
+Kael menghentikan resonansi. Lututnya hampir menyerah karena energi yang terkuras.
+
+“Sudah selesai?”
+
+Sylvara mendekati salah satu tubuh dan membuka topengnya.
+
+Wajah di baliknya tidak memiliki mata, hidung, maupun mulut. Hanya kulit pucat yang rata.
+
+“Benar-benar wadah kosong,” gumamnya.
+
+Zireth mengambil salah satu senjata yang terjatuh. Rune gelap bergerak di sepanjang permukaannya dalam pola yang belum pernah dia lihat.
+
+“Teknologi ini bukan buatan Vorth Aereth atau akademi mana pun di Zerath.”
+
+“Berarti ada pihak lain selain Rowan,” kata Kael. “Kehampaan Abadi mungkin berkaitan dengan Sang Arsitek.”
+
+Saat Kael mengambil kembali buku kuno, Zireth melihat sesuatu berkilau di balik jubah pemimpin mereka.
+
+Sebuah liontin logam hitam tergantung di lehernya. Bentuknya spiral yang retak, dengan ujung sengaja dipatahkan.
+
+Wajah Sylvara menegang ketika melihatnya.
+
+“Aku pernah melihat lambang itu.”
+
+“Di mana?” tanya Kael.
+
+Sylvara menatap liontin tersebut dengan rasa takut yang berusaha dia sembunyikan.
+
+“Di antara peninggalan keluargaku. Itu lambang kuno keluarga Vorthax.”
