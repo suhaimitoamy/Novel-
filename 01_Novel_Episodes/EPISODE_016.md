@@ -1,37 +1,55 @@
-# Episode 016 — Di Dasar Kawat
+# Episode 016 — Di Dasar Kawah
 
-Kael, Sylvara, dan Zireth dengan hati-hati menuruni dinding kawah besar yang terbentuk akibat jatuhnya Fragmen kelima. Dasar kawah dipenuhi oleh formasi kristal pasir berwarna ungu yang aneh dan memancarkan energi yang terasa kuno namun tenang.
+Kael, Sylvara, dan Zireth menuruni dinding kawah peninggalan jatuhnya Fragmen kelima secara berhati-hati.
 
-"Energi di sini... tidak terasa agresif seperti yang kupikirkan," kata Kael sambil merasakan Fragmen di dadanya beresonansi pelan dengan lingkungan sekitar.
+Bebatuan di bawah kaki mereka telah berubah wujud menjadi formasi kristal pasir ungu. Tempat itu tidak terasa seperti wilayah bekas ledakan bintang. Udara terasa purba, berat, namun anehnya menenangkan.
 
-"Ya, aneh sekali," tambah Sylvara. "Biasanya area jatuhnya Fragmen liar akan dipenuhi energi kacau dan berbahaya." Zireth memeriksa pemindainya. "Konsentrasi energi sangat tinggi di pusat kawah, tapi... polanya sangat stabil dan terstruktur. Hampir seperti... dijaga atau diatur secara sengaja."
+Kael menyentuh dadanya. Fragmen di balik kulitnya beresonansi pelan, merespons ritme lingkungan di sekitar kawah.
 
-Mereka mengikuti jejak sepatu bot misterius itu yang mengarah lurus ke pusat kawah. Di sana, mereka melihat sumber cahaya ungu yang mereka lihat dari atas: sebuah Fragmen berukuran cukup besar, melayang beberapa senti di atas sebuah platform batu kristal alami.
+"Energinya tidak seagresif yang kubayangkan," gumam Kael pelan.
 
-Bentuk Fragmen ini berbeda dari yang lain – lebih mirip geode kristal raksasa yang retak dan memancarkan cahaya ungu lembut dari celah-celahnya.
+Sylvara memperhatikan sekeliling dengan waspada. "Ini sangat aneh. Seharusnya wilayah bekas jatuhnya Fragmen dipenuhi radiasi liar yang mematikan. Tempat ini terlalu sunyi."
 
-"Jadi itu Fragmen kelima," bisik Sylvara kagum. Tapi mereka tidak sendirian. Berdiri diam di depan platform Fragmen itu adalah sesosok figur humanoid tinggi yang seluruh tubuhnya tampak terbuat dari energi pasir kristal ungu yang sama dengan lingkungan kawah. Sosok itu tidak memiliki wajah, hanya kontur samar berbentuk manusia, dan auranya terasa sangat tua dan kuat.
+Zireth mengetuk layar pemindai di lengannya. Cahaya hijau memantul di wajah mekanisnya yang serius.
 
-"Siapa... atau apa itu?" tanya Kael waspada.
+"Konsentrasi energi di pusat kawah sangat mematikan," kata Zireth. "Tetapi polanya terstruktur rapi. Ini bukan fenomena alam. Seolah-olah kekuatan di sini dijaga atau diatur oleh sebuah sistem yang sengaja dibentuk."
 
-"Tidak terdeteksi sebagai makhluk hidup organik," lapor Zireth. "Tapi pembacaan energinya sangat tinggi! Sepertinya... semacam Penjaga?"
+Jejak kaki bot misterius yang mereka ikuti berakhir tepat di pusat kawah. Di sana, di atas altar batu kristal yang terbentuk secara alami, sebuah Fragmen melayang tanpa gravitasi.
 
-Sosok energi itu perlahan menoleh ke arah mereka. Sebuah suara yang terasa seperti Gema pasir yang tertiup angin terdengar langsung di benak mereka.
+Bentuk Fragmen kelima ini menyerupai geode raksasa yang retak, memancarkan pendar ungu lembut dari celah-celahnya. Pendaran itu jauh lebih stabil dibandingkan desakan energi liar yang menyiksa dada Kael.
 
-« Yang Mencari... Yang Membawa Luka... Yang Mengamati... Kalian akhirnya datang ke tempat peristirahatan ini. »
+Mereka menahan napas. "Jadi itu Fragmen kelima," bisik Sylvara.
 
-"Kau penjaga Fragmen ini?" tanya Kael.
+Di depan altar batu itu berdiri sesosok bayangan. Tubuhnya tidak terbuat dari daging, melainkan dari butiran kristal pasir ungu yang menyatu, membentuk siluet humanoid tinggi tanpa wajah. Udara di sekitar entitas tersebut berdenyut lambat seirama dengan Fragmen.
 
-« Aku adalah Gema dari Kawah ini... Penjaga Keseimbangan yang ditinggalkan di sini oleh Sang Bintang Jatuh itu sendiri. »
+"Siapa kau?" Kael menyipitkan mata. Tangannya bergerak waspada menuju hulu pedangnya.
 
-"Bintang Jatuh?" ulang Sylvara. "Maksudmu Fragmen kelima?"
+"Bukan organisme hidup," lapor Zireth cepat. "Pola energinya luar biasa tinggi. Sepertinya ini semacam sistem pengamanan purba... atau seorang Penjaga?"
 
-« Dia bukan sekadar serpihan kekuatan biasa seperti saudara-saudaranya yang lain, » jelas Sang Penjaga Kawah. « Dia adalah Hati dari dunia yang hilang… sebuah penyeimbang… yang jatuh ke Zerath untuk menyerap dan menetralisir energi kacau yang merusak dunia baru ini setelah Perang Primordial. Kawah ini… adalah tempatnya beristirahat dan bekerja dalam diam selama ribuan tahun. » Kael terkejut mendengar penjelasan itu. "Jadi… Fragmen ini… tugasnya menyembuhkan Zerath?"
+Sosok pasir itu perlahan menoleh ke arah mereka. Tidak ada mulut yang bergerak, tetapi sebuah suara berat menggema di dalam pikiran Kael, mengabaikan jarak dan udara seakan ditiupkan langsung oleh angin kawah.
 
-« Tugasnya adalah menjaga Keseimbangan… dengan menyerap energi berlebih, baik itu Cahaya yang terlalu menyilaukan, Api yang terlalu membakar, maupun Kegelapan yang terlalu menelan. » Sang Penjaga menatap Kael lekat. « Sama sepertimu, Pewaris Luka…
+*Yang Mencari... Yang Membawa Luka... Yang Mengamati... Kalian akhirnya tiba di tempat peristirahatan ini.*
 
-yang membawa terlalu banyak energi bertolak belakang di dalam satu jiwa. »
+"Kau penjaga Fragmen ini?" pancing Kael.
 
-"Apa kau akan menghalangi kami?" tanya Zireth langsung.
+*Aku adalah Gema.* Penjaga Kawah itu menjawab pelan. *Penjaga Keseimbangan yang ditinggalkan oleh Sang Bintang Jatuh.*
 
-« Tugasku adalah menjaga Keseimbangan. Aku tidak akan membiarkan siapapun mengambil Hati Bintang Jatuh ini dengan paksa… atau mengganggu pekerjaannya yang penting bagi Zerath. » Penjaga Kawah itu mengangkat tangannya yang terbuat dari pasir kristal. « Tapi aku juga merasakan… potensi Keseimbangan yang sama dalam dirimu, Kael Drayven. Mungkin… kau bisa memahaminya. » Penjaga Kawah itu tidak menyerang, tapi juga jelas tidak akan membiarkan mereka mendekati Fragmen kelima begitu saja. Kael kini dihadapkan pada penjaga kuno yang tujuannya mungkin sejalan dengan Jalan Keempat yang dia cari.
+Sylvara menurunkan sedikit senjatanya. "Bintang Jatuh? Maksudmu Fragmen itu?"
+
+*Ia bukan sekadar serpihan kekuatan liar seperti saudara-saudaranya,* balas Gema. *Ia adalah hati dari dunia yang telah lama hilang. Sebuah penyeimbang yang jatuh ke Zerath untuk menyerap sisa-sisa energi pembantaian Perang Primordial yang masih meracuni dunia ini. Di kawah inilah tempatnya bekerja dalam diam selama ribuan tahun.*
+
+Kael kembali memandang Fragmen yang melayang di atas altar. Cahaya ungunya berdenyut tenang, jauh berbeda dari kekuatan liar yang membakar isi dadanya.
+
+"Selama ini ia bertugas menyembuhkan luka Zerath?" tanya Kael memastikan.
+
+*Tugasnya menjaga keseimbangan dengan menyerap energi berlebih. Baik itu Cahaya yang terlalu menyilaukan, Api yang terlalu membakar, maupun Kegelapan yang terlalu menelan.* Sosok berwujud pasir itu menatap Kael lekat. *Sama sepertimu, Pewaris Luka. Kau membawa terlalu banyak energi yang bertolak belakang di dalam satu jiwa.*
+
+"Apa kau akan menghalangi kami jika kami membawanya?" Zireth memotong langsung.
+
+*Tugasku menjaga Keseimbangan.* Gema mengangkat lengannya yang berkilauan. *Aku tidak akan membiarkan siapa pun mengambil Hati Bintang Jatuh ini dengan paksa atau mengganggu pekerjaannya.*
+
+Peringatan itu jelas, tetapi sosok tersebut tidak menaikkan postur menyerang.
+
+*Namun aku juga merasakan potensi keseimbangan yang sama di dalam dirimu, Kael Drayven,* sambung Gema pelan. *Mungkin... kau bisa memahaminya.*
+
+Kael menatap penjaga kuno di hadapannya. Pertarungan tidak selalu menjadi jawaban mutlak. Di kawah sunyi ini, Kael menyadari bahwa tujuan entitas purba tersebut sejalan dengan jalan keempat yang selama ini dia cari.

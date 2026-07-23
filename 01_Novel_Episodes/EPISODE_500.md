@@ -1,21 +1,25 @@
 # Episode 500 — Denyut Sebelum Pemurnian
 
-Malam menutup Altar Primordial, tetapi dua belas Fragmen membuat ruang itu tak pernah benar-benar gelap. Kael berdiri di pusat peta dengan kedua tangan dibalut dan satu mata masih merah oleh pembuluh yang pecah.
+Malam menyelimuti Altar Primordial. Namun, pendaran dua belas Fragmen memastikan ruang batu raksasa itu tidak pernah benar-benar gelap.
 
-Zireth telah memperkuat setiap wadah stasis. Sylvara memindahkan salinan ingatan awal ke dalam Gema Pengetahuan. Di luar pintu, para saksi dari dua belas ras menunggu tanpa mengetahui seberapa dekat dunia mereka pada keruntuhan.
+Kael berdiri di pusat altar. Kedua tangannya dibalut perban yang merembes. Salah satu matanya masih merah oleh pembuluh yang pecah.
 
-Kael meninjau peta frekuensi sekali lagi. Setiap inti terhubung pada wilayah, sejarah, dan hukum alam yang berbeda. Pemurnian hanya mungkin bila ia menghormati ketiganya sekaligus.
+Zireth telah mengunci setiap wadah stasis. Sylvara memindahkan salinan ingatan awal ke dalam Gema Pengetahuan. Di luar pintu altar, para saksi dari dua belas ras menunggu tanpa menyadari seberapa dekat dunia mereka di ambang keruntuhan.
 
-“Kita bisa menunda,” kata Sylvara. “Tak ada dewa yang memaksa kita menyelesaikannya malam ini.” Kael memandang bayangan mereka di lantai. Dulu ia akan menganggap penundaan sebagai kelemahan. Kini ia tahu kesabaran dapat menjadi bentuk keberanian.
+Kael meninjau ulang peta frekuensi. Setiap inti Fragmen terikat langsung pada wilayah, sejarah, dan hukum alam yang berbeda. Pemurnian hanya mungkin terjadi bila Kael menyatukan ketiganya sekaligus.
 
-Namun noda para dewa terus bergerak di dalam Fragmen. Jika dibiarkan, simpul-simpul itu akan membangun Sistem baru dari sisa doa. Dunia yang baru bebas dapat terikat lagi sebelum sempat belajar berjalan.
+"Kita bisa menundanya," usul Sylvara. "Tidak ada dewa yang memaksa kita menyelesaikannya malam ini."
 
-Kael memilih memulai pada fajar berikutnya, satu Fragmen pada satu waktu. Bukan karena yakin akan menang, melainkan karena mereka akhirnya memiliki cara untuk gagal tanpa langsung memusnahkan semuanya.
+Kael menatap bayangan mereka di lantai. Dulu ia akan menganggap penundaan sebagai kelemahan. Kini ia tahu kesabaran dapat menjadi bentuk keberanian.
 
-Ia menempelkan telapak tangan pada lingkar altar. Ragnarok Pulse menyebar lembut, menanyakan kesiapan dua belas inti alih-alih memerintahnya.
+Namun, noda para dewa terus bergolak di dalam Fragmen. Jika dibiarkan, sisa-sisa doa itu akan membangun Sistem baru. Dunia yang baru bebas bisa terikat kembali sebelum sempat belajar merangkak.
 
-Sebelas Fragmen menjawab dengan nada berbeda. Fragmen pertama tidak mengeluarkan suara. Sebaliknya, permukaannya terbuka seperti mata dan memperlihatkan ribuan pemilik yang tersimpan di dalam.
+Ia harus memulainya esok fajar. Bukan karena yakin akan menang, melainkan karena mereka akhirnya memiliki cara untuk gagal tanpa harus memusnahkan segalanya.
 
-Mereka mengucapkan nama masing-masing. Di balik paduan suara itu, Kael mendengar satu nada asing dari luar atmosfer—frekuensi yang sama dengan jejak ketiga belas pada peta.
+Kael menempelkan telapak tangannya pada lingkar altar. Ragnarok Pulse menyebar lembut, menanyakan kesiapan dua belas inti energi alih-alih memerintahnya.
 
-Kael mengangkat wajah ke langit-langit altar. Sesuatu di luar Zerath telah mendengar persiapan mereka. Fajar belum tiba, dan pemurnian pertama belum dimulai, tetapi dunia sudah menahan napas bersama dirinya.
+Sebelas Fragmen menjawab dengan nada berbeda. Fragmen pertama tidak bersuara. Sebaliknya, permukaannya terbuka seperti mata dan memperlihatkan ribuan bayangan pemilik yang tersimpan di dalamnya.
+
+Serentak, Fragmen itu membisikkan nama mereka. Di balik paduan suara mistis itu, Kael menangkap satu nada asing dari luar atmosfer—frekuensi yang beresonansi identik dengan Fragmen ketiga belas.
+
+Kael mendongak menatap langit-langit altar. Sesuatu di luar Zerath telah mendengar persiapan mereka. Fajar belum tiba, dan pemurnian pertama belum diucapkan, tetapi dunia sudah menahan napas bersama dirinya.

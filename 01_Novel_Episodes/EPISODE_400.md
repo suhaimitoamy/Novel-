@@ -1,27 +1,37 @@
 # Episode 400 — Denyut Para Terbuang
 
-Keheningan datang seperti tangan yang menutup tenggorokan di benteng gabungan para dewa. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Keheningan mencengkeram benteng gabungan para dewa layaknya tangan yang mencekik udara. Kael menghentikan langkahnya di pelataran utama.
 
-Semua jalan di benteng gabungan para dewa berakhir pada satu pusat. Di sanalah legiun cahaya, magma, dan bayangan menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat memecah kerja sama ketiga wujud primordial mustahil dilakukan.
+Retakan mikro pada tulang lengannya berdenyut, merespons Fragmen di dadanya. Ragnarok Pulse miliknya menangkap getaran yang mustahil terdengar. Di balik bau darah dan tekanan gravitasi, sebuah irama raksasa berusaha memaksa pasukan bergerak dalam satu tarikan napas dewa.
 
-“Kita mencapai pusat Aliansi Divinitas bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zevaron. Kael menatap Zevaron, lalu pada perlawanan Zevaron dari dalam penjara. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Semua jalan menuju takhta Aliansi Divinitas berpusat di hadapan mereka. Di sanalah barisan legiun cahaya, manusia magma, dan bayangan Umbral berbaris, membentuk pertahanan berlapis. Kael menyadari tidak akan ada serangan kedua. Mundur berarti membiarkan aliansi ketiga wujud primordial ini menjadi mustahil dipecah.
 
-Mereka bergerak serempak. Sekutunya menggunakan perlawanan Zevaron dari dalam penjara untuk memecah lapisan luar, sedangkan Kael menyusupkan ketidakselarasan fase tiga medan ilahi ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+"Kita menerobos pusat pertahanan mereka bersama," tegur Zevaron. "Jangan pernah berpikir untuk menahan semua serangannya sendiri hanya karena kau yang bisa merasakan frekuensinya."
 
-Kael tidak melawan semua lapisan Aliansi Divinitas. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Kael menoleh ke arah Zevaron. Ia mengangguk tipis. Kali ini, ia tidak akan lagi menempatkan teman-temannya di belakang punggungnya.
 
-Di pusat jaring Aliansi Divinitas itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Mereka menerjang maju serentak. Pasukan Zevaron membongkar barikade luar, memberi celah bagi Kael menyusupkan ketidakselarasan fase pada medan ilahi.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Di pusat Aliansi Divinitas, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zevaron tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Para dewa membalas dengan amarah berlapis. Setiap lapisan formasi pertahanan memancarkan irama berbeda. Kael merasa puluhan hukum alam menolak keberadaannya secara bersamaan.
 
-Legiun cahaya, magma, dan bayangan mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Alih-alih menghancurkan semuanya, Kael memilih satu denyut dasar dan menyelaraskan napasnya dengan denyut itu. Nyeri menyambar dari dada ke tengkuknya. Luka-luka sebelumnya seakan terbuka kembali, tetapi rasa sakit itu membantunya memetakan titik lemah formasi. Kini, Kael dapat melihat seluruh struktur musuh sebagai bentangan jaring cahaya.
 
-Tidak ada ledakan besar. Legiun cahaya, magma, dan bayangan retak dalam keheningan benteng gabungan para dewa. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zevaron menahannya sebelum kepalanya membentur tanah.
+Di inti Aliansi Divinitas, tertanam sebuah benang kendali utama. Kael merentangkan lengannya. Pulse merah memisahkan perisai fisik, Pulse biru membekukan energi yang tersisa, sementara Pulse violet mengurai pola ilahi yang merangkainya. Ketiga kekuatan ekstrem itu mengamuk, sampai Kael menekan ketiganya dengan fondasi Keseimbangan.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: mereka bersatu bukan demi Zerath, melainkan karena takut mati. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kekuatan absolut menawarkan jalan tercepat. Namun, Kael sudah sering menyaksikan akhir jalan tersebut. Di pusat benteng, Kael sengaja menahan kekuatannya. Ia membiarkan para sekutunya mengambil alih pertarungan fisik. Tombak cahaya Zevaron menembus pertahanan krusial.
 
-Kael memandangi sisa-sisa pusat kendali Aliansi Divinitas. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Jaringan musuh terguncang hebat, lalu satu per satu simpul mereka padam.
 
-“Apakah Aliansi Divinitas benar-benar berakhir?” tanya Zevaron. Kael mendengarkan gema terakhir sebelum menjawab, “Benturannya berakhir. Akibatnya baru dimulai.” Para Furyborn yang tersisa menjawab panggilan Kael.
+Terdesak, legiun melepaskan wujud penangkal terakhir. Ruang melengkung ke dalam, seluruh cahaya terserap. Dalam kebutaan itu, Kael hanya mendengar riuh teriakan rekan-rekannya. Ia menjadikan suara mereka sebagai arah, lalu menghantamkan satu letupan Pulse mematikan tepat pada frekuensi inti musuh.
 
-Kael meninggalkan medan Aliansi Divinitas tanpa menoleh. Pintu di depan belum memiliki nama, tetapi setidaknya arah langkahnya tidak ditentukan nubuat.
+Tidak ada ledakan dahsyat. Barisan legiun itu perlahan hancur menjadi debu dalam keheningan. Kendali dewa terputus, membiarkan jiwa para pasukan kembali pada wujud alaminya. Kael tersungkur, tetapi Zevaron cepat meraih bahunya.
+
+Kemenangan ini menyingkap kebenaran pahit. Ketiga wujud primordial bersatu bukan untuk menyelamatkan Zerath, melainkan sekadar bertahan hidup. Tidak ada yang bersorak. Kenyataan itu mengubah makna perjuangan mereka menjadi lebih suram.
+
+Kael berdiri tertatih memandangi sisa-sisa Aliansi Divinitas. Luka barunya menjadi saksi ia kembali memilih jalan tersulit demi membatasi kehancuran.
+
+"Apakah Aliansi Divinitas benar-benar berakhir?" tanya Zevaron.
+
+"Perang fisiknya berakhir. Tetapi akibat dari semua ini baru saja dimulai," jawab Kael datar. Para petarung Furyborn yang tersisa berkumpul.
+
+Kael berbalik meninggalkan medan reruntuhan tanpa menoleh. Pintu yang akan mereka hadapi selanjutnya belum memiliki nama, tetapi arah kakinya tidak lagi ditentukan oleh nubuat para dewa.

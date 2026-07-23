@@ -1,25 +1,39 @@
 # Episode 101 — Langit yang Retak
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di lembah industri Urdron. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Tanah mengeluarkan dengung rendah yang lebih terasa merayap di tulang daripada terdengar oleh telinga. Kael menghentikan langkahnya di tepian lembah industri Urdron.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menembus kota mesin sebelum gerbang dimensional terbuka penuh. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Bekas luka di bawah tulang selangkanya terasa sedingin ruang hampa. Di dalam dadanya, Ragnarok Pulse menangkap pola denyut yang tidak bising, namun memaksa ritmenya sendiri. Di balik segala bau karat, suhu beku, dan tekanan udara yang menyesakkan, ada satu irama asing yang berusaha membengkokkan hukum alam.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan panah cahaya Sylvara dan pemindai Zireth, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Tujuan mereka terdengar sederhana: menembus kota mesin kuno itu sebelum gerbang dimensional di atas sana terbuka penuh. Kenyataannya, setiap inci permukaan di hadapan Kael membawa residu pertarungan masa lalu.
 
-Kael memusatkan napas dan menggunakan resonansi mekanik pada rangka baja kota. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik automaton penambang yang dikendalikan Arsitek.
+Ia menempelkan dua jari ke atas tanah. Getaran kecil menjalar menuju kegelapan reruntuhan, lalu kembali dengan pantulan yang tidak selaras. Sesuatu di sana sudah mengetahui kedatangan mereka.
 
-Denyut Urdron yang Terkubur segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Jangan serang tempat ini dengan kekuatan penuh. Kita belum tahu kekuatan apa yang sedang ditahannya,” peringat Sylvara pelan.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di Urdron yang Terkubur, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael mengangguk. Mereka bertiga segera mengambil posisi formasi. Panah cahaya Sylvara sudah terpasang, sementara pemindai Zireth terus menyala. Posisi mereka cukup dekat untuk saling melindungi, namun cukup renggang agar satu serangan jebakan tidak menelan mereka sekaligus.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan panah cahaya Sylvara dan pemindai Zireth, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael mengatur napas, lalu mengalirkan resonansi mekanik ke rangka baja di bawah kota. Kali ini, dia tidak berniat meledakkannya. Getaran Pulse-nya menyebar setipis riak pada permukaan air, menyentuh sisa dinding, lantai batu, dan udara kotor. Pantulan dari getaran itu membawakan pemetaan tekanan kembali ke dalam tulangnya.
 
-Di balik penghalang Urdron yang Terkubur, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa lembah industri Urdron melupakan bentuk alaminya.
+Di antara pola alami material tersebut, Kael menemukan denyut asing yang patah-patah. Pola itu milik sekumpulan automaton penambang yang kini dikendalikan oleh kehendak Arsitek.
 
-“Kita sudah melewati pintu Urdron yang Terkubur, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Urdron yang terkubur merespons sentuhan Kael. Permukaan tanah di depan mereka terbelah seketika. Serpihan baja dan batu terangkat ke udara tanpa jatuh kembali. Ruang di antara mereka membengkok ganjil, seolah jarak telah dilipat paksa untuk menciptakan jebakan gravitasi.
 
-Suara pertama dari automaton penambang yang dikendalikan Arsitek datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Kael menarik bahu Sylvara mundur sepersekian detik sebelum tepi retakan itu menyapu tempat mereka berdiri.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Urdron yang Terkubur terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Menghancurkan penghalang itu adalah hal mudah. Pertanyaan yang lebih sulit adalah apa yang akan ikut hancur bersamanya. Di atas reruntuhan Urdron, Kael menahan naluri liarnya untuk merobek seluruh dimensi. Sebagai gantinya, ia menggeser fase Pulse di lengannya beberapa derajat—cukup untuk membuat jebakan ruang itu kehilangan sinkronisasi alaminya.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama automaton penambang yang dikendalikan Arsitek muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Urdron yang Terkubur baru saja dimulai.
+Sebuah celah aman terbuka. Lebarnya hanya muat untuk bahu manusia, dan itu pun hanya bertahan selama beberapa detik.
+
+Mereka menerobos celah itu secara bergantian. Bagian belakang dijaga oleh Sylvara dan Zireth, sementara Kael menerima tekanan energi terbesar di barisan depan. Rasa sakit merambat pelan dari telapak tangan hingga mencapai tulang bahunya, tetapi Kael tidak membiarkan ritmenya terpecah. Sekali saja frekuensi penahannya lepas, seluruh lorong dimensi itu bisa runtuh mengubur mereka.
+
+Di balik penghalang Urdron, mereka menemukan bekas luka yang mustahil terbentuk oleh alam. Garis-garis simetris yang terlalu presisi tergurat di dinding, tersusun bagaikan kalimat dalam bahasa mesin purba. Kael tidak dapat membaca artinya, tetapi Fragmen di dadanya mengenali kehendak dingin yang menyusun pola tersebut. Sesosok entitas pernah memaksa lembah industri Urdron untuk meninggalkan bentuk aslinya.
+
+“Kita sudah melewati pintu Urdron, tetapi rasanya seolah kita baru saja masuk ke dalam mulut monster,” bisik Sylvara waspada.
+
+Kael menoleh ke belakang. Jalur yang baru saja mereka lewati sudah tertutup rapat, menyisakan permukaan baja tebal tanpa sambungan sama sekali. Pilihan untuk mundur telah dihancurkan bahkan sebelum Kael sempat memikirkannya.
+
+Pergerakan pertama dari barisan automaton penambang datang bukan dalam bentuk raungan logam, melainkan dari perubahan drastis tekanan udara. Debu kotor berputar membentuk pusaran-pusaran kecil di sekeliling mereka. Kael mengangkat pedangnya, membiarkan cahaya merah dan violet menjalar liar di bawah kulit lengannya.
+
+Reruntuhan itu bergerak. Dari balik bayangan pilar patah, lampu-lampu observasi automaton mulai menyala satu per satu, mengurung jalan mereka.
+
+Kael merendahkan pusat gravitasinya dan mengencangkan cengkeraman pada hulu pedang. Perjalanan menembus Urdron yang terkubur baru saja dimulai.

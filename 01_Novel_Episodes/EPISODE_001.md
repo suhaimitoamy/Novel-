@@ -2,50 +2,72 @@
 
 ## Prolog
 
-Sebelum waktu ada seperti yang kita kenal, hanya ada Kekosongan yang tak terbatas. Dari kehampaan itu, lahirlah Tiga Wujud Pertama: Aelarion, sang Cahaya dan sumber sihir; Zhorak, perwujudan Bumi dan api inti; serta Malgorath, entitas Kegelapan dan bayangan.
+Sebelum waktu berjalan seperti yang kita kenal, hanya ada Kekosongan yang membentang tanpa batas. Dari kehampaan gelap itu, lahirlah Tiga Wujud Pertama: Aelarion sang Cahaya dan sumber segala sihir, Zhorak sang perwujudan Bumi dan api inti, serta Malgorath sang entitas Kegelapan dan bayangan murni.
 
-Keseimbangan rapuh di antara mereka akhirnya pecah, memicu Perang Primordial – sebuah benturan kosmik dahsyat yang merobek struktur realitas dan melahirkan dunia baru yang terluka: Zerath. Perang agung itu meninggalkan warisan yang abadi. Saat kekuatan Tiga Wujud mereda, inti sari kekuatan mereka terlepas dan pecah menjadi Dua Belas Fragmen Zerath – serpihan cahaya murni Aelarion, bara api inti Zhorak, dan bisikan gelap Malgorath.
+Keseimbangan di antara ketiganya terlalu rapuh untuk bertahan. Perselisihan memicu Perang Primordial, sebuah benturan kosmik dahsyat yang merobek struktur realitas. Dari luka alam semesta itu, lahirlah dunia baru bernama Zerath.
 
-Fragmen-fragmen ini jatuh ke dunia Zerath yang baru lahir, tertidur di kedalamannya, menjadi jantung kekuatan dunia yang kelak akan diperebutkan oleh ras-ras baru yang muncul. Kekaisaran-kekaisaran besar dibangun di atas energi mereka, peradaban maju pesat karenanya, dan perang-perang besar seperti Gema Gelap (The Dark Convergence) dikobarkan demi hasrat untuk memilikinya.
+Perang agung tersebut meninggalkan warisan mematikan. Ketika kekuatan Tiga Wujud akhirnya mereda, inti sari mereka terlepas dan pecah menjadi Dua Belas Fragmen. Serpihan-serpihan ini membawa cahaya murni Aelarion, bara api Zhorak yang tak pernah padam, dan bisikan merusak Malgorath.
 
-Kini, setelah ratusan tahun keheningan yang menipu, sesuatu di kedalaman Zerath mulai menggeliat. Fragmen-fragmen kuno itu terbangun, kekuatan purba mereka kembali berdenyut, mengirimkan getaran ke seluruh dunia. Dan di tengah reruntuhan takdir yang tak terhindarkan, percikan api lain menyala terang dalam darah seorang bocah lelaki – percikan yang tak disadarinya adalah kunci pembuka... atau justru pemicu akhir dari segalanya.
+Fragmen-fragmen itu jatuh bak bintang mati ke dunia Zerath yang baru lahir. Mereka tertidur di kedalamannya, menjadi jantung kekuatan yang kelak diperebutkan. Kekaisaran-kekaisaran besar membangun fondasi peradaban di atas energi mereka. Ambisi dan keserakahan meletuskan perang besar seperti Gema Gelap, semata-mata demi memonopoli sisa kekuatan para dewa.
+
+Kini, setelah ratusan tahun keheningan yang menipu, sesuatu di kedalaman Zerath mulai menggeliat. Fragmen-fragmen kuno itu kembali berdenyut, mengirimkan getaran perlahan melintasi benua. Di tengah pusaran takdir yang tak terhindarkan itu, percikan api lain menyala terang dalam darah seorang bocah.
+
+Percikan yang tak disadarinya akan menjadi kunci pembuka—atau justru pemicu akhir dari segalanya.
 
 Api itu bernama Kael.
 
-Mata Kael terbuka perlahan. Lingkungan di sekelilingnya kabur, tertutup debu dan asap.
+***
 
-"...Kenapa terasa dingin... tapi di saat bersamaan... juga terbakar...?" pikirnya bingung.
+Kael membuka mata perlahan.
 
-Dia mencoba duduk, mendapati dirinya berada di tengah reruntuhan sebuah desa Elf yang hangus. Abu beterbangan ditiup angin panas. "Aku... mengamuk lagi...? Ini... ini rumahku...?" bisiknya serak. Matanya mencari-cari. "...Ibu?"
+Debu menutupi pandangannya. Asap tipis menggantung di antara reruntuhan, membawa bau kayu hangus dan sesuatu yang tidak ingin dia kenali.
 
-Perlahan, dia berdiri. Latar belakangnya adalah pemandangan mengerikan: pohon suci yang biasanya menjulang megah kini hangus menghitam, bayangan api masih menari-nari di sisa bangunan. "Apa... apa yang sebenarnya terjadi di sini?"
+Udara terasa dingin di kulitnya, tetapi panas masih merambat dari tanah.
 
-Dia melihat tangannya sendiri, gemetar hebat. "Kenapa... kenapa tanganku... BERDARAH!?" Retakan-retakan hitam tipis seketika muncul di permukaan kulit lengannya. Dari setiap urat nadinya, cahaya merah menyala redup.
+Kael mencoba bangkit. Tangannya menyentuh abu.
 
-"A-apa ini...!?" serunya panik. "Tanganku... MENYALA!?"
+Barulah dia menyadari tempat itu adalah desanya.
 
-Samar-samar, terdengar suara bisikan di udara, begitu halus namun menusuk. « ...Fragmen... telah memilihmu... » Kael menoleh cepat, matanya liar mencari sumber suara itu. "Siapa itu!?" Tapi tak ada siapa pun di antara puing-puing. "APA YANG KAU MAKSUD DENGAN—FRAGMEN!?"
+Pohon suci Aranyel yang biasanya menjulang megah kini tersisa sebagai batang hitam yang retak. Api kecil masih menjilati sisa-sisa kayu di sekitarnya.
 
-Sebuah kilasan ingatan menghantamnya: dia melihat sebuah batu aneh melayang dan terbakar di tengah reruntuhan desa. Cahaya dari batu itu seolah tersedot masuk ke dalam dadanya. Terdengar suara ibunya di benaknya, penuh kekhawatiran. "Jangan pernah sentuh batu itu, Kael. Itu bukan berasal dari dunia ini..."
+"Ibu?" suara Kael serak.
 
-Kembali ke realita. Cahaya redup dari sebuah Fragmen kini berdenyut samar dari balik kulit di dadanya.
+Dia menunduk. Tangannya bergetar hebat. Darah mengering di telapak tangannya.
 
-"...Aku menyentuhnya..." gumam Kael ngeri. "Aku..." Tangannya mengepal erat, mata
+Retakan hitam halus merambat di sepanjang lengannya, mengikuti jalur urat nadinya. Dari balik kulitnya, cahaya merah redup berdenyut pelan.
 
-berkaca-kaca karena kesadaran yang mengerikan. "...JADI AKU YANG MELAKUKAN SEMUA INI!?" Tiba-tiba, terdengar suara langkah kaki mendekat dari balik puing. Seorang penjaga Elf muncul, wajahnya penuh jelaga, tombaknya tergenggam erat. "KAEL!? KAU MASIH HIDUP!?"
+Panas dari dalam tubuhnya terasa seolah ingin merobek dagingnya keluar.
 
-"Maafkan aku..." kata Kael lemah. "Aku tak tahu apa yang terjadi..."
+"Kael!"
 
-Penjaga itu menuding Kael dengan marah dan putus asa. "KAU YANG MEMBAKAR DESA INI!"
+Suara langkah kaki berat terdengar memecah keheningan puing. Seorang penjaga Elf muncul dari balik asap. Wajahnya tertutup jelaga, matanya liar, dan ujung tombaknya bergetar ke arah Kael.
 
-"BUKAN AKU!!" bantah Kael. "Aku—aku tidak tahu—!!"
+"Kael, kau... apa yang kau lakukan?" Suara penjaga itu serak, dipenuhi ketakutan dan kemarahan.
 
-Penjaga itu mengangkat tombaknya, hendak menyerang Kael yang dianggapnya sebagai sumber bencana. Namun, sebagai refleks, Fragmen di dada Kael menyala terang—BOOM!
+"Aku tidak tahu." Kael mundur selangkah. "Aku tidak tahu apa yang terjadi."
 
-"AARGHH!!" Kael berteriak saat gelombang energi tak terlihat meledak darinya,
+"Kau membakar semuanya!"
 
-melemparkan penjaga Elf itu jauh ke belakang. Tubuh Kael kini bersinar merah redup. Dia terduduk lemas, napasnya berat dan tersengal. Api kecil menari-nari di ujung jemarinya.
+Penjaga itu menerjang maju. Ujung tombaknya terarah ke dada Kael.
 
-"...Apakah ini benar-benar aku..." pikirnya dalam hati, "...atau... sesuatu yang lain di dalam
+Namun sebelum besi itu menyentuh kulitnya, dadanya terasa panas.
 
-diriku?" Langit di atas berubah gelap, dihiasi kilatan petir berwarna ungu yang aneh. Di kejauhan, di batas cakrawala, terlihat siluet pasukan berjubah mendekat – Arcanum Wardens. Sebuah bisikan dingin lain terdengar di benaknya, kali ini terasa lebih gelap, berasal dari kehampaan. « Kael... Kau adalah... Api yang ditakdirkan menghancurkan dunia ini. » Kael terdiam, air mata mulai jatuh membasahi pipinya yang kotor. "...Jika memang aku terlahir terkutuk..." tekad baru yang rapuh muncul di hatinya, "...maka aku akan... MELAWAN TAKDIR ITU SENDIRI."
+Kekuatan asing meledak dari dalam tubuh Kael. Gelombang tak kasatmata menghantam udara, merobek jarak di antara mereka. Penjaga Elf itu terlempar ke belakang, menabrak sisa tembok batu hingga hancur.
+
+Kael jatuh berlutut, terengah-engah. Api merah pucat menari di ujung jari-jarinya, sebelum perlahan padam.
+
+Dia menatap tangannya yang berasap. Ingatan yang terputus kembali menghantam pikirannya. Sebuah batu aneh di tengah reruntuhan. Cahaya ungu gelap. Sentuhan yang membakar kewarasannya. Peringatan ibunya terngiang kembali, melarangnya menyentuh batu yang bukan dari dunia ini.
+
+Kini, Fragmen itu hidup di dalam dadanya.
+
+*Kael... Kau adalah... Api yang ditakdirkan menghancurkan dunia ini.*
+
+Suara itu bergema, entah dari mana. Bukan dari udara, melainkan dari dalam kepalanya sendiri.
+
+Kael mendongak. Langit di atas Aranyel tak lagi cerah. Awan gelap menggulung, diwarnai kilatan petir ungu yang asing.
+
+Di batas cakrawala, barisan sosok berjubah mulai terlihat. Arcanum Wardens dari kekaisaran. Mereka datang.
+
+Kael mengepalkan tangannya kuat-kuat hingga kukunya melukai telapak tangannya sendiri. Rasa sakit itu setidaknya membuktikan bahwa dia masih hidup.
+
+Jika memang takdirnya adalah membawa kehancuran, dia akan melawan takdir itu sendiri.

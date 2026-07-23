@@ -1,37 +1,55 @@
 # Episode 002 — Warisan yang Tak Diminta
 
-Kael berlari terseok-seok di tengah hutan yang gelap gulita. Napasnya terasa berat, paru-parunya terbakar. Cahaya merah redup dari Fragmen di dadanya berkedip-kedip tak menentu. Kenapa mereka terus mengejarku...?
+Kael memaksakan kakinya berlari menembus hutan yang gelap gulita.
 
-Di belakangnya, ledakan cahaya sihir menghancurkan dahan pohon besar. Kael jatuh terguling menghindari serpihan kayu.
+Napasnya terasa membakar tenggorokan. Cahaya merah redup dari dalam dadanya berkedip tidak stabil, menerangi bayangan pepohonan dengan ritme yang menyakitkan.
 
-"Khh-! Mereka sudah sangat dekat..."
+Pikirannya berpacu. Kenapa mereka terus mengejarku?
 
-Tepat sebelum serangan sihir berikutnya menghantamnya, sesosok gadis Elf melompat turun dari atas pohon dengan gesit, menyambar lengan Kael dan menariknya ke tempat aman.
+Di belakangnya, ledakan cahaya sihir menghantam dahan pohon besar di atas kepalanya. Serpihan kayu tajam menghujani punggungnya.
 
-"DASAR BODOH!" bentak gadis itu. "Jangan pernah lari lurus kalau dikejar penyihir
+Kael jatuh terguling, tanah basah mengotori jubahnya.
 
-Arcanum!"
+Dia bersiap untuk bangkit, tetapi sebuah tangan ramping melesat dari kegelapan dan menyambar lengannya. Sosok itu menariknya kasar ke balik akar pohon raksasa.
 
-"Siapa—!?" Kael terkejut.
+"Bodoh," desis gadis Elf itu. "Jangan lari lurus saat penyihir Arcanum mengejar."
 
-Mereka kini bersembunyi di balik akar pohon raksasa yang menjulang. Gadis Elf itu menempelkan jari telunjuknya ke bibir Kael. "Ssst! Mereka itu Arcanum Wardens. Mereka tak akan segan mengulitimu hidup-hidup jika tertangkap."
+"Siapa—" Kael terkejut.
 
-"...Aku tidak membakar desa itu..." gumam Kael pelan.
+Gadis itu menempelkan jarinya ke bibir Kael. "Ssst! Mereka Arcanum Wardens. Mereka tak akan segan mengulitimu hidup-hidup jika tertangkap."
 
-Gadis Elf itu menatapnya tajam. "Aku tahu. Kalau memang kau pelakunya, kau pasti sudah meledak sekarang karena tidak bisa mengendalikan kekuatan sebesar itu." Dia melirik ke arah dada Kael, tempat Fragmen itu bersinar samar di bawah kulit. "Itu...
+Mereka bersembunyi di balik bayangan akar pohon. Saat suara langkah para pengejar menjauh, Kael bergumam pelan, "Aku tidak membakar desa itu."
 
-sebuah Fragmen aktif?!"
+Tatapan gadis itu jatuh pada cahaya merah redup yang menembus kain baju Kael. Matanya menyipit tajam.
 
-"Aku... aku tidak tahu bagaimana caranya..." Kael menahan isak. "...tapi... saat aku
+"Aku tahu. Kalau memang kau pelakunya secara sadar, kau pasti sudah meledak sekarang karena tidak sanggup mengendalikan kekuatan sebesar itu," ucap gadis itu perlahan. Dia menunjuk ke arah dada Kael. "Itu... sebuah Fragmen aktif?"
 
-menyentuh batu aneh itu..." Ingatan kehancuran desanya kembali. "...semuanya... terbakar." Sebuah kilas balik singkat muncul di benak Kael: dirinya yang lebih kecil, mendengar ibunya bicara dengan nada khawatir. "Kau harus menyembunyikan dirimu, Kael. Kalau mereka sampai tahu tentang darahmu... kau tak akan pernah punya tempat di dunia ini."
+Kael mundur, menyembunyikan dadanya dengan lengan. "Aku tidak tahu bagaimana caranya. Tapi saat aku menyentuh batu aneh itu... semuanya terbakar."
 
-Kembali ke masa kini. Gadis Elf itu berdiri, menatap langit yang mulai mendung. "Kita harus segera keluar dari wilayah Elf. Ke arah timur – menuju perbatasan wilayah Karag Thürm. Banyak ras marginal yang tinggal di sana. Mereka... biasanya tidak terlalu peduli dengan urusan darah campuran."
+Suaranya terputus. Kilasan ingatan ibunya kembali menyiksa pikirannya. Sebuah peringatan lama, memintanya menyembunyikan diri agar dunia tidak mengetahui tentang darah yang mengalir di tubuhnya.
 
-Kael masih terduduk, wajahnya penuh keputusasaan. "Aku bukan siapa-siapa... bukan Elf murni... bukan pula keturunan Naga yang jelas... bahkan bukan manusia biasa..." Gadis Elf itu menatapnya dengan tegas. "Lalu kenapa? Bukankah kau masih hidup sekarang? Itu saja sudah cukup." Dia mengulurkan tangannya pada Kael. "Namaku Sylvara.
+Gadis Elf itu berdiri dan menepuk debu dari pakaiannya. Dia menatap langit malam yang mendung.
 
-Sekarang bangunlah, Kael. Dunia ini kejam dan akan memakan yang lemah. Tapi kadang... justru potongan yang sudah retaklah yang bisa memotong paling dalam." Kael diam sejenak, menatap tangan Sylvara yang terulur, lalu perlahan menggenggamnya.
+"Kita harus keluar dari wilayah Elf sekarang juga. Ke arah timur, menuju perbatasan Karag Thürm," instruksi gadis itu tegas. "Banyak ras marginal tinggal di sana. Tempat itu cukup keras untuk membuat orang tidak peduli dengan urusan darah campuran sepertimu."
 
-"...Terima kasih..."
+Kael menunduk menatap telapak tangannya yang masih bergetar. "Aku bahkan bukan siapa-siapa. Bukan Elf murni, bukan keturunan naga, bukan pula manusia biasa. Aku tidak memiliki tempat di dunia ini."
 
-Mereka mulai berlari bersama ke arah timur, menyusuri hutan yang sebagian telah rusak. Namun, dari balik bayangan pepohonan, seseorang mengawasi kepergian mereka... Sosok itu adalah seorang pria muda misterius berambut putih seputih salju dan bermata kuning setajam elang. Dia tersenyum dingin. "Menarik... Darah campuran yang berhasil menyatu dengan Fragmen murni. Mungkin... dia bisa menjadi bidak catur yang berguna dalam permainanku." Senyumnya melebar. "Namaku Rowan... dan aku tak sabar melihat dia... hancur dari dalam oleh kekuatannya sendiri." Sebuah aura gelap, seperti energi Fragmen yang rusak, berputar samar di belakangnya sebelum dia lenyap ditelan bayangan.
+"Lalu kenapa?" balas gadis itu tajam. "Bukankah kau masih hidup sekarang? Itu saja sudah cukup."
+
+Gadis itu mengulurkan tangannya pada Kael. "Dunia ini kejam dan akan memakan yang lemah. Tapi terkadang, justru potongan yang retaklah yang bisa memotong paling dalam. Namaku Sylvara."
+
+Kael ragu sejenak, menatap tangan Sylvara yang terulur, sebelum menyambutnya dengan pegangan erat.
+
+"Terima kasih."
+
+Mereka berdua bergerak menyusuri bayangan hutan, menjauhi reruntuhan Aranyel.
+
+Tanpa mereka sadari, dari atas dahan pohon tersembunyi, seseorang mengawasi kepergian mereka.
+
+Pria muda berambut putih salju itu tersenyum tipis. Mata kuning elangnya mengikuti jejak energi Kael yang berantakan.
+
+"Menarik," gumam Rowan pelan. "Darah campuran yang menampung kekuatan singularitas. Bidak yang sempurna dalam permainanku."
+
+Senyumnya melebar. "Aku tak sabar melihat dia hancur dari dalam oleh kekuatannya sendiri."
+
+Aura gelap, seperti energi Fragmen yang rusak, berputar samar di belakangnya sebelum dia lenyap ditelan bayangan.

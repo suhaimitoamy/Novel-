@@ -1,27 +1,35 @@
 # Episode 250 — Teriakan Perang Pertama
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di Dataran Terbelah. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Langit menggantung terlalu rendah dan menyesakkan di atas Dataran Terbelah. Kael menghentikan langkahnya.
 
-Semua jalan di Dataran Terbelah berakhir pada satu pusat. Di sanalah dua belas pasukan dan para jenderal Celestial menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menghentikan mobilisasi kekaisaran sebelum Fragmen dicabut dari tanah mustahil dilakukan.
+Penglihatannya berbayang merah. Di dalam dadanya, Ragnarok Pulse beresonansi menangkap pola getaran asing. Di balik bau karat dan tekanan gravitasi yang menghimpit, ada satu irama yang berupaya memaksa dunia bergerak mengikuti kehendaknya.
 
-“Kita mencapai pusat Dua Belas Panji bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zevaron. Kael menatap Zevaron, lalu pada upaya mediasi Zevaron yang rapuh. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Semua jalan di Dataran Terbelah berujung pada satu pusat. Di sanalah dua belas pasukan jenderal Celestial menunggu, membentuk formasi dengan lapisan pelindung tebal. Kael menyadari tidak ada kesempatan kedua. Kegagalan di tempat ini berarti mustahil menghentikan bala tentara kekaisaran sebelum Fragmen dicabut.
 
-Mereka bergerak serempak. Sekutunya menggunakan upaya mediasi Zevaron yang rapuh untuk memecah lapisan luar, sedangkan Kael menyusupkan pembacaan residu kausal pada nubuat ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Kita menerobos formasi mereka bersama-sama. Jangan menanggung bebannya sendiri hanya karena kau bisa merasakan frekuensinya,” peringat Zevaron.
 
-Kael tidak melawan semua lapisan Dua Belas Panji. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Kael menatap Zevaron dan mengangguk pelan. Kali ini rencananya tidak akan menempatkan semua orang sebagai perisai di belakangnya.
 
-Di pusat jaring Dua Belas Panji itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Mereka menerjang serentak. Zevaron memecah formasi luar musuh, sementara Kael menyusupkan resonansinya ke celah pelindung. Musuh membalas dengan melepaskan tekanan magis berlapis. Setiap lapisan perisai memancarkan irama berbeda, menolak keberadaan Kael.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di pusat Dua Belas Panji, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zevaron tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Namun Kael tidak berusaha menghancurkan semua lapisan sekaligus. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya.
 
-Dua belas pasukan dan para jenderal Celestial mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Nyeri hebat menyambar dari dada ke tengkuknya. Luka-lukanya berdenyut. Tetapi selama beberapa detik, Kael dapat melihat seluruh struktur pertahanan musuh sebagai jalinan benang cahaya.
 
-Tidak ada ledakan besar. Dua belas pasukan dan para jenderal Celestial retak dalam keheningan Dataran Terbelah. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zevaron menahannya sebelum kepalanya membentur tanah.
+Di pusat jaring pertahanan itu, terdapat benang kendali utama. Kael merentangkan tangannya. Pulse merah memisahkan materi perisai, Pulse biru membekukan sisa energi, dan Pulse violet mengurai pola asing Arsitek. Ketiga kekuatan itu nyaris saling memusnahkan, sampai Kael memaksa Keseimbangan sebagai penengah alih-alih mencoba memerintah ketiganya.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: perang dipicu oleh nubuat palsu terakhir dari Sistem. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Di hadapan barikade Dua Belas Panji, ia membiarkan teman-temannya menghantam bagian yang tidak sanggup ditahannya sendiri. Serangan Zevaron melesat tepat waktu. Jaringan musuh berguncang hebat, dan simpul pertahanan mereka padam.
 
-Kael memandangi sisa-sisa pusat kendali Dua Belas Panji. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Terdesak, jenderal Celestial mengamuk melepaskan wujud terakhirnya. Ruang melengkung ke dalam, menelan seluruh cahaya. Kael mengikuti arah suara rekan-rekannya sebagai penuntun, lalu melepaskan satu hantaman Pulse pendek tepat pada frekuensi inti musuh.
 
-Tak ada sorak setelah pusat Dua Belas Panji runtuh. Kael baru menarik napas ketika denyut lain menjawab dari kejauhan. Panji pertama memerintahkan serangan serentak.
+Tidak ada ledakan besar. Bentukan agung jenderal Celestial retak dalam keheningan total. Kendali asing terlepas bagai benang terbakar, membiarkan tubuh wadah mereka hidup tanpa kekuatan dewa.
 
-Di ambang keluar Dataran Terbelah, Kael berhenti satu tarikan napas. Ia menyimpan suara para korban, lalu berjalan sebelum dunia sempat memilihkan jalan untuknya.
+Kael kehilangan keseimbangan, namun Zevaron sigap mencengkeram bahunya sebelum ia menabrak tanah berdebu.
+
+Kemenangan itu membuka tabir kebenaran: perang ini dikobarkan melalui ramalan palsu Sistem. Tidak ada sorak sorai. Mereka sadar kenyataan itu mengubah makna perlawanan mereka dan membawa musuh yang jauh lebih mematikan.
+
+Kael memandangi puing pusat kendali Dua Belas Panji. Dia tidak merasa lebih perkasa, justru tanggung jawabnya semakin berat. Luka baru di kulitnya menjadi saksi ia memilih jalan menyakitkan untuk membatasi kehancuran.
+
+Hanya ada keheningan panjang yang membekukan darah, hingga sebuah denyut berat menjawab dari kejauhan. Panji komando pertama telah mengeluarkan aba-aba balasan.
+
+Di batas dataran yang hancur, Kael terdiam. Ia mengukir wajah para korban perang di ingatannya, lalu melangkah maju sebelum dunia memaksa jalan lain baginya.
