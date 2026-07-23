@@ -1,33 +1,59 @@
 # Episode 004 — Bisikan tanpa Suara
 
-Kael dan Sylvara berhasil keluar dari Zona Fragmented, namun kini memasuki wilayah yang terasa lebih aneh: sebuah dataran sunyi yang dipenuhi kabut tebal dan menara-menara batu bengkok yang menjulang seperti jari-jari keriput. Tanah di bawah kaki mereka retak dan kering. Dan yang paling aneh... tidak ada suara sama sekali.
+Kael dan Sylvara meninggalkan Zona Fragmented, tetapi tempat yang menyambut mereka tidak terasa lebih aman.
 
-"Kita sudah keluar dari zona retakan dimensi," kata Sylvara, suaranya terdengar aneh tanpa gema. "Ini wilayah netral... Spires of Silence." Suasana benar-benar sunyi total. Bahkan suara langkah kaki mereka sendiri pun seolah lenyap ditelan keheningan.
+Kabut tebal menutupi dataran retak. Menara-menara batu yang bengkok menjulang dari tanah seperti jari tua. Tidak ada suara angin, tidak ada gesekan langkah, bahkan napas mereka terdengar seolah ditelan udara.
 
-"Kenapa..." bisik Kael pelan, "...tempat ini terasa seperti mati?"
+“Kita sudah keluar dari retakan dimensi,” kata Sylvara. Suaranya terdengar tipis, tanpa gema. “Ini Spires of Silence. Wilayah netral.”
 
-"Karena di sini," jawab Sylvara, "suara... adalah sesuatu yang terlarang."
+Kael menatap kabut di depan mereka. “Kenapa tempat ini terasa mati?”
 
-Dari dalam kabut tebal, muncul beberapa siluet makhluk humanoid tanpa wajah. Mereka tidak menyerang, hanya berdiri diam dan menatap kosong ke arah Kael dan Sylvara saat mereka lewat.
+“Karena suara dilarang di sini.”
 
-"Mereka disebut Penjaga Diam," jelas Sylvara melalui isyarat tangan dan rune komunikasi sederhana yang dia gambar di udara. "Mereka bukan musuh... Selama kau tidak mencoba berbicara dengan mereka atau mengeluarkan suara keras."
+Beberapa sosok humanoid muncul dari kabut. Tubuh mereka kurus dan wajahnya rata tanpa mata maupun mulut. Mereka tidak mendekat, hanya berdiri memandangi Kael dan Sylvara saat keduanya lewat.
 
-Tak lama kemudian, sesosok figur lain muncul dari kabut. Sosok itu mengenakan jubah biru pudar dan wajahnya tertutup topeng kain putih polos. Dia membawa sebuah lonceng kristal di tangannya, namun lonceng itu tidak mengeluarkan bunyi sedikit pun saat dia bergerak.
+Sylvara mengangkat tangan, lalu menggambar rune komunikasi sederhana di udara.
 
-"Itu pemimpin mereka," isyarat Sylvara lagi. "Nyrah, Sang Pendiam."
+*Penjaga Diam,* tulisnya. *Jangan berbicara kepada mereka. Jangan membuat suara keras.*
 
-Nyrah mengangkat tangannya ke arah Kael. Dia tidak menyentuh, tapi Kael merasakan energi dingin menyentuh Fragmen di dadanya. Seketika, ilusi-ilusi singkat muncul di benak Kael: gambaran masa kecilnya saat dia dihina dan ditolak oleh anak-anak Elf lain karena darah campurannya.
+Sosok lain menyusul dari balik kabut. Jubah biru pudar menutupi tubuhnya, sementara wajahnya tersembunyi di balik topeng kain putih. Sebuah lonceng kristal tergantung di tangannya, tetapi benda itu tetap bisu saat dia berjalan.
 
-"Kau bukan bagian dari kami!" terdengar suara ejekan dalam ilusi itu.
+Sylvara membentuk rune baru.
 
-"Berhenti..." gumam Kael menahan sakit kepala. "JANGAN TUNJUKKAN ITU LAGI—!"
+*Nyrah. Pemimpin mereka.*
 
-Ilusi itu seketika berhenti. Nyrah menurunkan tangannya, lalu memberikan Kael sebuah gulungan kecil yang terbuat dari rune Void yang bentuknya terbalik. Sylvara mencoba membaca arti dari energi Nyrah dan gulungan itu. "Dia bilang... dunia ini sedang rusak dari dalam. Dan kau... adalah garis tengah dari kerusakan itu."
+Nyrah berhenti di hadapan Kael dan mengangkat tangan. Jarak di antara mereka masih beberapa langkah, tetapi hawa dingin telah menyentuh Fragmen di dada Kael.
 
-Kael menatap langit gelap yang menggantung rendah di atas Spires of Silence. Untuk pertama kalinya sejak Fragmen itu aktif, bisikan-bisikan di kepalanya mereda. Tempat ini sunyi, kosong, namun anehnya... terasa damai.
+Ingatan lama menyambar pikirannya.
 
-Di luar zona keheningan ini, Rowan berdiri di atas batu tinggi, berbicara melalui rune komunikasi dengan sosok misterius berjubah abu-abu di sampingnya. "Target... Kael... sedang berada dalam kondisi mental tenang sekarang. Waktu yang tepat... untuk menanam benih keraguan di hatinya."
+Dia kembali menjadi anak kecil yang berdiri sendirian di antara para Elf muda.
 
-Sementara itu, Kael duduk sendirian di bawah sebuah pohon rune yang meranggas, menikmati keheningan yang langka. "...Kalau suara bisa melukai..." pikirnya dalam hati,
+“Kau bukan bagian dari kami.”
 
-"...mungkin diam bisa menyembuhkan luka itu."
+“Darahmu kotor.”
+
+Kael menekan kepalanya. “Cukup.”
+
+Ingatan itu terus berputar, semakin tajam.
+
+“Jangan tunjukkan itu lagi!”
+
+Semua gambaran lenyap.
+
+Nyrah menurunkan tangannya. Dia mengeluarkan gulungan kecil yang dipenuhi rune Void terbalik, lalu menyerahkannya kepada Kael.
+
+Sylvara memperhatikan pola energinya. “Dia berkata dunia ini rusak dari dalam.” Tatapannya beralih kepada Kael. “Dan kau berada tepat di tengah kerusakan itu.”
+
+Kael mendongak. Langit gelap menggantung rendah di atas Spires of Silence.
+
+Untuk pertama kalinya sejak Fragmen bangkit, tidak ada bisikan di kepalanya. Keheningan di tempat itu terasa kosong, tetapi juga menenangkan.
+
+Di luar wilayah sunyi, Rowan berdiri di atas batu bersama sosok berjubah abu-abu. Rune komunikasi menyala di antara mereka.
+
+“Pikirannya sedang tenang,” ujar Rowan. “Ini saat yang tepat untuk menanam keraguan.”
+
+Sementara itu, Kael duduk di bawah pohon rune yang meranggas. Dia membiarkan kesunyian menyelimuti luka-luka yang tidak terlihat.
+
+Mungkin suara memang bisa melukai.
+
+Dan untuk sesaat, diam membiarkannya bernapas.
