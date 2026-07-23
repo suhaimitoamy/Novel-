@@ -1,37 +1,55 @@
 # Episode 032 — Badai Pertama di Puncak Beku
 
-Di lereng bawah Puncak Beku yang diselimuti salju, Kael, Sylvara, Zireth, bersama dua pengawal Dwarf yang ditugaskan Garn – Borin yang kekar dan Dagna yang gesit – berjalan menembus salju tebal. Angin menderu kencang di sekitar mereka, membawa hawa dingin yang menusuk tulang.
+Kael, Sylvara, Zireth, Borin, dan Dagna mendaki lereng bawah Puncak Beku. Salju menelan langkah mereka hingga betis, sementara angin menebas wajah dengan butiran es.
 
-"Badai datang lebih cepat dari perkiraan!" teriak Borin, suaranya hampir hilang ditelan angin.
+“Badai datang lebih cepat!” teriak Borin. Suaranya hampir hilang. “Kita harus mencari perlindungan.”
 
-"Kita harus segera cari tempat berlindung!"
+Zireth membersihkan es dari kacamata pelindungnya. “Jarak pandang turun. Peta ini tidak banyak membantu.”
 
-Zireth menyesuaikan kacamata pelindungnya yang mulai tertutup es. "Visibilitas menurun drastis! Peta ini hampir tidak berguna dalam kondisi seperti ini!" Kael merasakan dingin yang menusuk, namun rasanya berbeda dari dingin biasa. Lengan kirinya yang memiliki retakan hitam terasa berdenyut nyeri. "Ngh... Dingin ini... aneh."
+Dingin menusuk tubuh Kael dengan cara yang berbeda. Retakan hitam pada lengan kirinya berdenyut di bawah kain.
 
-Sylvara menatap Kael dengan khawatir. "Fragmen di dadamu bereaksi pada suhu ekstrem ini?"
+“Dingin ini aneh,” katanya.
 
-"Bukan hanya itu," jawab Kael. "Rasanya seperti... ada sesuatu di udara ini yang menarik energi... atau mengacaukannya." Badai salju menghantam mereka dengan kekuatan penuh. Jarak pandang kini hanya beberapa meter saja. Mereka terpaksa merapat ke dinding tebing es di sisi jalur.
+Sylvara mendekat. “Fragmenmu bereaksi?”
 
-Deru badai salju hebat.
+“Bukan hanya Fragmen. Ada sesuatu di udara yang menarik energi.”
 
-"Kapten Garn benar! Tempat ini dikutuk!" seru Dagna sambil mencoba melindungi wajahnya
+Badai menghantam lebih keras. Mereka merapat ke dinding tebing, tetapi salju terus menumpuk dan menutup jejak di belakang.
 
-dari terpaan es. Zireth mengaktifkan pemindai kecil di lengan mekaniknya, mencoba menembus gangguan badai. "Ada anomali energi lemah di depan... sekitar 50 meter dari sini. Mungkin gua atau ceruk?"
+“Kapten Garn benar,” ujar Dagna sambil melindungi wajah. “Tempat ini dikutuk.”
 
-"Pimpin jalan, Tangan Besi!" perintah Borin pada Zireth.
+Zireth mengaktifkan pemindai pada lengannya. Gangguan memenuhi layar, lalu sebuah titik samar muncul.
 
-Dipandu oleh pembacaan energi Zireth, mereka meraba jalan menembus badai, menuju sumber anomali tersebut. Mereka menemukan mulut gua kecil yang tersembunyi di balik tirai es tebal. Udara di dalamnya terasa sedikit lebih hangat dan tenang.
+“Ada ruang kosong sekitar lima puluh meter di depan. Mungkin gua.”
 
-"Syukurlah..." desah Sylvara lega.
+“Pimpin,” kata Borin.
 
-Mereka berlima masuk ke dalam gua. Saat Zireth menyalakan lentera rune, cahaya menerangi bagian dalam gua, dan mereka menyadari gua itu tidak kosong. Di dinding gua, terukir simbol-simbol aneh dan melingkar, jelas bukan rune Dwarf maupun tulisan Elf kuno. Dan di tengah lantai gua... tergeletak bangkai makhluk aneh. Bentuknya menyerupai serigala besar, tapi tubuhnya seperti terbuat dari es kehitaman yang buram, dan cakar serta giginya tampak terbuat dari obsidian tajam.
+Mereka bergerak mengikuti pembacaan sensor. Beberapa kali Kael hampir kehilangan pijakan karena permukaan es tertutup salju baru.
 
-"Makhluk apa ini!?" seru Dagna kaget. "Aku belum pernah melihat yang seperti ini di seluruh
+Akhirnya mereka menemukan mulut gua di balik tirai es. Udara di dalam lebih tenang dan sedikit hangat.
 
-Karag Thürm!" Zireth mendekat, memeriksa bangkai itu dengan hati-hati. "Tubuhnya dingin membeku... tapi ini bukan es biasa. Aku mendeteksi jejak energi Void yang samar. Makhluk ini... tidak alami." Kael merasakan Fragmen di dadanya bereaksi lagi saat melihat bangkai itu. "Void... seperti keretakan di langit gurun waktu itu..." gumamnya.
+Sylvara mengembuskan napas lega. “Akhirnya.”
 
-"Jadi bukan hanya Elemental Es yang berkeliaran di wilayah terkutuk ini..." kata Borin
+Kelima orang itu masuk. Zireth menyalakan lentera rune.
 
-cemas. Tiba-tiba, dari kedalaman gua yang gelap, terdengar suara geraman rendah yang mengancam. Semua mata menoleh ke sumber suara. Dua pasang mata merah menyala muncul dari kegelapan di ujung gua. Sylvara langsung menyiapkan panahnya. "Kita tidak sendirian!"
+Cahaya memperlihatkan simbol melingkar pada dinding. Bentuknya bukan rune Dwarf atau tulisan Elf. Garis-garisnya saling memotong dalam pola yang terasa asing.
 
-Kelompok itu terkejut, segera bersiap siaga menghadapi ancaman baru yang mengintai dari kegelapan gua es.
+Di tengah lantai tergeletak bangkai makhluk menyerupai serigala besar. Tubuhnya terbentuk dari es hitam buram, dengan gigi dan cakar obsidian.
+
+Dagna mengangkat palunya. “Makhluk apa itu?”
+
+Zireth berjongkok di samping bangkai. “Bukan es biasa.” Sensor pada jarinya menyala. “Ada residu Void.”
+
+Fragmen di dada Kael bereaksi.
+
+“Seperti retakan yang muncul di langit gurun,” gumamnya.
+
+Borin menatap kedalaman gua. “Jadi bukan hanya Elemental yang berkeliaran di wilayah ini.”
+
+Geraman rendah terdengar dari kegelapan.
+
+Dua pasang mata merah menyala di ujung jangkauan lentera.
+
+Sylvara menarik busur. “Kita tidak sendirian.”
+
+Semua senjata terangkat ketika dua bayangan bergerak keluar dari kedalaman gua.
