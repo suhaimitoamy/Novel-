@@ -1,33 +1,71 @@
 # Episode 011 — Craveth Hollow: Wadah Kosong
 
-Di sebuah ruang bawah tanah rahasia Akademi Vorth Aereth, Melkisha berdiri di depan sebuah cermin obsidian yang permukaannya beriak seperti air hitam. "Fragmen keempat... sudah mulai aktif," gumamnya. "Tapi... energinya terasa salah."
+Di ruang bawah tanah Akademi Vorth Aereth, Melkisha berdiri di depan cermin obsidian yang permukaannya beriak seperti air hitam.
 
-Kael, Sylvara, dan Zireth dipanggil menghadap Melkisha. "Kami baru saja menerima laporan dari agen kami," kata Melkisha pada Kael. "Fragmen keempat, yang seharusnya tertidur di reruntuhan Kuil Bayangan, kini berada di tangan... sesuatu yang kami sebut 'The Hollowed'."
+“Fragmen keempat telah bangkit,” gumamnya. “Tapi energinya salah.”
 
-Zireth menampilkan data di layar kecil dari lengan mekaniknya. "The Hollowed... bukan nama individu. Itu sebutan untuk wadah kosong – tubuh yang ditinggalkan jiwanya, lalu dirasuki dan dikendalikan sepenuhnya oleh entitas asing... kemungkinan besar dari Void."
+Kael, Sylvara, dan Zireth dipanggil menghadap tak lama kemudian.
 
-"...Dirasuki?" ulang Kael ngeri.
+“Agen kami menemukan jejaknya,” kata Melkisha. “Fragmen yang seharusnya tertidur di reruntuhan Kuil Bayangan kini berada di tangan sesuatu yang disebut The Hollowed.”
 
-"Ya," konfirmasi Melkisha. "Dan entitas yang merasukinya sekarang... sepertinya menggunakan kekuatan Fragmen keempat itu untuk tujuannya sendiri. Dia terakhir terlihat bergerak menuju Craveth Hollow – sebuah wilayah yang terkenal bisa memanipulasi ingatan dan ketakutan terdalam siapapun yang masuk."
+Zireth memunculkan data pada layar di lengan mekanisnya.
 
-"Jadi kita harus ke sana dan merebutnya kembali?" tanya Kael.
+“The Hollowed bukan nama seseorang. Itu sebutan bagi tubuh yang telah kehilangan jiwa, lalu diambil alih entitas lain. Kemungkinan besar berasal dari Void.”
 
-"Hati-hati, Kael," peringat Sylvara. "Melawan sesuatu yang bisa membaca pikiran dan ingatanmu..."
+“Tubuh kosong yang dirasuki?” tanya Kael.
 
-"Aku tidak peduli," potong Kael tegas. "Jika Fragmen itu bisa disalahgunakan seperti itu... aku harus menghentikannya." Perjalanan menuju Craveth Hollow terasa mencekam. Udara di sana terasa berat dan dipenuhi bisikan-bisikan samar yang terdengar seperti Gema dari masa lalu Kael.
+Melkisha mengangguk. “Entitas itu memakai Fragmen keempat untuk kepentingannya sendiri. Terakhir kali terlihat, ia menuju Craveth Hollow—wilayah yang mampu mengubah ingatan dan ketakutan menjadi senjata.”
 
-« Kenapa kau tinggalkan kami? » « Kau seharusnya tidak lahir. » « Monster! » Kael mencengkeram kepalanya, mencoba menahan serangan mental itu. "Ilusi... ini hanya ilusi..." Mereka akhirnya sampai di pusat Craveth Hollow – sebuah gua kristal hitam yang aneh. Di tengah gua, berdiri sesosok figur berjubah compang-camping. Wajahnya tidak terlihat, tertutup bayangan pekat. Di tangannya tergenggam sebuah Fragmen berwarna hitam keunguan yang berdenyut gelap – Fragmen keempat.
+“Jadi kita merebutnya kembali.”
 
-"Selamat datang... pada ketakutan terbesarmu," suara The Hollowed terdengar dingin dan bergema, seolah berasal dari banyak suara sekaligus. The Hollowed menyerang, tapi bukan dengan serangan fisik. Dia mengirimkan gelombang energi psionik yang memicu halusinasi dan ingatan menyakitkan pada Kael, Sylvara, dan Zireth secara bersamaan.
+Sylvara menatap Kael. “Musuh yang dapat membaca pikiranmu bukan lawan biasa.”
 
-Sylvara melihat ilusi keluarganya yang mengkhianatinya. Zireth melihat ilusi dirinya kehilangan kendali atas tubuh mekaniknya. Kael melihat kembali ilusi desanya yang terbakar dan ibunya yang menatapnya kecewa.
+“Aku tahu.” Kael mengepalkan tangan. “Tapi aku tidak bisa membiarkan Fragmen itu dipakai untuk menyakiti orang lain.”
 
-"HENTIKAN!!!" teriak Kael, menyalurkan amarah dan rasa sakitnya menjadi ledakan api
+Perjalanan menuju Craveth Hollow dipenuhi bisikan.
 
-merah-biru. Api itu menghantam The Hollowed, membuatnya mundur selangkah, namun tidak tampak terluka parah.
+Udara terasa berat, dan setiap langkah memunculkan suara dari masa lalu Kael.
 
-"Rasa sakitmu... hanya memberiku kekuatan," kata The Hollowed. Dia mengangkat Fragmen keempat. Energi gelap menyelimutinya, lalu dia menghilang begitu saja ke dalam bayangan, meninggalkan Kael, Sylvara, dan Zireth sendirian di dalam gua kristal yang kini terasa kosong dan dingin.
+*Kenapa kau meninggalkan kami?*
 
-Kael jatuh berlutut, frustrasi. "Dia... kabur dengan Fragmen itu..." Sylvara membantu Kael berdiri. "Tidak apa-apa, Kael. Kita tidak bisa mendapatkan semuanya sekaligus." Zireth mengamati titik tempat The Hollowed menghilang. Menarik. Bukan sekadar wadah kosong biasa. Entitas yang mengendalikannya... punya tujuan yang jelas.
+*Kau seharusnya tidak pernah lahir.*
 
-Kael menatap tangannya yang masih gemetar. Aku gagal... Fragmen itu jatuh ke tangan yang salah. Tekadnya semakin kuat. Aku tidak boleh gagal lagi. Aku harus menemukan Fragmen kelima... sebelum terlambat.
+*Monster.*
+
+Kael menekan kedua tangannya ke kepala. “Ilusi. Hanya ilusi.”
+
+Mereka mencapai pusat wilayah itu menjelang malam. Sebuah gua kristal hitam terbuka di antara tebing. Di dalamnya berdiri sosok berjubah compang-camping dengan wajah tersembunyi bayangan.
+
+Fragmen hitam keunguan berdenyut di tangannya.
+
+“Selamat datang,” ujar The Hollowed dengan suara berlapis. “Di dalam ketakutan terbesarmu.”
+
+Tidak ada serangan fisik.
+
+Gelombang psionik menyapu gua dan menembus pikiran mereka.
+
+Sylvara melihat keluarganya kembali mengkhianatinya. Zireth menyaksikan lengan mekanisnya mengambil alih tubuhnya sendiri. Kael berdiri di tengah Aranyel yang terbakar, sementara ibunya memandangnya dengan kecewa.
+
+“Berhenti!”
+
+Amarah dan rasa sakit menyatu di dalam dada Kael. Api merah dan biru meledak dari tubuhnya, menghantam The Hollowed hingga mundur.
+
+Namun sosok itu tidak terluka.
+
+“Rasa sakitmu memberiku makan.”
+
+The Hollowed mengangkat Fragmen keempat. Bayangan menelan tubuhnya, lalu menghilang bersama energi gelap yang tersisa.
+
+Gua kembali sunyi.
+
+Kael jatuh berlutut. “Dia kabur.”
+
+Sylvara membantunya berdiri. “Kita masih hidup. Itu berarti kita masih bisa mengejarnya.”
+
+Zireth memindai titik tempat musuh mereka lenyap. “Ia bukan wadah kosong biasa. Entitas yang mengendalikannya tahu persis apa yang dicari.”
+
+Tangan Kael masih gemetar.
+
+Dia telah membiarkan Fragmen jatuh lebih jauh ke tangan yang salah. Kegagalan itu tidak akan terulang.
+
+Sebelum The Hollowed bergerak lagi, Kael harus menemukan Fragmen kelima.
