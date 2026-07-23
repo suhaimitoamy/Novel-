@@ -1,25 +1,49 @@
 # Episode 147 — Pertemuan Tak Terduga
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di sungai Leyline menuju permukaan. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael memusatkan Ragnarok Pulse pada simpul kendali Rift.
 
-Sejak benturan sebelumnya, pola Rift yang memakan koordinat dan waktu terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk keluar dari Hati Dunia sebelum jalurnya tertutup, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Sebelum dia menyentuhnya, seseorang muncul dari arus.
 
-“Ada lapisan lain di bawah Arus Balik. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zireth. Kael memandangi garis-garis pada permukaan. Ia tahu Zireth benar. Kekuatan mentah hanya akan mempercepat bencana.
+Zevaron terlempar keluar dari celah cahaya dan menghantam jalur di depan mereka. Tubuhnya penuh luka, sementara badai kecil berputar tidak stabil di sekeliling tangan.
 
-Ia mengalirkan penguncian fase agar tubuh tidak tercerai dalam arus melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Kau?” Sylvara langsung mengangkat busur.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan jangkar logam bintang Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Zevaron mencoba berdiri. “Aku bisa mengatakan hal yang sama.”
 
-Kael menyentuh rekaman Arus Balik. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Dia melihat Rift utama dan wajahnya berubah.
 
-Ia memutus kontak dengan rekaman Arus Balik sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+“Jadi kalian juga terjebak dalam jalur waktu ini.”
 
-“Ini bukan hanya jejak serangan di Arus Balik,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zireth. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+“Kau datang dari mana?” tanya Kael.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Rift yang memakan koordinat dan waktu telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+“Gerbang Es.” Zevaron menahan sisi tubuhnya. “Aku kembali untuk memperingatkan Iskali, tetapi arus melemparkanku ke tempat ini. Dunia di permukaan sudah bergerak jauh lebih cepat.”
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—dunia di permukaan telah bergerak lebih cepat daripada waktu mereka.
+Zireth memeriksa pembacaan waktu. “Berapa lama?”
 
-“Kalau petunjuk tentang Arus Balik ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zireth. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+“Entah. Beberapa bulan, mungkin lebih. Di sini aku kehilangan hitungan.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Rift yang memakan koordinat dan waktu berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Informasi itu menekan dada Kael lebih keras daripada Rift.
+
+Bagi mereka, perjalanan di Hati Dunia hanya berlangsung beberapa hari. Di permukaan, keadaan mungkin sudah berubah sepenuhnya.
+
+Rift menyerang sebelum pertanyaan lain muncul.
+
+Gelombang ruang menyapu jalur dan hampir memisahkan Zevaron dari mereka. Kael menangkap lengannya.
+
+“Kenapa menolongku?” tanya Zevaron.
+
+“Karena aku tidak akan membiarkan arus memutuskan siapa yang pantas pulang.”
+
+Zevaron mendengus, tetapi tidak melepaskan pegangan.
+
+Mereka membentuk formasi baru. Zireth menjaga jangkar, Sylvara menahan tali rune, Zevaron memakai angin untuk menstabilkan arah, dan Kael mencari simpul kendali Rift.
+
+Empat orang yang pernah saling menyerang kini berdiri pada satu jalur sempit.
+
+Di balik celah hitam, Kael menangkap pesan yang terus berulang:
+
+*Permukaan telah bergerak. Kekaisaran sedang mempersiapkan perang baru.*
+
+Pertemuan tersebut bukan kebetulan.
+
+Seseorang telah mendorong mereka semua menuju titik yang sama.
