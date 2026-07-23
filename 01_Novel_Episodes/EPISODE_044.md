@@ -1,29 +1,59 @@
 # Episode 044 — Aliansi Retak
 
-Pertarungan di Puncak Beku semakin memanas. Kael dan Rowan kini fokus untuk menyerang inti Makhluk Gerbang Es, sementara di sisi lain, Sylvara dan Zireth mati-matian menahan gelombang serangan dari pasukan es Void yang baru muncul.
+Kael membakar jalan di antara pasukan es yang memenuhi dataran tinggi.
 
-"Sekarang, Rowan!" teriak Kael, menggunakan semburan api dua warna untuk membakar
+“Sekarang, Rowan.”
 
-jalan di antara pasukan es, membuka celah menuju makhluk utama. Rowan menggumamkan mantra Void kuno, tongkat obsidiannya bersinar gelap pekat.
+Rowan mengangkat tongkat obsidian dan mengucapkan mantra dalam bahasa Void.
 
-"Umbral Shackles!"
+“Umbral Shackles.”
 
-Rantai-rantai tebal terbuat dari bayangan padat melesat dari ujung tongkat Rowan, mengikat lengan dan kaki Makhluk Gerbang Es dengan kuat, memperlambat gerakannya untuk sesaat yang krusial. Rantai bayangan mengikat.
+Rantai bayangan melesat dari tanah. Ikatan itu membelit lengan dan kaki Nyanyian Kehampaan, menahan tubuh raksasanya cukup lama untuk membuka jalur menuju dada.
 
-Makhluk Gerbang Es meraung marah, meronta mencoba melepaskan diri dari ikatan bayangan itu. « ... Lepas... Gelap... Sakit... » Kael menggunakan kesempatan emas itu. Dia melesat maju, mengabaikan dingin yang menusuk, menuju dada makhluk raksasa itu tempat inti ungu redup berdenyut lemah. "Kali ini harus berhasil!"
+Makhluk tersebut meronta.
 
-Dia menyiapkan serangan terkuatnya, memadukan energi api merah dan biru menjadi bola energi yang bergolak liar di ujung pedang Zerath's Fang miliknya. Sementara itu, Sylvara dan Zireth mulai terdesak oleh jumlah pasukan es Void yang terus bertambah.
+*Lepas. Gelap. Sakit.*
 
-"Zireth! Panahku mulai menipis!" seru Sylvara sambil menembak jatuh seekor laba-laba es.
+Kael menerobos badai menuju inti ungu. Dingin mengiris kulit dan menguras tenaga, tetapi dia terus maju.
 
-Tangan mekanik Zireth tampak rusak ringan setelah menahan serangan cakar es. "Perisai sonikku juga hampir habis dayanya!" Tepat saat Kael mengayunkan pedangnya, siap menghantamkan bola energi Tri-Elemental ke inti Makhluk Gerbang Es, Rowan tiba-tiba menarik kembali rantai bayangannya. Ikatan pada Makhluk Gerbang Es seketika lenyap, membiarkannya bergerak bebas.
+Di belakangnya, Sylvara dan Zireth mulai terdesak oleh serigala serta laba-laba es.
 
-Kael, terkejut oleh gerakan bebas yang tiba-tiba dari targetnya, sedikit kehilangan momentum. Serangan bola energinya meleset dari inti, menghantam bahu makhluk itu, menyebabkan ledakan besar namun tidak mengenai titik vitalnya.
+“Panahku tinggal sedikit,” teriak Sylvara setelah menjatuhkan seekor laba-laba.
 
-"Rowan! Apa yang kau—!?" teriak Kael tak percaya.
+Lengan mekanis Zireth retak di beberapa bagian. “Perisai sonik hampir kehilangan daya.”
 
-Makhluk Gerbang Es terdorong mundur oleh ledakan itu, tapi intinya masih utuh dan kini memancarkan amarah yang lebih besar, terfokus pada Kael.
+Kael mencapai jarak serang.
 
-Rowan berdiri agak jauh, tersenyum tipis penuh kepuasan. "Maaf, Kael. Aku hanya butuh dia sedikit melemah... bukan hancur total. Energi Void murni yang terkumpul di inti itu... akan sangat berguna untuk rencana Sang Arsitek."
+Api merah dan biru dipadatkan pada Zerath's Fang, membentuk bola energi yang bergolak di sepanjang bilah.
 
-Kael menatap Rowan dengan marah dan rasa dikhianati yang dalam. "PENGKHIANAT!" Makhluk Gerbang Es, kini mengabaikan Rowan sepenuhnya, mengarahkan seluruh kekuatannya yang mengerikan pada Kael yang kini sendirian di hadapannya. Sylvara dan Zireth masih terkunci dalam pertarungan melawan pasukan es Void.
+“Kali ini harus tepat.”
+
+Dia mengayunkan pedang menuju inti.
+
+Pada saat terakhir, rantai bayangan menghilang.
+
+Nyanyian Kehampaan kembali bebas dan memutar tubuhnya. Serangan Kael meleset dari dada, menghantam bahu makhluk itu dalam ledakan besar.
+
+Tubuh raksasa tersebut terdorong mundur, tetapi inti ungunya tetap utuh.
+
+Kael mendarat dan menatap Rowan. “Apa yang kau lakukan?”
+
+Rowan berdiri jauh dari jangkauan makhluk dengan senyum tipis.
+
+“Aku hanya membutuhkan tubuhnya melemah. Bukan hancur.”
+
+Dia memandang inti ungu yang kini berdenyut lebih terang.
+
+“Energi Void murni di sana masih berguna bagi Sang Arsitek.”
+
+Amarah Kael meledak. “Pengkhianat!”
+
+Nyanyian Kehampaan mengabaikan Rowan. Seluruh kekuatannya kini tertuju kepada Kael, sosok yang paling berhasil melukainya.
+
+Cakar es hitam terangkat.
+
+Sylvara dan Zireth masih terjebak menghadapi pasukan kecil. Kael berdiri sendirian tepat di depan makhluk raksasa yang telah dibuat semakin marah oleh serangan gagal tersebut.
+
+Aliansi mereka tidak pernah benar-benar ada.
+
+Rowan sejak awal hanya menunggu kesempatan untuk memakai Kael sebagai senjata.
