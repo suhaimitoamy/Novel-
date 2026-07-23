@@ -1,43 +1,75 @@
 # Episode 015 — Pemakan Pasir
 
-Perjalanan mereka semakin mendekati pusat lokasi jatuhnya 'bintang ungu' yang disebutkan dalam log penerbangan Sky-skiff. Medan di sekitar mereka mulai berubah: pasir halus berganti menjadi batuan kristal aneh yang tajam, dan udara terasa lebih berat oleh energi misterius.
+Jejak sepatu bot membawa mereka semakin dekat ke lokasi jatuhnya bintang ungu.
 
-"Energi di sini... terasa sangat pekat," kata Zireth sambil memeriksa pemindainya. "Ini pasti pusat kawah tempat Fragmen kelima itu jatuh." Kael bisa merasakan Fragmen di dadanya bereaksi, berdenyut pelan namun konstan, seolah tertarik oleh sumber energi yang lebih besar di depan.
+Medan berubah perlahan. Pasir halus berganti menjadi hamparan kristal tajam, sementara udara dipenuhi tekanan energi yang membuat dada terasa sesak.
 
-Tiba-tiba, tanah di depan mereka bergetar hebat. Sebuah mulut raksasa penuh gigi-gigi kristal tajam muncul dari dalam pasir, diikuti oleh tubuh cacing pasir raksasa yang sisiknya berkilauan seperti obsidian di bawah sinar matahari gurun.
+“Kita sudah dekat dengan pusat kawah,” kata Zireth sambil membaca pemindainya. “Konsentrasi energinya terus naik.”
 
-"Demi Zhorak!" seru Sylvara kaget. "Sand Worm raksasa! Aku kira mereka hanya legenda!"
+Fragmen di dada Kael ikut berdenyut. Irama yang stabil itu terasa seperti tarikan dari sesuatu yang jauh lebih besar di depan mereka.
 
-"Itu bukan Sand Worm biasa!" teriak Zireth. "Lihat matanya! Menyala ungu! Sama seperti
+Tanah berguncang.
 
-pasir kristal di sini! Dia pasti terpengaruh oleh energi Fragmen kelima!" Cacing Pasir raksasa itu meraung, suaranya seperti gemuruh badai pasir, lalu menukik ke arah mereka, mulutnya yang mengerikan terbuka lebar, siap menelan mereka bulat-bulat.
+Kael baru sempat mengangkat kepala ketika mulut raksasa muncul dari bawah pasir. Barisan gigi kristal memenuhi rahangnya. Tubuh panjang bersisik obsidian menyusul, menjulang tinggi di bawah cahaya matahari.
 
-"MENYEBAR!!" teriak Kael.
+“Demi Zhorak,” Sylvara berbisik. “Sand Worm.”
 
-Mereka bertiga melompat menghindar ke arah yang berbeda. Kael segera menyerang balik dengan semburan api merah biru, mencoba membakar sisik tebal cacing itu. Namun, sisik kristal ungu itu tampak kebal terhadap apinya.
+“Bukan yang biasa,” sahut Zireth. “Matanya menyala ungu. Energi Fragmen telah mengubahnya.”
 
-Api mengenai sisik tanpa efek.
+Makhluk itu meraung dan menukik ke arah mereka.
 
-"Apinya tidak mempan!" seru Kael.
+“Berpencar!”
 
-Sylvara mencoba menembakkan panah rune peledak ke arah mulut cacing saat ia kembali menukik. Ledakan itu berhasil membuat cacing itu sedikit terganggu dan mundur sesaat, tapi tidak cukup untuk melukainya secara serius.
+Ketiganya melompat ke arah berbeda. Mulut Sand Worm menghantam tanah tempat mereka berdiri dan melemparkan gelombang pasir ke udara.
 
-"Dia terlalu besar dan kuat!" kata Sylvara cemas.
+Kael membalas dengan semburan api merah dan biru. Nyala itu menyapu sisi tubuh makhluk, tetapi sisik kristalnya tidak meninggalkan bekas.
 
-Zireth menganalisis struktur cacing itu dengan cepat. "Sisik luarnya sangat keras karena pengaruh energi Fragmen! Tapi mungkin... ada titik lemah di bagian bawah perutnya, atau di dalam mulutnya saat dia menyerang!"
+“Api tidak mempan.”
 
-Kael melihat cacing itu bersiap menukik lagi ke arahnya. Sebuah ide nekat terlintas. Jika aku tidak bisa menyerang dari luar... bagaimana jika aku menyerang dari dalam?
+Sand Worm berputar dan menyerang lagi. Sylvara menunggu hingga mulutnya terbuka, lalu menembakkan panah rune ke dalam rahang.
 
-Saat cacing itu membuka mulutnya lebar-lebar, siap menelannya, Kael tidak menghindar. Sebaliknya, dia mengumpulkan energi api dan es di kedua tangannya, lalu melompat masuk ke dalam mulut cacing raksasa itu tepat sebelum rahangnya menutup!
+Ledakan membuat makhluk itu tersentak dan mundur, tetapi hanya sesaat.
 
-"KAEL!!" teriak Sylvara panik.
+“Tubuhnya terlalu tebal,” ujar Sylvara.
 
-Dari dalam tubuh cacing, Kael melepaskan ledakan energi tiga warna yang dahsyat – api, es, dan sedikit percikan Void dari lengannya yang tidak stabil. Terdengar suara ledakan teredam dari dalam cacing. Cacing Pasir raksasa itu menggeliat hebat kesakitan, tubuhnya membengkak dari dalam, lalu meledak dari dalam dengan semburan pasir, kristal, dan energi ungu.
+Zireth mengarahkan sensor ke seluruh permukaan makhluk. “Lapisan luar diperkuat energi Fragmen. Titik lemahnya kemungkinan berada di bawah perut atau di dalam mulut.”
 
-Kael terlempar keluar dari ledakan itu, tubuhnya tertutup debu dan cairan aneh, tapi dia masih hidup, meskipun terengah-engah hebat. Sylvara dan Zireth segera berlari menghampirinya. "Kau gila!?" seru Sylvara sambil membantu Kael berdiri.
+Sand Worm kembali menukik, kali ini langsung menuju Kael.
 
-Kael menyeringai lemah. "Berhasil, kan?" Setelah mengalahkan penjaga raksasa itu, jalan menuju pusat kawah kini terbuka. Mereka bisa melihat sebuah cahaya ungu samar berdenyut dari dasar kawah besar di depan mereka.
+Sebuah rencana nekat muncul di kepalanya.
 
-"Fragmen kelima..." gumam Kael, matanya tertuju pada cahaya itu.
+Jika serangan dari luar tidak mampu menembus sisik, dia harus menyerang dari dalam.
 
-Namun, Zireth menyadari sesuatu. "Tunggu... jejak sepatu bot misterius itu... ada lagi di sini. Mengarah ke kawah. Dia... sudah sampai lebih dulu dari kita." Mereka bertiga kini menatap ke arah kawah, waspada akan bahaya yang mungkin menunggu di dalamnya, selain energi Fragmen itu sendiri.
+“Kael, jangan!” teriak Sylvara ketika melihatnya berhenti menghindar.
+
+Kael mengumpulkan api dan es di kedua tangan. Tepat sebelum rahang makhluk itu menutup, dia melompat masuk ke dalam mulutnya.
+
+Kegelapan dan panas busuk menelannya.
+
+Kael melepaskan seluruh energi yang telah dikumpulkan. Api, es, dan percikan Void dari lengan kirinya bertabrakan di dalam tubuh Sand Worm.
+
+Ledakan teredam mengguncang gurun.
+
+Makhluk itu menggeliat liar. Sisiknya mengembung dari dalam sebelum tubuh raksasanya pecah, menyemburkan pasir, kristal, dan cairan ungu ke segala arah.
+
+Kael terlempar keluar dan berguling beberapa meter. Tubuhnya tertutup debu dan lendir, tetapi dia masih bernapas.
+
+Sylvara dan Zireth berlari menghampiri.
+
+“Kau gila?” Sylvara menariknya berdiri.
+
+Kael menyeringai lemah. “Tapi berhasil.”
+
+Di balik sisa tubuh Sand Worm, jalan menuju kawah telah terbuka. Cahaya ungu berdenyut dari dasar cekungan besar di depan mereka.
+
+“Fragmen kelima,” gumam Kael.
+
+Zireth mendadak berjongkok di dekat tanah.
+
+“Jejak sepatu bot itu muncul lagi.”
+
+Bekas langkah yang sama mengarah turun ke kawah.
+
+“Pemiliknya sudah sampai lebih dulu.”
+
+Ketiganya memandang cahaya di bawah sana. Fragmen bukan satu-satunya hal yang menunggu mereka di dasar kawah.
