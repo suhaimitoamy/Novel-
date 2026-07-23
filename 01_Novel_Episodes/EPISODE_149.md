@@ -1,27 +1,59 @@
 # Episode 149 — Pendaratan Keras
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di sungai Leyline menuju permukaan. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael jatuh dari celah Leyline dan menghantam tanah berbatu.
 
-Mereka telah kehilangan ruang untuk bergerak. Rift yang memakan koordinat dan waktu menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Benturan mengosongkan udara dari paru-parunya. Dunia berputar ketika dia mencoba bangkit.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Trio itu terlempar ke wilayah berbeda sebelum kembali bersatu. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Tidak ada Sylvara, Zireth, atau Zevaron di sekelilingnya.
 
-“Kita mundur dari Arus Balik. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zireth. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Jangan.”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan jangkar logam bintang Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Kael menempelkan tangan ke tanah dan mencari resonansi mereka. Arus Balik telah melemparkan masing-masing ke koordinat berbeda, tetapi jejak tali rune masih menghubungkan titik-titik tersebut secara lemah.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan penguncian fase agar tubuh tidak tercerai dalam arus untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Dia mengikuti jejak terdekat.
 
-Rift yang memakan koordinat dan waktu bereaksi liar di pusat Arus Balik. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zireth berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Beberapa ratus meter di bawah lereng, Zireth tergeletak di antara pecahan batu. Lengan bintangnya tertancap ke tanah sebagai jangkar terakhir.
 
-Kael menemukan benang kendali milik Rift yang memakan koordinat dan waktu. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh sungai Leyline menuju permukaan.
+Kael mengangkat tubuhnya. “Bangun.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Arus Balik akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Zireth membuka mata perlahan. “Pendaratan buruk.”
 
-“Tidak,” kata Kael di hadapan Arus Balik, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Di mana Sylvara?”
 
-Serangan mereka melalui jangkar logam bintang Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zireth; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Pemindai lengan bintang menangkap sinyal samar ke arah timur. Sinyal Zevaron bergerak ke barat dengan kecepatan tinggi, mungkin terbawa sisa badai elemennya sendiri.
 
-Saat debu Arus Balik turun, mereka sadar kemenangan kecil itu menuntut harga permanen: trio itu terlempar ke wilayah berbeda sebelum kembali bersatu. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Mereka mencari Sylvara terlebih dahulu.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Arus Balik terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Jejaknya membawa mereka ke lembah sempit yang dipenuhi reruntuhan baru. Kael menemukan busurnya patah di dekat dinding batu.
+
+“Sylvara!”
+
+Suara lemah menjawab dari bawah puing.
+
+Kael dan Zireth mengangkat batu bersama. Sylvara terbaring di dalam rongga, terluka tetapi sadar.
+
+“Berapa lama?” tanyanya setelah berhasil bernapas lebih lega.
+
+Kael memandang langit.
+
+Bintang-bintang berada pada posisi yang berbeda dari terakhir kali mereka lihat. Vegetasi di sekitar reruntuhan juga tumbuh lebih lebat.
+
+Zireth membaca data waktu dari sisa sinyal permukaan.
+
+Wajahnya berubah.
+
+“Delapan bulan.”
+
+Bagi mereka hanya beberapa hari.
+
+Di Zerath, delapan bulan telah berlalu.
+
+Kael membantu Sylvara berdiri. “Apa yang terjadi selama kita pergi?”
+
+Jawabannya datang dari langit barat.
+
+Segel Nexus raksasa menyala di antara awan, diikuti barisan kapal udara yang bergerak menuju wilayah Karag Thürm.
+
+Dunia tidak menunggu mereka kembali.
+
+Perang baru telah dimulai tanpa kehadiran mereka.
