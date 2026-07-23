@@ -1,39 +1,73 @@
 # Episode 038 — Di Ambang Gerbang Es
 
-Di dataran tinggi beku di bawah Puncak Beku, konfrontasi tak terhindarkan terjadi. Kael, Sylvara, dan Zireth berhadapan dengan Rowan yang berdiri tenang di antara mayat para Dwarf.
+Angin menyapu dataran tinggi saat Kael berdiri berhadapan dengan Rowan di antara tubuh para prajurit Dwarf.
 
-"Menyeimbangkan?" ulang Kael tak percaya, amarahnya membara. "Dengan cara
+“Kau menyebut ini keseimbangan?” kata Kael. “Kau membantai orang-orang yang tidak bersalah dan membuka gerbang yang disegel leluhur Iskali dan Dwarf.”
 
-membantai prajurit tak bersalah dan membuka gerbang berisi entitas berbahaya yang bahkan disegel oleh leluhur Iskali dan Dwarf!?" Rowan menggeleng pelan lagi, tatapannya merendahkan. "Kau masih berpikir terlalu sempit, Kael. Keseimbangan sejati terkadang membutuhkan pengorbanan besar. Kekuatan lama yang korup harus dihancurkan agar tatanan baru yang murni bisa lahir." Dia menatap Kael lekat, mata kuningnya bersinar aneh. "Dan kau... darah campuran yang beruntung... adalah katalis untuk semua ini."
+Rowan menggeleng seperti sedang menghadapi anak kecil yang belum memahami pelajaran sederhana.
 
-"Sosok berjubah gelap yang bicara denganmu di penglihatan kristal Ngarai Gema... Siapa dia sebenarnya?" tanya Zireth tajam. Senyum Rowan sedikit melebar. "Ah, jadi kalian sempat melihatnya? Menarik sekali. Sebut saja dia... Sang Arsitek. Arsitek dari takdir baru yang akan dibangun di atas abu Zerath."
+“Kau masih melihat dunia dari jarak terlalu dekat. Keseimbangan sejati membutuhkan pengorbanan. Tatanan lama harus dihancurkan agar sesuatu yang murni dapat lahir.”
 
-"Omong kosong!" seru Sylvara sambil melepaskan panah rune bercahaya ke arah Rowan.
+Mata kuningnya menekan Kael.
 
-"Kalian hanya menginginkan kekuasaan!"
+“Dan kau adalah katalisnya.”
 
-Rowan hanya mengangkat tongkat obsidiannya dengan santai. Energi ungu gelap seketika membentuk perisai tak terlihat di depannya, menahan laju panah Sylvara dengan mudah hingga jatuh tak berdaya ke salju.
+Zireth mengangkat lengan mekanis. “Siapa sosok berjubah yang berbicara denganmu dalam penglihatan Kristal Gema?”
 
-"Kekuatan mentah tidak ada artinya tanpa tujuan yang jelas, Pemanah," kata Rowan dingin. Dia mengarahkan tongkatnya ke tanah es di depannya. Rune-rune Void yang kompleks dan rumit seketika muncul di permukaan es, berdenyut dengan cahaya ungu gelap. "Dan tujuanku... sudah di depan mata."
+Senyum Rowan melebar. “Jadi kalian sempat melihatnya.”
 
-Di puncak gunung di belakang Rowan, sebuah titik mulai memancarkan cahaya ungu yang semakin terang. Terdengar suara retakan es yang dalam dan panjang, menggema di seluruh pegunungan. Es retak hebat.
+Dia memutar tongkat obsidian di tangan.
 
-"Gerbang Es!" seru Kael panik.
+“Sebut saja Sang Arsitek. Dia akan membangun takdir baru di atas abu Zerath.”
 
-Mereka bertiga – Kael, Sylvara, dan Zireth – serempak berlari maju, mencoba melewati Rowan untuk menghentikan apapun yang sedang terjadi di puncak.
+“Omong kosong.” Sylvara melepaskan panah rune.
 
-"Aku tidak bisa membiarkan kalian mengganggu momen penting ini," kata Rowan. Dia menancapkan tongkat obsidiannya ke tanah es yang telah diukir rune Void. "Bangkitlah... para penjaga ambang gerbang!" Seketika, dari salju di sekitar Rowan, beberapa sosok prajurit Dwarf yang tadi tergeletak tak bernyawa mulai bangkit berdiri. Gerakan mereka kaku, seperti boneka yang ditarik tali tak terlihat. Mata mereka yang tadinya tertutup kini terbuka, namun kosong dan memancarkan cahaya ungu gelap yang redup.
+Rowan mengangkat tongkat. Perisai ungu terbentuk di depannya dan menghentikan anak panah sebelum jatuh ke salju.
 
-Sylvara tersentak ngeri. "Dia... membangkitkan mereka!?"
+“Kekuatan tanpa tujuan tidak berarti apa-apa,” katanya. “Tujuanku sudah berada di depan mata.”
 
-"Bukan seperti undead Necromancer," analisis Zireth cepat. "Lebih mirip... dikendalikan sepenuhnya oleh energi Void dari tongkat itu. Seperti sosok berjubah di reruntuhan tadi, tapi menggunakan mayat Dwarf." Rowan tidak mempedulikan mereka lagi. "Mereka hanya akan menahan kalian sebentar.
+Tongkat itu diarahkan ke tanah.
 
-Aku harus memastikan ritual pengorbanan terakhir berjalan lancar." Dia berbalik dan mulai berjalan tenang menaiki lereng menuju puncak.
+Rune Void menyebar di atas es, membentuk jaringan yang berdenyut menuju puncak. Cahaya ungu muncul jauh di belakang Rowan.
 
-"ROWAN! JANGAN LARI!" teriak Kael, mencoba mengejar. Namun, langkahnya dihadang
+Retakan panjang menggema dari dalam gunung.
 
-oleh para prajurit Dwarf yang kini menjadi boneka Void, kapak dan palu mereka terangkat, siap menyerang tanpa ragu. Pertarungan kembali pecah. Kael, Sylvara, dan Zireth kini harus melawan para prajurit Dwarf yang seharusnya mereka laporkan kematiannya, kini menjadi musuh yang dikendalikan oleh energi gelap.
+“Gerbang Es,” ujar Kael.
 
-Sementara mereka bertarung di bawah, di Puncak Beku, cahaya ungu semakin intens. Struktur Gerbang Es mulai terlihat lebih jelas di tengah badai: sebuah lengkungan raksasa yang tampak terbuat dari es hitam transparan yang berdenyut, dengan rune-rune kuno Iskali dan Dwarf menyala redup di permukaannya. Dan di tengah lengkungan gerbang itu, sebuah retakan vertikal mulai terbentuk, membesar perlahan, memancarkan energi dingin yang menusuk dan aura kehampaan yang menyesakkan.
+Dia, Sylvara, dan Zireth bergerak bersamaan untuk melewati Rowan.
 
-Energi Gerbang Es mulai aktif. Kael berhasil menjatuhkan satu prajurit Dwarf Void dengan susah payah, hatinya terasa berat harus melawan mereka. Tapi saat dia mendongak, retakan di Gerbang Es tampak semakin membesar, dan dari celah gelap di dalamnya, mulai terlihat siluet samar sesuatu yang sangat besar, tidak berbentuk, dan penuh ancaman.
+“Aku tidak dapat membiarkan kalian mengganggu saat terakhir.”
+
+Rowan menancapkan tongkat ke pusat rune.
+
+“Bangkitlah, penjaga ambang gerbang.”
+
+Tubuh para prajurit Dwarf bergerak.
+
+Mereka berdiri dengan sendi kaku. Mata yang semula tertutup kini memancarkan cahaya ungu, sementara kapak dan palu terangkat tanpa keraguan.
+
+Sylvara menahan napas. “Dia membangkitkan mereka.”
+
+“Bukan undead,” kata Zireth sambil membaca aliran energi. “Tongkat itu mengendalikan tubuh mereka melalui Void. Sama seperti wadah di reruntuhan.”
+
+Rowan berbalik menuju puncak.
+
+“Mereka hanya perlu menahan kalian sebentar. Pengorbanan terakhir harus berjalan sempurna.”
+
+“Rowan!” Kael mencoba mengejar.
+
+Prajurit Dwarf menghadang dan mengayunkan kapaknya. Kael menangkis dengan Zerath's Fang, terpukul mundur oleh kekuatan tubuh yang tidak lagi merasakan sakit.
+
+Pertarungan pecah di dataran tinggi.
+
+Di atas mereka, badai terbuka sesaat dan memperlihatkan Gerbang Es: lengkungan raksasa dari es hitam transparan, dipenuhi rune Iskali dan Dwarf yang berkedip lemah.
+
+Sebuah retakan vertikal terbentuk di tengahnya.
+
+Energi dingin dan kehampaan menyembur dari celah. Di baliknya, siluet besar tanpa bentuk bergerak perlahan mendekati dunia mereka.
+
+Kael menjatuhkan satu boneka Dwarf, tetapi tubuh lain segera menggantikan tempatnya.
+
+Ketika dia mendongak, retakan itu sudah lebih lebar.
+
+Sesuatu di balik Gerbang Es mulai menemukan jalan keluar.
