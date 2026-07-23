@@ -1,27 +1,43 @@
 # Episode 145 — Serpihan Jiwa
 
-Debu bergerak melawan arah angin di bagian dalam Hati Dunia. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sungai Leyline membawa mereka melalui kegelapan yang dipenuhi cahaya merah, biru, dan emas.
 
-Semua jalan di bagian dalam Hati Dunia berakhir pada satu pusat. Di sanalah gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menyaksikan asal Zerath dan mengambil pesan pewaris mustahil dilakukan.
+Kael melayang tanpa mengetahui arah. Tubuhnya masih utuh, tetapi kesadarannya terasa berlubang.
 
-“Kita mencapai pusat Ruang Penciptaan bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada tangan Sylvara yang menjaga Kael tetap mengingat namanya. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Dia mencoba mengingat wajah ibunya.
 
-Mereka bergerak serempak. Sekutunya menggunakan tangan Sylvara yang menjaga Kael tetap mengingat namanya untuk memecah lapisan luar, sedangkan Kael menyusupkan superposisi kuantum pada ingatan penciptaan ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Bentuknya muncul samar, lalu pecah sebelum mata dan senyum terbentuk.
 
-Kael tidak melawan semua lapisan Ruang Penciptaan. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Jangan paksa,” kata Sylvara. Dia tetap memegang tangannya agar arus tidak memisahkan mereka. “Kenangan itu terluka.”
 
-Di pusat jaring Ruang Penciptaan itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+“Aku takut kalau berhenti mencoba, aku akan benar-benar melupakannya.”
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di pusat Ruang Penciptaan, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Zireth memindai pola energi Kael. “Sebagian struktur jiwamu tertinggal di Ruang Penciptaan. Bukan sekadar memori. Ada bagian emosi yang terikat padanya.”
 
-Gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Kael memahami maksudnya.
 
-Tidak ada ledakan besar. Gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan retak dalam keheningan bagian dalam Hati Dunia. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Dia masih tahu Aranyel adalah rumahnya. Masih tahu kehilangan ibunya menghancurkannya. Namun rasa hangat yang seharusnya menyertai kenangan itu telah hilang, menyisakan fakta dingin.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Sistem Pahlawan memanen energi jiwa untuk memperpanjang usia para dewa. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Arus di sekitar mereka mendadak melambat.
 
-Kael memandangi sisa-sisa pusat kendali Ruang Penciptaan. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Potongan cahaya kecil muncul dari belakang dan mengikuti Kael. Di dalamnya terdapat serpihan suara, aroma kayu rumah, dan tawa yang hampir dia kenali.
 
-Sylvara menurunkan senjata, tetapi Kael belum bergerak. Keheningan di pusat Ruang Penciptaan memiliki irama baru. Beberapa detik kemudian mereka memahami alasannya. Jalan pulang muncul sebagai arus Leyline yang runtuh.
+“Bagian jiwamu?” tanya Sylvara.
 
-Mereka membawa luka dan bukti dari Ruang Penciptaan menuju jalur berikut. Kael tidak merasa lebih dekat pada kemenangan; ia hanya memahami harga kekalahan dengan lebih jelas.
+Kael meraih salah satu serpihan.
+
+Begitu disentuh, rasa sakit menembus dadanya. Fragmen itu tidak kembali, tetapi memperlihatkan bagaimana Sistem Pahlawan memanen energi jiwa. Sebagian milik Kael telah tersangkut dalam mekanisme yang sama.
+
+“Ruang Penciptaan tidak hanya mengambilnya,” kata Kael. “Sistem lama menarik serpihan itu sebagai bahan bakar.”
+
+Zireth mengerutkan kening. “Berarti kehilanganmu masih terhubung ke jaringan para dewa.”
+
+Kael melepaskan cahaya tersebut sebelum dirinya ikut terseret.
+
+“Aku tidak akan mengejarnya sekarang. Kalau kita merusak arus ini, semua jiwa di dalam sistem bisa ikut hancur.”
+
+Keputusan itu terasa seperti meninggalkan bagian dirinya untuk kedua kali.
+
+Di depan mereka, jalur menuju permukaan mulai terbuka. Namun arusnya tidak stabil dan berputar ke arah yang salah.
+
+Untuk pulang, mereka harus melewati Arus Balik yang memakan koordinat dan waktu.
