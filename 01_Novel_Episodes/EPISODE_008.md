@@ -1,47 +1,69 @@
 # Episode 008 — Pecahnya Darah & Batu
 
-Aula duel Akademi Vorth Aereth adalah tempat yang suram. Lantainya terbuat dari batu rune kuno yang kini aktif menyala merah redup. Para murid akademi berkumpul di tribun bayangan, wajah-wajah mereka yang gelap dan penuh luka tampak antusias menyaksikan pertarungan yang akan terjadi.
+Aula duel Akademi Vorth Aereth dibangun dari batu rune tua yang memancarkan cahaya merah redup. Para murid memenuhi tribun gelap, menunggu pertarungan dengan antusias yang membuat Kael tidak nyaman.
 
-"Ingat, duel ini..." suara Guru Arena yang bertopeng bergema di aula, "...bukan untuk
+“Duel ini bukan untuk mencari pemenang,” ujar Guru Arena yang mengenakan topeng. “Kami ingin melihat siapa yang mampu memanggil dan mengendalikan kekuatan Fragmen ketiga.”
 
-mencari pemenang. Tapi untuk melihat siapa di antara kalian yang siap untuk memanggil dan mungkin mengendalikan kekuatan Fragmen ketiga." Melkisha menambahkan dari balkon pribadinya, "...Atau siapa yang siap mati lebih dulu saat mencoba."
+Dari balkon pribadinya, Melkisha menambahkan, “Dan siapa yang akan mati lebih dulu saat mencoba.”
 
-Kael berdiri di tengah arena, napasnya sedikit berat. Lawannya adalah salah satu murid tingkat atas akademi – tubuhnya tampak dilapisi oleh potongan-potongan Fragmen kecil berwarna gelap yang ditanam paksa, dan matanya putih penuh retakan energi liar.
+Kael berdiri di tengah arena. Lawannya adalah murid tingkat atas dengan serpihan-serpihan Fragmen gelap yang ditanam paksa di bawah kulit. Mata pria itu memutih, dipenuhi retakan energi liar.
 
-"Kael..." bisik Sylvara dari pinggir arena, wajahnya tegang. "Jangan gunakan kekuatan
+“Jangan memakai kekuatanmu terlalu cepat,” seru Sylvara dari pinggir arena. “Ini pasti jebakan.”
 
-Fragmen-mu terlalu cepat! Ini pasti jebakan!" Duel dimulai. Lawan Kael meluncur maju dengan kecepatan luar biasa, sihir petir hitam meledak dari kakinya saat dia bergerak. Dia lebih cepat dari suara... pikir Kael sambil menghindar tipis.
+Isyarat duel diberikan.
 
-Kael berusaha bertahan, menangkis serangan cakar energi lawannya. Tapi setiap benturan terasa memicu retakan baru di lantai rune arena dan... di dalam pikirannya sendiri.
+Lawan Kael melesat maju. Petir hitam meledak di bawah kakinya, mendorong tubuhnya dengan kecepatan yang nyaris tak terlihat.
 
-« Balas... Hancurkan dia... Tunjukkan siapa dirimu sesungguhnya... » bisik Fragmen di dadanya. Kael membalas dengan gelombang api spiral dua warna. Tapi lawannya malah tertawa mengejek. Sebagian tubuhnya hangus oleh api Kael, namun luka itu seketika regenerasi menggunakan sihir darah yang menjijikkan.
+Kael menghindar tipis. Cakar energi menyapu wajahnya dan menghantam lantai, meninggalkan retakan panjang pada rune arena.
 
-"Kau masih terlalu lembek, darah campuran!" ejek lawannya sambil tersenyum lebar. "Tapi
+Serangan berikutnya datang tanpa jeda. Kael menangkis, tetapi setiap benturan membuat Fragmen di dadanya bergetar semakin keras.
 
-aku bisa menciumnya... darah nagamu itu mendidih ingin keluar!" Di balkon atas, Melkisha menoleh ke arah Rowan yang berdiri tenang di sampingnya. "Kau tahu Fragmen di dalam dirinya belum stabil. Kalau dia benar-benar meledak di sini..."
+*Balas. Hancurkan dia. Tunjukkan siapa dirimu.*
 
-Rowan hanya menjawab tenang, "Maka kita akan tahu... seberapa besar potensi kehancurannya yang sesungguhnya." Di arena, Kael mulai terpojok. Tangan kirinya – lengan yang sama yang dulu retak – mulai terasa terbakar hebat. Tapi bukan api biasa seperti di tangan kanannya. Api di tangan kirinya berwarna hitam pekat, dan retakan-retakan halus menyebar cepat ke bahunya.
+Kael melepaskan spiral api dua warna. Serangan itu menghantam tubuh lawannya dan membakar separuh dadanya.
 
-"KAEL! BERHENTI!" teriak Sylvara panik. "FRAGMENT ITU AKAN MEROBEK JIWAMU
+Pria itu justru tertawa.
 
-DARI DALAM!" Kael perlahan bangkit berdiri, tubuhnya penuh luka gores dan memar. Tapi matanya... kini memerah sepenuhnya, tanpa warna biru lagi. Fragmen ketiga yang liar itu seolah mulai menyatu paksa dengan lengan kirinya.
+Daging yang hangus tumbuh kembali, disatukan oleh aliran sihir darah yang menggeliat di bawah kulit.
 
-"Aku..." suara Kael terdengar lebih dalam, bergema, seolah ada dua suara berbicara
+“Kau terlalu lembek, darah campuran,” ejeknya. “Aku bisa mencium darah naga di tubuhmu. Ia ingin keluar.”
 
-bersamaan. "...bukan lagi Kael yang kalian kenal..." Api hitam meledak. Serangan api hitam pekat meledak ke segala arah dari tubuh Kael. Para murid di tribun menutup mata atau menciptakan perisai sihir darurat. Lawan Kael lenyap seketika dalam ledakan itu – hanya menyisakan bayangan hangus berbentuk manusia di lantai rune yang kini retak parah.
+Di balkon, Melkisha melirik Rowan yang berdiri di sampingnya.
 
-"HENTIKAN DUEL INI!!" teriak Guru Arena panik. "DIA SUDAH MELEWATI BATAS
+“Fragmennya belum stabil. Jika dia meledak di sini—”
 
-KENDALI—!!" Kael terduduk lemas di tengah kobaran api hitam yang perlahan mereda. Matanya kembali menjadi dwiwarna, merah dan biru. Dia melihat tangannya yang menghitam... hangus... tapi anehnya, tidak ada rasa sakit sama sekali.
+“Kita akan mengetahui batas kehancurannya,” potong Rowan tenang.
 
-"...Aku... membunuhnya?" bisiknya pelan, ngeri.
+Di arena, Kael mulai terdesak. Lengan kirinya terasa terbakar, tetapi nyala yang muncul bukan api merah biasa. Warna hitam pekat merambat dari telapak tangannya, diikuti retakan halus yang naik menuju bahu.
 
-Sylvara segera berlari ke arena dan memeluk Kael dari belakang. "Kael, cukup... kumohon cukup... kamu belum terlambat untuk berhenti..." Rowan melihat semua itu dari balkon atas, tersenyum sangat tipis. Di tangannya, dia memegang sebuah catatan kecil berisi pola resonansi energi Fragmen Kael yang baru saja dia rekam – dan di ujung catatan itu, dia menggambar simbol Void kuno.
+“Kael, berhenti!” teriak Sylvara. “Fragmen itu akan merobek jiwamu.”
 
-"Selamat datang..." gumam Rowan pelan. "...di wilayah abu-abu antara kekuatan dan
+Kael bangkit dengan tubuh penuh luka. Kedua matanya telah berubah merah. Energi Fragmen liar menyusup ke lengan kirinya tanpa meminta izin.
 
-kehancuran mutlak."
+“Aku...” Suaranya terdengar berlapis, seolah orang lain berbicara bersamanya. “Bukan lagi Kael yang kalian kenal.”
 
-Malamnya, Kael duduk sendirian di atap akademi yang dingin, menatap langit hitam pekat yang dihiasi bintang-bintang berwarna merah darah.
+Api hitam meledak dari tubuhnya.
 
-"...Kalau kekuatan ini hanya akan membuatku semakin hancur... Kenapa aku... justru merasa semakin lengkap... setiap kali aku kehilangan sebagian dari diriku?"
+Gelombang panas menyapu arena. Murid-murid di tribun membangun perisai darurat, sementara Guru Arena berlindung di balik pilar rune.
+
+Lawan Kael hilang di dalam kobaran. Ketika api mereda, hanya bayangan hangus berbentuk manusia yang tersisa di lantai.
+
+“Hentikan duel!” Guru Arena berteriak. “Dia sudah kehilangan kendali.”
+
+Kael jatuh terduduk. Warna matanya perlahan kembali merah dan biru. Dia memandangi lengan kirinya yang menghitam.
+
+Tidak ada rasa sakit.
+
+“Aku membunuhnya?” suaranya nyaris tak terdengar.
+
+Sylvara berlari masuk dan memeluknya dari belakang.
+
+“Cukup, Kael. Kumohon. Kau belum terlambat untuk berhenti.”
+
+Dari balkon, Rowan mencatat pola resonansi energi Kael. Di akhir catatannya, dia menggambar simbol Void kuno.
+
+“Selamat datang di wilayah antara kekuatan dan kehancuran,” gumamnya.
+
+Malamnya, Kael duduk sendirian di atap akademi. Bintang-bintang merah memenuhi langit hitam.
+
+Jika kekuatan itu terus menghancurkannya, mengapa setiap kehilangan justru membuat dirinya terasa semakin utuh?
