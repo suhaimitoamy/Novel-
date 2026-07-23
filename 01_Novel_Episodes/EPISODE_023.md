@@ -1,25 +1,67 @@
 # Episode 023 — Perjanjian di bawah Bintang Asing
 
-Malam turun di oase kecil Gurun Bisikan. Api unggun yang dinyalakan Zireth masih menyala terang, namun Kael dan Sylvara memilih duduk agak jauh, menjaga jarak. Sementara Zireth sibuk membersihkan tangan mekaniknya, Sylvara berbisik pada Kael, "Aku tidak suka ini.
+Malam menyelimuti oasis. Api unggun milik Zireth masih menyala, tetapi Kael dan Sylvara duduk agak jauh darinya.
 
-Kemunculannya terlalu kebetulan." Kael mengangguk setuju. "Aku tahu. Tapi dia belum menyerang. Dan dia dari Akademi Vorth Aereth... setidaknya bukan suruhan Arkanis atau Rowan secara langsung." Dia melirik Zireth. "Kau bilang Melkisha yang mengirimmu?"
+Zireth membersihkan sambungan pada tangan mekanisnya seolah kehadiran mereka tidak mengganggu.
 
-Tanpa menoleh dari pekerjaannya, Zireth menjawab, "Ya. Tugasku mengawasimu, memastikan kau tidak meledak dan menghancurkan setengah benua sebelum potensi penuhmu tercapai. Atau setidaknya," tambahnya dengan nada datar, "sebelum Melkisha mendapatkan apa yang dia inginkan darimu."
+“Aku tidak suka ini,” bisik Sylvara. “Dia muncul terlalu tepat.”
 
-"Dan apa yang dia inginkan?" tanya Kael.
+“Aku tahu.” Kael melirik ke arah pengawas itu. “Tapi dia belum menyerang. Setidaknya dia bukan pasukan Arkanis atau pengikut Rowan.”
 
-Zireth menghentikan pekerjaannya, kini menatap Kael langsung. "Kau benar-benar tidak sadar, ya? Kau ini sebuah anomali, Kael. Darah campuran yang menyatu dengan Fragmen hidup, dan terus berevolusi. Kau bisa jadi kunci... atau bom waktu. Melkisha bertaruh kau adalah kuncinya."
+Dia meninggikan suara. “Kau benar-benar dikirim Melkisha?”
 
-Sylvara menyela, "Kunci untuk apa?" Zireth mengangkat bahu. "Membuka sesuatu yang seharusnya tetap terkunci. Atau menghancurkan sesuatu yang seharusnya abadi. Tergantung sudut pandang." Dia kembali membersihkan tangan mekaniknya. "Tapi itu urusan nanti. Faktanya, sekarang kita bertiga terjebak di gurun ini. Kebetulan, aku tahu jalan tercepat keluar dari sini menuju perbatasan utara."
+“Ya.” Zireth tidak menoleh. “Tugasku memastikan kau tidak menghancurkan setengah benua sebelum potensi penuhmu terlihat.”
 
-Kael menyipitkan mata. "Kenapa kau mau membantu kami?"
+Dia mengencangkan sebuah sekrup kecil pada ruas jarinya.
 
-Zireth tersenyum sinis. "Tujuanku adalah menjagamu tetap 'berfungsi'. Mati di gurun ini jelas tidak ada dalam rencana Melkisha untukmu. Ditambah," dia memandang langit malam sejenak, "...aku juga punya urusan pribadi di utara."
+“Atau sebelum Melkisha mendapatkan apa yang dia inginkan darimu.”
 
-Dia tidak sepenuhnya jujur, pikir Kael, tapi... kita memang butuh pemandu. Kael berkata, "Baik. Kita pergi bersama untuk sementara. Tapi kalau kau mencoba sesuatu..." Zireth tertawa kecil, suara yang sedikit serak. "Percayalah, darah campuran. Aku tidak sebodoh itu untuk menusukmu dari belakang saat kau bisa mengubahku jadi abu dengan satu jentikan jari. Kesepakatannya sederhana saja: aku tunjukkan jalan keluar, kalian berdua pastikan tidak ada monster gurun yang memakanku duluan. Begitu sampai di perbatasan utara, kita berpisah jalan."
+Kael mengerutkan kening. “Apa yang dia inginkan?”
 
-Sylvara masih tampak ragu, tapi melihat Kael yang jelas kelelahan, akhirnya dia mengangguk. "...Baiklah. Tapi awas jika kau macam-macam."
+Zireth menghentikan pekerjaannya dan menatap Kael.
 
-"Kesepakatan diterima," sahut Zireth. Zireth berdiri. "Istirahatlah kalian berdua. Kita berangkat sebelum fajar menyingsing. Malam di Gurun Bisikan bukan waktu yang baik untuk berjalan-jalan." Malam itu, Kael dan Sylvara bergantian berjaga. Zireth tampak tertidur, tapi Kael punya firasat kuat kalau pengawasnya itu tetap waspada. Sambil menatap api unggun, Kael melirik lengannya yang tersembunyi. Jalan Keempat... ternyata tidak berarti harus selalu sendirian, pikirnya. Tapi siapa yang benar-benar bisa kupercaya di jalan ini?
+“Kau anomali. Darah campuran yang menyatu dengan Fragmen hidup dan terus berubah. Kau bisa menjadi kunci atau bom waktu. Melkisha bertaruh kau adalah yang pertama.”
 
-Di atas mereka, langit malam Gurun Bisikan tampak tenang, namun bintang-bintang seolah berputar dengan pola yang ganjil. Di kejauhan, hampir tak terlihat, sebuah keretakan Void kecil sempat terbuka sesaat di udara, lalu lenyap ditelan kegelapan.
+“Kunci untuk apa?” tanya Sylvara.
+
+“Membuka sesuatu yang seharusnya tetap tertutup. Atau menghancurkan sesuatu yang dianggap abadi.” Zireth mengangkat bahu. “Tergantung siapa yang bercerita.”
+
+Dia kembali membersihkan lengannya.
+
+“Untuk sekarang, kita terjebak di gurun yang sama. Aku tahu jalan tercepat menuju perbatasan utara.”
+
+“Kenapa membantu kami?” tanya Kael.
+
+“Karena tugasku menjagamu tetap hidup.” Senyum sinis muncul di wajah Zireth. “Mati kehausan tidak termasuk rencana Melkisha.”
+
+Tatapannya beralih ke langit malam.
+
+“Selain itu, aku punya urusan pribadi di utara.”
+
+Kael tahu pria itu menyembunyikan sesuatu. Namun mereka membutuhkan pemandu, dan lengan kirinya semakin sulit dikendalikan.
+
+“Baik,” katanya. “Kita berjalan bersama sampai perbatasan. Kalau kau mencoba sesuatu—”
+
+Zireth tertawa pendek. “Aku tidak cukup bodoh untuk menusuk orang yang bisa mengubahku menjadi abu.”
+
+Dia menunjuk Sylvara dengan tangan mekanis.
+
+“Aku tunjukkan jalan keluar. Kalian memastikan makhluk gurun tidak memakanku. Setelah mencapai utara, kita berpisah.”
+
+Sylvara masih tidak menyukai kesepakatan itu, tetapi akhirnya mengangguk.
+
+“Coba macam-macam, panahku yang menjawab.”
+
+“Disepakati.”
+
+Zireth berdiri dan memadamkan sebagian api.
+
+“Istirahat. Kita berangkat sebelum fajar. Gurun ini tidak ramah kepada orang yang berjalan malam.”
+
+Kael dan Sylvara bergantian berjaga. Zireth tampak tidur, tetapi mata mekanisnya tetap memancarkan cahaya redup.
+
+Kael menatap lengan kirinya yang tersembunyi di balik kain.
+
+Jalan Keempat mungkin tidak berarti berjalan sendirian. Namun dia masih belum tahu siapa yang layak berjalan di sisinya.
+
+Di atas oasis, bintang-bintang bergerak dalam pola ganjil. Sebuah retakan Void kecil terbuka jauh di udara, lalu lenyap sebelum siapa pun menyadarinya.
