@@ -1,43 +1,69 @@
 # Episode 029 — Baja Dingin dan Kecurigaan
 
-Kelompok kecil prajurit Dwarf dari Karag Thürm, yang dipimpin oleh seorang Dwarf veteran berjanggut merah api dikepang cincin baja dan membawa kapak rune besar, mendekati Kael, Sylvara, dan Zireth yang berdiri di dekat sisa-sisa Elemental Es.
+Prajurit Dwarf mendekat dalam formasi rapat. Pemimpin mereka berjanggut merah yang dikepang dengan cincin baja dan membawa kapak rune besar di bahunya.
 
-Pemimpin patroli Dwarf itu berhenti beberapa meter di depan mereka, matanya yang tajam mengamati ketiganya, lalu ke tumpukan es yang merupakan sisa sang Elemental.
+Dia berhenti beberapa meter dari Kael, Sylvara, dan Zireth. Tatapannya menyapu ketiganya, lalu berhenti pada tumpukan es bekas tubuh Elemental.
 
-"Berhenti!" Suara beratnya menggema di udara dingin. "Siapa kalian!? Apa yang terjadi di
+“Berhenti. Siapa kalian dan apa yang terjadi di sini?”
 
-sini!?" Matanya menyipit saat melihat ciri-ciri Kael yang sedikit mirip Elf. "Seorang Elf... berkeliaran di perbatasan Karag Thürm?"
+Matanya menyipit ketika melihat ciri Elf pada Kael dan Sylvara.
 
-"Kami hanya pengelana yang kebetulan lewat," jawab Kael hati-hati. "Makhluk es ini menyerang kami lebih dulu." Pemimpin Dwarf itu menatap tajam ke sisa-sisa Elemental Es, lalu melirik ke arah mayat patroli Dwarf yang membeku tak jauh dari sana. "Makhluk ini... yang membantai pasukan kami?" Dia kembali menatap Kael penuh curiga. "Dan kalian bertiga... berhasil mengalahkannya sendirian?"
+“Elf berkeliaran di perbatasan Karag Thürm?”
 
-Zireth melangkah maju sedikit, mencoba berdiplomasi. "Kami terpaksa membela diri, Komandan. Makhluk itu tidak memberi kami pilihan lain." Pemimpin Dwarf mengamati tangan mekanik Zireth, lalu beralih ke busur rune Sylvara.
+“Kami hanya pengelana,” jawab Kael. “Makhluk itu menyerang lebih dulu.”
 
-"Peralatan aneh... seorang pemanah Elf... dan bocah berdarah campuran dengan mata menyala. Kalian jelas bukan pengelana biasa." Kapak runenya terangkat sedikit. "Atas nama Raja Thürgrom... jelaskan kehadiran kalian di wilayah terlarang kami!"
+Pemimpin patroli melirik mayat-mayat Dwarf yang membeku di jalur.
 
-"Kami sedang menuju pegunungan utara," jelas Sylvara. "Kami tidak mencari masalah."
+“Elemental ini yang membantai pasukan kami?” Dia kembali menatap Kael. “Dan kalian bertiga mengalahkannya?”
 
-"Utara?" Pemimpin Dwarf itu mengernyit. "Tidak ada apa-apa di sana kecuali badai es abadi
+Zireth melangkah maju. “Kami membela diri, Komandan. Ia tidak memberi pilihan lain.”
 
-dan reruntuhan kuno yang berbahaya. Dan belakangan ini... patroli kami yang dikirim ke sana terus menghilang. Seperti mereka yang malang itu." Dia menunjuk mayat beku dengan kapaknya. "Kalian tahu sesuatu tentang ini?"
+Tatapan Dwarf itu turun ke lengan mekanis Zireth, lalu berpindah ke busur rune Sylvara.
 
-Kael teringat ucapan Elemental Es sebelum hancur. "Makhluk tadi... dia menyebut tentang 'Gerbang Es' yang akan terbuka. Dia melarang siapapun mendekat ke utara." Ekspresi Pemimpin Dwarf itu seketika berubah menjadi lebih serius, bahkan sedikit terkejut.
+“Peralatan aneh, pemanah Elf, dan bocah bermata menyala. Kalian bukan pengelana biasa.” Kapaknya terangkat sedikit. “Atas nama Raja Thürgrom, jelaskan tujuan kalian di wilayah terlarang.”
 
-"Gerbang Es... Jadi rumor di kalangan tetua itu benar adanya." Dia menatap Kael lebih
+“Kami menuju pegunungan utara,” kata Sylvara. “Kami tidak mencari masalah.”
 
-lekat, seolah baru menyadari sesuatu. "Kau... bocah... bagaimana kau bisa tahu tentang itu? Dan kenapa Penjaga Es itu bicara padamu?" Haruskah kuceritakan tentang Fragmen? Tentang petunjuk Penjaga Kawah? pikir Kael ragu. Mereka mungkin tidak akan percaya... atau lebih buruk, menganggapku ancaman.
+“Utara?” Pemimpin patroli mengernyit. “Yang ada hanya badai abadi dan reruntuhan berbahaya. Tiga patroli kami menghilang di sana.”
 
-"Aku tidak tahu," jawab Kael, memilih berkata jujur sebagian. "Makhluk itu hanya mengatakannya sebelum menyerang." Pemimpin Dwarf menggerutu pelan, janggut merahnya bergerak-gerak saat dia berpikir keras. "Hmph... Gerbang Es... Ini urusan yang sangat serius." Dia menurunkan kapaknya sedikit. "Dengar, siapapun kalian. Aku tidak punya waktu atau wewenang untuk menginterogasi kalian di tengah badai salju ini. Tapi kalian juga tidak bisa lewat sini begitu saja."
+Dia menunjuk tubuh para prajurit dengan kapaknya.
 
-"Lalu apa yang kau inginkan dari kami?" tanya Zireth.
+“Kalian tahu sesuatu?”
 
-"Ikut kami ke pos terdepan terdekat, Kragmar. Kami butuh laporan lengkap darimu tentang makhluk es itu dan apa yang kalian lihat atau dengar tentang Gerbang Es. Setelah itu... Kapten Garn yang akan memutuskan nasib kalian."
+Kael teringat ucapan Elemental.
 
-"Ini bisa jadi jebakan," bisik Sylvara pada Kael.
+“Makhluk itu menyebut Gerbang Es. Katanya gerbang tersebut hampir terbuka dan tak seorang pun boleh mendekat.”
 
-"Mungkin," balas Kael pelan. "Tapi kita butuh istirahat, tempat berlindung, dan mungkin mereka punya informasi lebih banyak tentang 'Gerbang Es' itu." Dia lalu menatap Pemimpin Dwarf. "Baik. Kami akan ikut denganmu ke Kragmar."
+Wajah pemimpin Dwarf berubah.
 
-Pemimpin Dwarf itu memberi isyarat. Pasukannya segera mengepung Kael, Sylvara, dan Zireth dengan waspada, namun tidak mengikat mereka. Mereka mulai menggiring ketiganya berjalan mengikuti jalur menuju pos terdepan Kragmar.
+“Gerbang Es...” gumamnya. “Berarti rumor para tetua benar.”
 
-Gerbang Es... Rowan... Pengorbanan... Zireth merenung dalam diam sambil berjalan. Semua ini mulai terhubung. Dan Kael... tepat berada di tengah pusarannya.
+Tatapannya menekan Kael.
 
-Mereka berjalan di bawah pengawalan ketat prajurit Dwarf, memasuki sebuah terowongan es yang gelap dan menurun, mengarah ke pos terdepan Kragmar yang tersembunyi.
+“Bagaimana kau tahu nama itu? Kenapa penjaga es berbicara kepadamu?”
+
+Kael menahan diri untuk tidak menyebut Fragmen dan petunjuk Penjaga Kawah. Terlalu banyak kebenaran hanya akan membuat mereka dianggap ancaman.
+
+“Aku tidak tahu. Ia mengatakannya sebelum menyerang.”
+
+Dwarf itu mengusap janggutnya. Kapaknya turun, tetapi para prajurit lain tetap mengepung.
+
+“Aku tidak punya waktu menginterogasi kalian di tengah salju. Namun kalian tidak bisa lewat begitu saja.”
+
+“Apa yang kau inginkan?” tanya Zireth.
+
+“Ikut ke Pos Kragmar. Kalian akan memberikan laporan tentang Elemental dan Gerbang Es. Kapten Garn yang menentukan langkah berikutnya.”
+
+Sylvara mendekat kepada Kael. “Bisa jadi jebakan.”
+
+“Mungkin,” bisiknya. “Tapi kita butuh tempat berlindung dan informasi.”
+
+Kael menatap pemimpin patroli. “Baik. Kami ikut.”
+
+Pasukan Dwarf mengelilingi mereka tanpa mengikat tangan. Rombongan mulai bergerak menuju terowongan es yang menurun ke dalam gunung.
+
+Gerbang Es, Rowan, dan pengorbanan yang disebut dalam penglihatan Kristal Gema terus berputar dalam pikiran Kael.
+
+Semua jejak mengarah ke utara.
+
+Dan dia berjalan tepat menuju pusatnya.
