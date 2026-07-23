@@ -1,25 +1,45 @@
 # Episode 152 — Hutan Rawa Terkutuk
 
-Butiran cahaya melayang seperti abu dari bintang mati di markas pengamatan Nexus di hutan rawa. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Simulasi Nexus membawa mereka ke rawa yang tampak nyata.
 
-Sejak benturan sebelumnya, pola simulasi Nexus dan rawa yang terkorupsi terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk memahami pihak yang mengaku menjaga keseimbangan, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Air hitam mencapai betis. Pohon-pohon besar tumbuh miring, sementara lumut berpendar menutupi akar seperti urat hijau. Setiap langkah terasa lebih berat daripada seharusnya.
 
-“Ada lapisan lain di bawah Rawa Nexus. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+“Konstanta massa dan gesek berubah,” kata Zireth. Lengan bintangnya membaca lingkungan. “Ruangan ini memodifikasi hukum fisik untuk melihat cara kita beradaptasi.”
 
-Ia mengalirkan medan simulasi yang mengubah konstanta gesek dan massa melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael menggerakkan tangan. Api yang muncul langsung tertarik ke bawah dan tenggelam ke air.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Suku Lumut Sunyi dan analisis Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Di antara pepohonan, makhluk rawa bergerak. Tubuhnya terbuat dari lumpur, akar, dan lapisan geometri putih yang tidak alami.
 
-Kael menyentuh rekaman Rawa Nexus. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Korupsi Struktur,” ujar Kael.
 
-Ia memutus kontak dengan rekaman Rawa Nexus sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Makhluk-makhluk itu menyerang.
 
-“Ini bukan hanya jejak serangan di Rawa Nexus,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Kael tidak dapat mengandalkan kecepatan atau ledakan biasa. Dia memakai Pulse kecil untuk mengubah massa tanah di bawah langkah mereka, menciptakan pijakan sesaat bagi Sylvara dan Zireth.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Simulasi Nexus dan rawa yang terkorupsi telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Panah Sylvara menandai akar yang menjadi pusat kendali. Zireth menghantamnya dengan medan dari lengan bintang.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Nexus mengukur Kael sebagai aset, bukan sebagai manusia.
+Satu makhluk runtuh.
 
-“Kalau petunjuk tentang Rawa Nexus ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Namun data di langit simulasi langsung berubah. Sistem menyesuaikan diri dengan taktik tersebut, dan makhluk berikutnya muncul tanpa pusat kendali yang sama.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan simulasi Nexus dan rawa yang terkorupsi berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+“Nexus menyalin pola kita setiap kali bergerak,” kata Sylvara.
+
+Kael melihat menara sensor tersembunyi di balik kabut. “Ini bukan latihan untuk membuatku lebih kuat. Mereka sedang membangun cara mengalahkanku.”
+
+Suara Sosok Berhelm terdengar dari seluruh rawa.
+
+“Setiap aset kritis harus memiliki prosedur penahanan.”
+
+Kael menahan amarah.
+
+Di tepi rawa, beberapa sosok kecil berlumut mengintip dari antara akar. Mereka bukan bagian dari simulasi. Denyutnya terlalu tidak teratur dan hidup.
+
+“Suku lokal,” kata Zireth. “Bagaimana mereka masuk ke fasilitas?”
+
+Salah satu makhluk mengangkat tangan kurus dan menunjuk tanah.
+
+Akar hitam dari simulasi telah menembus dunia nyata di bawah markas.
+
+Rawa di luar tidak sekadar dijadikan model.
+
+Ia sedang dikorupsi oleh eksperimen Nexus sendiri.
