@@ -1,25 +1,45 @@
 # Episode 141 — Di Sisi Lain Pintu
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di bagian dalam Hati Dunia. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pintu tanpa engsel terbuka perlahan.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menyaksikan asal Zerath dan mengambil pesan pewaris. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Di baliknya tidak ada lorong, hanya ruang luas yang dipenuhi cahaya cair. Bintang, gunung, laut, dan kota muncul lalu menghilang di udara seperti ingatan yang belum memilih bentuk.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan tangan Sylvara yang menjaga Kael tetap mengingat namanya, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael melangkah masuk bersama Sylvara dan Zireth.
 
-Kael memusatkan napas dan menggunakan superposisi kuantum pada ingatan penciptaan. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan.
+“Ini Hati Dunia?” tanya Sylvara.
 
-Denyut Ruang Penciptaan segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Lebih tua dari semua Leyline yang pernah kupindai,” jawab Zireth. Lengan bintangnya berdenyut mengikuti cahaya sekitar. “Tempat ini menyimpan kemungkinan, bukan hanya energi.”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di Ruang Penciptaan, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael merasakan Ragnarok Pulse berubah. Setiap denyut memunculkan beberapa versi gerakannya sekaligus: dirinya yang maju, berhenti, atau tidak pernah memasuki pintu.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan tangan Sylvara yang menjaga Kael tetap mengingat namanya, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Sylvara menggenggam pergelangan tangannya.
 
-Di balik penghalang Ruang Penciptaan, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa bagian dalam Hati Dunia melupakan bentuk alaminya.
+“Kael. Ingat namamu.”
 
-“Kita sudah melewati pintu Ruang Penciptaan, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Sentuhan itu menyatukan bayangan-bayangan dirinya kembali.
 
-Suara pertama dari gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Mereka bergerak lebih dalam. Gelombang penciptaan muncul dari lantai dan berusaha mengurai tubuh menjadi kemungkinan yang terpisah.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Ruang Penciptaan terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kael tidak melawannya dengan ledakan. Dia mengunci fase tubuh pada satu pilihan—pilihan untuk tetap berjalan bersama kedua temannya.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama gelombang penciptaan yang dapat mengurai tubuh menjadi kemungkinan muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Ruang Penciptaan baru saja dimulai.
+Ruang bergetar.
+
+Dari cahaya terbentuk sosok-sosok Kael yang tidak pernah ada: Kael sebagai raja, monster, pahlawan, dan mayat tanpa nama.
+
+Semuanya menatapnya.
+
+*Pilih satu bentuk dan tinggalkan sisanya.*
+
+Kael mengepalkan tangan.
+
+“Aku tidak dibentuk oleh satu kemungkinan.”
+
+Pulse tiga warna menyebar tipis dan menyatukan jalur di depan tanpa menghancurkan yang lain.
+
+Sosok-sosok itu retak menjadi cahaya.
+
+Di kejauhan, sebuah altar muncul. Di atasnya berputar gambaran Zerath sebelum perang, sebelum kekaisaran, bahkan sebelum para dewa memiliki nama.
+
+Mereka telah mencapai Ruang Penciptaan.
+
+Dan sesuatu di sana telah menunggu seorang pewaris yang mampu menolak takdir tunggal.
