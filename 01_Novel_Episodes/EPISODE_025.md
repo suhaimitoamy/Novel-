@@ -1,49 +1,85 @@
 # Episode 025 — Ngarai Gema Kebenaran
 
-Kael, Sylvara, dan Zireth memasuki sebuah ngarai sempit yang diapit tebing batu tinggi. Udara di dalamnya terasa gelap dan lembab.
+Kael, Sylvara, dan Zireth memasuki ngarai sempit yang diapit tebing tinggi. Udara di dalamnya lembap dan dingin, jauh berbeda dari panas gurun di belakang mereka.
 
-"Ngarai Gema," kata Zireth, suaranya sedikit tertahan oleh atmosfer tempat itu. "Hati-hati melangkah. Dan... jangan terlalu percaya pada apa yang mungkin kalian dengar di sini."
+“Ngarai Gema,” kata Zireth. Suaranya terdengar berat di antara dinding batu. “Jaga langkah. Dan jangan langsung percaya pada apa yang kalian dengar.”
 
-"Kenapa disebut Ngarai Gema?" tanya Sylvara, melihat sekeliling dengan waspada.
+Sylvara mengamati celah-celah gelap di tebing. “Kenapa disebut begitu?”
 
-Zireth menjelaskan, "Karena dinding batu di ngarai ini punya kebiasaan aneh. Mereka memantulkan bukan hanya suara, tapi juga gema pikiran... ketakutan... dan terkadang, kebenaran yang paling ingin kau sembunyikan."
+“Dinding di sini tidak hanya memantulkan suara.” Zireth berjalan paling depan. “Mereka mengembalikan pikiran, ketakutan, dan kadang kebenaran yang paling ingin kau sembunyikan.”
 
-Mereka berjalan lebih dalam ke perut ngarai. Suara langkah kaki mereka bergema aneh, memantul berkali-kali hingga menciptakan ilusi seolah ada banyak orang lain yang mengikuti tepat di belakang mereka. Tempat ini... membuatku gelisah, batin Kael. Rasanya seperti dinding-dinding ini punya telinga... dan mulut.
+Langkah mereka bergema berkali-kali, menciptakan kesan seolah rombongan lain mengikuti dari belakang.
 
-Tiba-tiba, sebuah suara terdengar dari gema di belakang, suara yang begitu familiar hingga menusuk hatinya.
+Kael menahan keinginan untuk menoleh. Tempat itu terasa memiliki telinga—dan mulut.
 
-"...Kenapa kau menyentuh batu itu, Kael...? Kenapa...?"
+Sebuah suara muncul dari gema.
 
-Kael berhenti mendadak, berbalik dengan kaget. "Ibu!?" serunya.
+“Kenapa kau menyentuh batu itu, Kael?”
 
-"Kael! Itu hanya gema!" balas Sylvara cepat.
+Kael berhenti.
 
-Zireth menambahkan, "Gema yang menarik ketakutan terbesarmu. Teruslah berjalan, jangan hiraukan." Meskipun ragu, Kael memaksa dirinya terus berjalan. Tak lama, gema lain terdengar, kali ini suara Penjaga Elf yang pernah dia lawan di desanya.
+Suara ibunya.
 
-"...Pembawa bencana... Kau seharusnya mati..."
+“Kenapa?”
 
-Kael menggertakkan giginya, mempercepat langkah. "Ini tidak nyata... ini tidak nyata..." bisiknya pada diri sendiri. Namun, kini giliran Sylvara yang terhenti, wajahnya tiba-tiba pucat pasi. Dia mendengar suara lain, suara lembut yang begitu familiar baginya.
+“Ibu?” Kael berbalik.
 
-"...Pengkhianat... Kau meninggalkan kami demi dia..."
+“Kael, itu hanya gema,” ujar Sylvara.
 
-"Tidak..." desis Sylvara.
+“Terus berjalan,” tambah Zireth. “Ia sedang menarik ketakutanmu.”
 
-Kael, melihat reaksinya, bertanya, "Sylvara? Kau dengar apa?" Sylvara menggeleng cepat, berusaha keras menyembunyikan keterkejutannya. "Bukan apa-apa. Hanya... gema aneh." Dari belakang, Zireth mengamati interaksi mereka dengan senyum tipis yang nyaris tak terlihat. Ngarai ini selalu menarik, pikirnya. Cara dia membuka luka lama...
+Kael memaksa kakinya bergerak.
 
-Mereka akhirnya sampai di bagian ngarai yang lebih lebar. Di tengah area terbuka itu, berdiri sebuah formasi kristal biru yang besar, memancarkan cahaya redup dan tampak berdenyut pelan.
+Gema lain menyusul, kali ini suara penjaga Elf dari Aranyel.
 
-"Kristal Gema," kata Zireth. "Itu sumber dari semua gema ini. Jangan disentuh. Kita cukup melewatinya." Namun, saat mereka mendekati kristal itu, gema suara menjadi semakin kuat, semakin personal, menusuk langsung ke pikiran Kael.
+“Pembawa bencana. Kau seharusnya mati.”
 
-"...Kau hanya menari dengan lukamu... sebentar lagi kau akan ditelannya..." (Suara Dark
+“Tidak nyata,” gumam Kael. “Semua ini tidak nyata.”
 
-Kael)
+Sylvara mendadak berhenti. Wajahnya kehilangan warna.
 
-"...Hancurkan saja semua, Kael... lebih mudah..." (Suara Rowan)
+“Pengkhianat,” bisik suara dari dinding. “Kau meninggalkan kami demi dia.”
 
-"...Aku monster... Aku pembunuh..." (Suara Kael sendiri)
+“Tidak.”
 
-Tak tahan lagi, Kael berteriak sambil menutup kedua telinganya. "DIAM!!!" Luapan emosinya memicu reaksi hebat dari Fragmen di dadanya. Energi merah dan biru bergolak liar di sekeliling tubuhnya. Kristal Gema di tengah ngarai langsung bereaksi terhadap lonjakan energi itu, bergetar hebat dengan suara mendengung keras.
+Kael menoleh. “Apa yang kau dengar?”
 
-"Bodoh! Jangan gunakan kekuatanmu di sini!" teriak Zireth terlambat.
+“Bukan apa-apa.” Sylvara mempercepat langkah. “Hanya suara ngarai.”
 
-Cahaya biru dari Kristal Gema meledak keluar dengan kekuatan dahsyat, menyapu dan mengenai mereka bertiga. Kael, Sylvara, dan Zireth terlempar ke belakang oleh ledakan cahaya biru itu. Pandangan mereka kabur, telinga berdenging. Gema terakhir yang terdengar sebelum kesadaran mereka memudar adalah suara tawa dingin yang menggema, memantul di dinding Ngarai Gema.
+Di belakang mereka, Zireth mengamati tanpa komentar. Senyum tipis muncul sebentar di wajahnya.
+
+Mereka mencapai bagian ngarai yang lebih lebar. Formasi kristal biru berdiri di tengah ruang terbuka dan berdenyut seperti jantung.
+
+“Kristal Gema,” kata Zireth. “Sumber semua suara di sini. Jangan disentuh. Kita hanya perlu melewatinya.”
+
+Semakin dekat, gema menyerang pikiran Kael dengan lebih tajam.
+
+“Kau hanya belajar menari bersama lukamu. Sebentar lagi luka itu menelanmu.”
+
+Suara Dark Kael.
+
+“Hancurkan saja semuanya. Jauh lebih mudah.”
+
+Rowan.
+
+“Aku monster. Aku pembunuh.”
+
+Suaranya sendiri.
+
+Kael menutup telinga, tetapi gema tidak datang dari udara. Ia muncul langsung dari dalam kepalanya.
+
+“Diam!”
+
+Fragmen di dadanya bereaksi terhadap luapan emosi. Energi merah dan biru berputar liar mengelilingi tubuhnya.
+
+Kristal Gema menjawab dengan dengungan keras.
+
+“Jangan gunakan kekuatan di sini!” teriak Zireth.
+
+Terlambat.
+
+Cahaya biru meledak dari kristal dan menyapu seluruh ngarai. Kael, Sylvara, dan Zireth terlempar ke belakang.
+
+Pandangan Kael memutih. Telinganya berdenging, tetapi satu suara masih terdengar sebelum kesadarannya hilang.
+
+Tawa dingin yang memantul dari satu dinding ke dinding lain.
