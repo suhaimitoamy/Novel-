@@ -1,37 +1,63 @@
 # Episode 021 — Jejak di Pasir
 
-Kael masih terpaku di tempatnya, menatap sosok di depannya dengan campuran antara kaget, tidak percaya, dan curiga. "Zireth? Pengawas dari Akademi Vorth Aereth? Di tengah Gurun Bisikan?" Sosok yang mengaku bernama Zireth itu tertawa kecil lagi. "Kau terlihat sangat terkejut, Kael Drayven. Apakah Melkisha tidak memberitahumu kalau dia akan mengirim seseorang untuk 'memastikan aset berharganya' tidak meledak sebelum waktunya?"
+Kael masih memandangi pria di depan api unggun.
 
-"Melkisha yang mengirimmu?" tanya Kael, suaranya masih terdengar ragu. "Bagaimana kau
+“Zireth? Pengawas Vorth Aereth? Di tengah Gurun Bisikan?”
 
-bisa sampai di sini secepat ini? Dan... tanganmu itu?" Dia menunjuk ke tangan mekanik Zireth.
+Pria itu tertawa kecil. “Kau tampak sangat terkejut, Kael Drayven. Melkisha tidak memberi tahu bahwa dia mengirim seseorang untuk memastikan aset berharganya tidak meledak sebelum waktunya?”
 
-"Aku punya caraku sendiri untuk bepergian cepat," jawab Zireth samar. "Dan ini?" Dia
+“Melkisha yang mengirimmu?” Kael tidak menurunkan kewaspadaan. “Bagaimana kau sampai di sini begitu cepat? Dan lengan itu?”
 
-menepuk tangan mekaniknya. "Anggap saja hasil eksperimen pribadi yang sedikit berhasil. Lebih berguna daripada sihir penyembuhan yang lambat."
+“Aku punya cara sendiri untuk bepergian.” Dia menepuk tangan mekanisnya. “Yang ini hasil eksperimen pribadi. Lebih berguna daripada menunggu sihir penyembuhan bekerja.”
 
-"Jadi..." Kael mulai menghubungkan titik-titik. "Jejak sepatu bot misterius yang kami
+Kael teringat jejak yang mereka temukan.
 
-temukan di dekat bangkai Sky-skiff... dan di dekat kawah Fragmen kelima... itu jejakmu?"
+“Sepatu bot di dekat Sky-skiff dan kawah. Itu milikmu?”
 
-"Tepat sekali," Zireth mengangguk santai. "Aku mengikuti petunjuk jatuhnya 'bintang ungu' itu, sama sepertimu. Lalu aku melihat Sky-skiffmu jatuh. Aku sempat memeriksanya, tapi sayang sekali mesin runenya hancur total." Dia kembali duduk di dekat api unggun. "Lalu aku melihat pertunjukan cahaya yang cukup menarik dari arah kawah. Pertarungan yang hebat, sepertinya?"
+“Tepat.” Zireth kembali duduk di dekat api. “Aku mengikuti jatuhnya bintang ungu. Aku juga memeriksa bangkai pesawat itu, tetapi mesinnya sudah tidak dapat diselamatkan.”
 
-"Kau melihat pertarungan kami melawan Penjaga Kawah?" tanya Kael.
+Dia membalik daging kadal di atas bara.
 
-"Sulit untuk tidak melihat ledakan energi sebesar itu di tengah gurun yang sunyi," jawab Zireth sambil membalik daging kadal panggangnya. "Jadi... kau berhasil mendapatkan Fragmen kelima?" Kael menggeleng. "Tidak. Aku... memilih untuk tidak mengambilnya."
+“Setelah itu, aku melihat cahaya dari kawah. Pertarungan besar?”
 
-Zireth mengangkat sebelah alisnya, tampak sedikit terkejut namun juga tertarik. "Oh? Memilih untuk tidak mengambil kekuatan sebesar itu? Keputusan yang sangat... tidak biasa. Terutama untuk seseorang yang membawa beban sepertimu." Dia menatap Kael lekat. "Lalu apa yang kau dapatkan?"
+“Kau melihat kami menghadapi Penjaga Kawah?”
 
-"Petunjuk," jawab Kael. "Ke arah utara. Menuju 'Gema Kebenaran' di 'Langit Beku'."
+“Ledakan energi sebesar itu sulit dilewatkan.” Tatapan Zireth beralih ke dada Kael. “Jadi, kau mendapatkan Fragmen kelima?”
 
-"'Gema Kebenaran' di 'Langit Beku'..." Zireth bergumam, tampak berpikir. "Utara... berarti
+Kael menggeleng. “Aku memilih meninggalkannya.”
 
-menuju Pegunungan Es Karag Thürm atau wilayah Iskali." Dia mengambil daging panggangnya dari api. "Menarik sekali. Sepertinya tujuan kita searah untuk sementara waktu."
+Alis Zireth terangkat. “Kau menolak kekuatan sebesar itu?”
 
-"Tunggu dulu," potong Kael. "Aku belum tentu percaya padamu. Bagaimana aku tahu kau benar-benar dikirim oleh Melkisha dan bukan orang lain?" Terdengar suara dari atas tebing tempat Sylvara bersembunyi. "Kael! Hati-hati! Dia bisa saja berbohong!"
+“Fragmen tersebut sedang menyembuhkan Zerath. Mengambilnya akan merusak keseimbangan.”
 
-Zireth melambaikan tangannya santai ke arah suara Sylvara. "Halo juga, Pemanah Elf. Tidak perlu secemas itu. Jika aku berniat jahat, aku sudah menyerang kalian sejak kalian keluar dari kawah tadi." Dia kembali menatap Kael. "Percaya atau tidak, itu terserah padamu. Tapi fakta bahwa aku ada di sini, tahu namamu, tahu tentang Fragmen kelima, dan tahu tentang Akademi Vorth Aereth... seharusnya cukup sebagai bukti awal, bukan?"
+“Keputusan yang tidak biasa untuk orang dengan beban sepertimu.” Zireth menyipitkan mata. “Apa yang kau bawa pulang dari kawah?”
 
-Dia menunjuk ke arah daging panggangnya. "Sekarang... kau mau bergabung atau tidak? Perjalanan ke utara dari sini sangat panjang dan berbahaya sendirian, apalagi setelah keributan yang kau timbulkan di kawah tadi."
+“Petunjuk. Gema Kebenaran di bawah Langit Beku.”
 
-Kael masih ragu. Kehadiran Zireth yang tiba-tiba ini terlalu aneh, terlalu kebetulan. Tapi di sisi lain... dia memang membutuhkan bantuan dan informasi untuk perjalanan ke utara. Dan Zireth tampak tahu banyak. Apakah ini bantuan dari Melkisha... atau ada agenda lain di baliknya? pikir Kael dalam hati, menimbang pilihannya di bawah langit senja Gurun Bisikan yang mulai gelap.
+Zireth mengulang kata-kata itu pelan. “Utara. Pegunungan Es Karag Thürm atau wilayah Iskali.”
+
+Dia mengambil daging dari api.
+
+“Sepertinya tujuan kita searah.”
+
+“Aku belum percaya padamu,” kata Kael. “Mengetahui namaku dan Vorth Aereth bukan bukti bahwa Melkisha mengirimmu.”
+
+Suara Sylvara datang dari tebing.
+
+“Kael, jangan lengah. Dia bisa berbohong.”
+
+Zireth mengangkat tangan ke arah tempat persembunyiannya. “Halo, Pemanah Elf. Jika berniat membunuh kalian, aku punya banyak kesempatan sejak kalian keluar dari kawah.”
+
+Dia menatap Kael lagi.
+
+“Percaya atau tidak, terserah. Tapi aku tahu namamu, Fragmen kelima, dan tujuan akademi. Anggap itu bukti awal.”
+
+Zireth menunjuk daging panggang.
+
+“Sekarang, kau mau makan atau terus berdiri di sana? Perjalanan ke utara masih panjang.”
+
+Kael tetap ragu. Kemunculan pria itu terlalu tepat, dan jawabannya selalu menyisakan ruang untuk kebohongan.
+
+Namun mereka membutuhkan informasi dan jalan keluar dari gurun.
+
+Di bawah langit senja, Kael harus memutuskan apakah bantuan tersebut pantas menerima kepercayaan—meski hanya untuk sementara.
