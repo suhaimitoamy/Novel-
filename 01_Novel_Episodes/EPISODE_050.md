@@ -1,41 +1,67 @@
 # Episode 050 — Arah Baru, Luka Lama
 
-Kembali di Pos Terdepan Kragmar, suasana terasa berbeda. Kael, Sylvara, dan Zireth kini ditempatkan di ruang tamu yang lebih layak, bukan lagi sel dingin. Kapten Garn telah memastikan mereka mendapatkan perawatan luka ringan dan perbekalan baru sebagai tanda terima kasih.
+Kembali di Pos Kragmar, Kael, Sylvara, dan Zireth tidak lagi ditempatkan di sel. Kapten Garn memberi mereka kamar tamu, perawatan, dan perbekalan baru sebagai balasan atas kejadian di Puncak Beku.
 
-Zireth, meskipun tangan mekaniknya sedikit rusak akibat pertarungan, sibuk menghubungkannya ke konsol arsip Dwarf yang diizinkan Garn untuk mereka akses.
+Zireth menghubungkan lengan mekanisnya yang rusak ke konsol arsip Dwarf.
 
-"Kapten Garn memberikan kita akses terbatas ke arsip peta utara kuno mereka," lapor Zireth. "Pegunungan es yang ditunjuk oleh peta bintang mentalmu, Kael... kemungkinan besar adalah Puncak Aethelgard. Itu adalah perbatasan kuno yang terlupakan antara wilayah Iskali dan wilayah Kekaisaran Celestial Lykaros yang hilang."
+“Garn memberi akses terbatas pada peta utara.” Data bergerak di layar. “Arah pada peta bintangmu kemungkinan menuju Puncak Aethelgard.”
 
-"Celestial? Kekaisaran Lykaros?" Sylvara mengerutkan kening. "Kupikir mereka hanya mitos
+Sylvara mendekat. “Wilayah Celestial Lykaros?”
 
-dalam dongeng Elf?"
+“Perbatasan kuno antara Iskali dan kekaisaran mereka yang hilang.”
 
-"Tidak sepenuhnya mitos," jawab Zireth sambil terus mengunduh data. "Ada beberapa catatan kuno Karag Thürm tentang interaksi terbatas dengan mereka ribuan tahun yang lalu, sebelum bangsa Celestial konon 'naik ke bintang' atau menghilang begitu saja."
+“Kupikir Lykaros hanya dongeng Elf.”
 
-Kael duduk diam di sudut ruangan, memikirkan semua yang telah terjadi. Dia merasa lebih kuat setelah konfrontasi di Puncak Beku, energi Fragmen di dadanya terasa lebih stabil, namun di saat bersamaan, dia merasa ada kekosongan atau perubahan aneh dalam dirinya.
+“Tidak sepenuhnya.” Zireth membuka catatan tua. “Karag Thürm pernah berhubungan dengan bangsa Celestial ribuan tahun lalu. Setelah itu mereka dikatakan naik ke bintang atau menghilang.”
 
-"Jadi Fragmen berikutnya... atau setidaknya petunjuk berikutnya... mungkin ada di reruntuhan wilayah Celestial kuno itu?"
+Kael duduk di sudut ruangan, masih merasakan sisa pertempuran pada tubuhnya.
 
-"Sangat mungkin," konfirmasi Zireth. "Atau setidaknya, informasi penting berikutnya ada di sana." Kael menatap Sylvara, lalu ke Zireth. "Rowan... Arsitek... Gerbang Es... Nyanyian Kehampaan... Semua ini terasa seperti bagian dari sebuah rencana yang jauh lebih besar daripada sekadar mengumpulkan kedua belas Fragmen Zerath." Dia mengepalkan tangannya. "Aku tidak bisa hanya mengikuti petunjuk Fragmen satu per satu seperti bidak catur. Aku harus tahu apa rencana besar mereka sebenarnya."
+Fragmen di dada terasa lebih stabil setelah menyelaraskan Gerbang Es. Sebaliknya, lengan kirinya seperti menyimpan sesuatu yang baru—bukan sekadar rasa sakit, melainkan ruang asing yang terus berkembang.
 
-"Lalu apa yang akan kita lakukan sekarang?" tanya Sylvara.
+“Berarti petunjuk berikutnya berada di reruntuhan Celestial?”
 
-Kael berdiri, menghampiri peta utara yang ditampilkan oleh Zireth. Mata merah dan birunya menatap peta itu dengan intensitas baru. "Kita tetap menuju Puncak Aethelgard. Tapi tujuan kita bukan hanya mencari Fragmen. Kita akan mencari informasi tentang bangsa Celestial kuno, tentang Sang Arsitek, tentang apapun yang bisa mengungkap rencana Rowan dan menghentikannya."
+“Bisa jadi Fragmen, bisa juga informasi,” jawab Zireth. “Kita tidak akan tahu sebelum sampai.”
 
-Zireth mengangguk. "Itu misi yang sangat sulit. Wilayah itu kemungkinan belum terjamah atau terpetakan selama ribuan tahun."
+Kael memandang peta.
 
-"Jalan Keempat tidak pernah mudah," sahut Kael tegas. Tiba-tiba, Kael mencengkeram lengan kirinya. Rasa sakit tajam yang familiar menjalar. Namun kali ini rasanya berbeda. Bukan hanya nyeri tumpul atau sensasi terbakar, tapi seperti ada sesuatu yang mencoba... berkomunikasi dari dalam korupsi Void itu?
+“Rowan, Sang Arsitek, Gerbang Es, Nyanyian Kehampaan... Semua ini lebih besar daripada perburuan dua belas Fragmen.”
 
-"Aargh!" Kael meringis.
+Tangannya mengepal.
 
-"Kael! Lenganmu!" seru Sylvara khawatir.
+“Aku tidak bisa terus mengikuti petunjuk seperti bidak yang digerakkan orang lain.”
 
-Retakan hitam di lengan Kael berpendar ungu gelap lebih terang dari sebelumnya. Samar-samar, Kael seperti mendengar gema suara di benaknya – bukan bisikan Void yang kacau seperti dulu, tapi suara dingin, datar, dan sangat terstruktur.
+“Apa rencanamu?” tanya Sylvara.
 
-« ...Struktur... diterima... Integrasi... tingkat primer... dimulai... » Kael terkejut, tidak mengerti. "Integrasi? Apa maksudnya!?"
+“Kita tetap menuju Aethelgard. Tapi tujuan kita bukan hanya mencari kekuatan. Kita akan mencari sejarah Lykaros dan apa pun yang menjelaskan rencana Sang Arsitek.”
 
-Zireth dengan cepat mengarahkan pemindai daruratnya ke lengan Kael. Matanya (yang asli) melebar di balik kacamatanya. "Ini... tidak mungkin! Pembacaan energi Void itu... tidak lagi bersifat merusak murni... tapi... menyatu dengan struktur energi Fragmen alamimu!?
+Zireth mengangguk. “Wilayah itu tidak dipetakan selama ribuan tahun.”
 
-Membentuk pola energi baru yang stabil!?" Di lengan Kael, retakan hitam legam itu kini tampak dihiasi oleh pola rune ungu tipis yang rumit, bersinar sangat redup, seolah menyatu permanen dengan kulit dan aliran energinya.
+“Jalan Keempat memang tidak pernah mudah.”
 
-Kekuatan dan korupsinya tampaknya telah memasuki fase baru yang sama sekali tidak diketahui dan berpotensi lebih berbahaya.
+Rasa sakit menusuk lengan kiri Kael.
+
+Dia membungkuk sambil mencengkeramnya. Retakan hitam menyala ungu jauh lebih terang daripada sebelumnya.
+
+“Kael!” Sylvara segera mendekat.
+
+Sebuah suara muncul di dalam pikirannya.
+
+Bukan bisikan kacau Void. Suara itu dingin, datar, dan teratur.
+
+*Struktur diterima. Integrasi tingkat primer dimulai.*
+
+Kael menahan napas. “Integrasi apa?”
+
+Zireth mengarahkan pemindai ke lengan tersebut. Pembacaan energi membuat wajahnya berubah.
+
+“Korupsi Void-nya tidak lagi hanya merusak.”
+
+Pola rune ungu tipis muncul di sepanjang retakan dan menyatu dengan kulit Kael.
+
+“Energi itu sedang menggabungkan diri dengan struktur Fragmenmu,” lanjut Zireth. “Membentuk pola baru yang stabil.”
+
+Kael memandangi lengannya.
+
+Kekuatan dan korupsi yang selama ini saling melawan telah memasuki tahap baru.
+
+Dan tak seorang pun tahu apakah perubahan itu akan menyelamatkannya atau menyelesaikan kehancuran yang telah dimulai.
