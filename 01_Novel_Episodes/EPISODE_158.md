@@ -1,25 +1,55 @@
 # Episode 158 — Ujian Kepercayaan
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di jantung rawa terkutuk. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Agen penyusup mengubah taktik setelah pesan terintersep.
 
-Serangan agen penyusup dan akar pemakan ingatan datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ia tidak lagi menyerang Kael. Akar hitam berbalik menuju anggota Suku Lumut dan memakai wajah orang-orang yang mereka cintai untuk memancing keraguan.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan nyanyian Suku Lumut dan lengan bintang Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+“Kael membawa Void,” bisik salah satu wajah palsu. “Nexus membawa mesin. Kalian mengundang dua racun ke rumah sendiri.”
 
-Kael menerapkan resonansi biologis pada jaringan akar. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sebagian anggota suku menghentikan nyanyian.
 
-“Sekarang, Kael! Simpul Ritual Lumut Sunyi ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Ritual pemurnian goyah.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh jantung rawa terkutuk sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Pemimpin suku mengangkat tongkat kayu. “Teruskan. Ketakutan bukan kebenaran.”
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Dalam benturan Ritual Lumut Sunyi, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Namun akar memunculkan rekaman Nexus yang menyebut Kael sebagai aset dan ancaman yang harus dapat dihentikan.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Ritual Lumut Sunyi tetap memiliki batas yang tak boleh dilanggar.
+Kali ini tuduhannya tidak sepenuhnya palsu.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan nyanyian Suku Lumut dan lengan bintang Zireth untuk menghantam pusat kendali yang baru terlihat.
+Sylvara menatap Sosok Berhelm. “Katakan kepada mereka.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Arsitek sedang menanam Wadah Sekunder di Rhythor. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Penjaga Nexus itu diam beberapa detik.
 
-Kael merasakan kemenangan kecil atas lapisan luar Ritual Lumut Sunyi, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh jantung rawa terkutuk menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+“Benar. Nexus memiliki protokol untuk menahan atau membunuh Kael jika dia kehilangan kendali.”
 
-“Kita membangunkan pusat Ritual Lumut Sunyi,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama agen penyusup dan akar pemakan ingatan mulai bergerak dari kedalaman.
+Nyanyian semakin melemah.
+
+Kael tidak mencoba membantah. “Mereka tidak mempercayaiku sepenuhnya. Kalian juga tidak harus.”
+
+Dia menurunkan Zerath's Fang dan membuka kedua tangan.
+
+“Tapi rawa ini harus selamat tanpa tunduk kepada Nexus atau kepadaku. Kalian yang menentukan irama ritual. Aku hanya akan mengikuti.”
+
+Pemimpin suku memandangnya lama.
+
+Kemudian dia mulai bernyanyi sendiri.
+
+Satu suara menyusul. Lalu suara lain.
+
+Seluruh suku kembali bergabung, bukan karena mereka percaya tanpa syarat, melainkan karena Kael memberi mereka hak untuk menghentikannya jika dia melanggar janji.
+
+Ritual menjadi lebih kuat.
+
+Agen penyusup menyerang pusat nyanyian. Sylvara dan Zireth menahannya, sementara Kael menyalurkan resonansi sesuai irama suku.
+
+Sosok Berhelm berdiri pada sisi terakhir lingkaran.
+
+Untuk sesaat dia ragu, lalu menancapkan tombaknya ke tanah dan memutus aliran data Nexus yang memberi makan korupsi.
+
+“Pelanggaran protokol dicatat,” kata zirahnya.
+
+“Biarkan,” jawabnya.
+
+Kepercayaan di rawa tidak lahir dari rahasia yang disembunyikan.
+
+Ia lahir setelah semua pihak memperlihatkan pisau yang mereka simpan—dan memilih tidak menggunakannya.
