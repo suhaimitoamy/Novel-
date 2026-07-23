@@ -1,47 +1,73 @@
 # Episode 026 — Kebenaran dalam Kristal
 
-Kael tersadar dengan kepala pusing. Dia terbaring di tanah berbatu Ngarai Gema, cahaya biru redup dari Kristal Gema masih menyinari area itu.
+Kael tersadar di lantai berbatu Ngarai Gema. Kepalanya berdenyut, sementara cahaya biru dari Kristal Gema masih menyelimuti ruang terbuka itu.
 
-"Ngh... Sylvara? Zireth?" panggilnya lirih.
+“Sylvara? Zireth?”
 
-Dia melihat Sylvara dan Zireth juga baru saja sadar tak jauh darinya, keduanya tampak terguncang oleh ledakan tadi.
+Keduanya terbaring tidak jauh darinya dan mulai bergerak.
 
-"Apa... apa yang terjadi?" tanya Sylvara, mencoba duduk.
+“Apa yang terjadi?” Sylvara mencoba duduk.
 
-Zireth memeriksa tangan mekaniknya yang sedikit berpercik. "Fragmen di dadamu bereaksi dengan Kristal Gema, Pewaris. Kombinasi energi yang buruk. Kita masih beruntung hanya terlempar." Kael mencoba berdiri, namun merasakan sesuatu yang sangat aneh. "Aku... merasa...
+Zireth memeriksa lengan mekanisnya yang mengeluarkan percikan kecil. “Fragmenmu bereaksi dengan kristal. Kita beruntung hanya terlempar.”
 
-berbeda." Dia melihat tangannya—terlihat normal. Tapi saat dia mencoba memanggil api khasnya... tidak ada yang keluar.
+Kael berdiri perlahan. Ada sesuatu yang terasa kosong di dalam tubuhnya.
 
-"Kekuatanku...!?" serunya, nada panik mulai terdengar. "Kenapa tidak bisa keluar!?"
+Dia mencoba memanggil api.
 
-Sylvara, ikut mencoba, mendapati panah rune-nya juga kehilangan cahayanya. "Sihirku juga... tidak bekerja!"
+Tidak ada nyala yang muncul.
 
-"Kristal itu..." Zireth menganalisis, "Untuk sementara waktu, ia menetralkan hubungan kita
+“Kekuatanku...” Kael menatap telapak tangannya. “Kenapa tidak bekerja?”
 
-dengan sumber kekuatan masing-masing. Mungkin efek samping dari ledakan tadi." Dia mencoba mengaktifkan alat kecil di lengannya, namun gagal. "Teknologi rune juga kena dampaknya. Hebat." Tiba-tiba, permukaan Kristal Gema yang tadinya tenang mulai beriak, menampilkan gambaran-gambaran kabur, seperti pantulan rusak di air.
+Sylvara menarik panah rune. Cahayanya juga mati.
 
-"Lihat! Kristal itu..." seru Sylvara.
+“Sihirku hilang.”
 
-Gambaran di kristal perlahan menjadi lebih jelas. Mereka melihat... diri mereka sendiri, beberapa saat yang lalu, saat gema suara menyerang pikiran mereka. Kristal itu tanpa ampun menunjukkan ketakutan terdalam Kael: rasa bersalah atas kematian ibunya, ketakutannya menjadi monster. Lalu beralih menunjukkan keraguan Sylvara: sosok misterius yang memanggilnya pengkhianat karena meninggalkan masa lalunya. Anehnya, saat giliran Zireth, kristal itu hanya menampilkan layar statik biru, sebelum berganti menunjukkan gambaran roda gigi rumit yang berputar tanpa henti.
+Zireth mencoba mengaktifkan salah satu alat pada lengannya. Mekanismenya bergerak setengah putaran lalu berhenti.
 
-Kael menatap ngeri pada ketakutannya yang terpampang jelas. "Dia... menunjukkan isi kepala kita?"
+“Kristal itu memutus hubungan kita dengan sumber energi. Untuk sementara, semoga.” Dia mengembuskan napas. “Teknologi rune juga terkena.”
 
-"Seperti yang kubilang," sahut Zireth datar. "Ngarai ini memantulkan kebenaran... atau setidaknya, apa yang kita yakini sebagai kebenaran." Dia menatap pantulan statik dirinya di kristal dengan ekspresi yang sulit dibaca.
+Permukaan Kristal Gema beriak.
 
-Sylvara menatap Zireth dengan curiga. "Kenapa pikiranmu... tidak terlihat?" Zireth tersenyum miring. "Mungkin karena aku tidak punya ketakutan? Atau... mungkin pikiranku terlalu rumit untuk bisa dibaca batu bodoh ini."
+Gambaran kabur muncul seperti pantulan di air. Mereka melihat diri mereka beberapa saat sebelum ledakan.
 
-Tiba-tiba, kristal itu berkedip merah. Gambaran lain yang sama sekali berbeda muncul: Rowan, berdiri di depan sebuah altar Void yang gelap, berbicara pada sosok berjubah hitam pekat yang wajahnya tak terlihat.
+Kristal menampilkan ketakutan Kael tanpa menyembunyikan apa pun: Aranyel yang terbakar, wajah ibunya, dan sosok monster yang memakai tubuhnya.
 
-"...Kael sudah bergerak sesuai rencana," terdengar suara Rowan dari kristal. "Fragmen kelima akan mempercepat prosesnya..." Sosok gelap itu menjawab dengan suara dingin, "Pastikan dia siap saat Gerbang Es terbuka. Pengorbanan harus sempurna..."
+Kemudian gambar beralih kepada Sylvara. Sebuah bayangan menuduhnya mengkhianati masa lalu dan meninggalkan orang-orang yang pernah mempercayainya.
 
-Gambaran itu lenyap secepat kemunculannya, meninggalkan keheningan yang berat. Kael terkejut sekaligus marah. "Rowan! Jadi dia memang mempermainkanku selama ini! Apa maksudnya 'pengorbanan'!?"
+Ketika giliran Zireth, permukaan kristal dipenuhi gangguan biru. Lalu muncul rangkaian roda gigi yang terus berputar tanpa akhir.
 
-"Gerbang Es..." gumam Sylvara cemas. "Itu pasti di utara!"
+“Benda itu membaca pikiran kita,” kata Kael.
 
-Ekspresi Zireth menjadi serius untuk pertama kalinya. "Ini lebih dari sekadar mengawasimu, Pewaris. Rowan... dia bermain untuk pihak yang jauh lebih berbahaya dari yang pernah kita duga."
+“Lebih tepatnya, memantulkan apa yang kita anggap sebagai kebenaran,” jawab Zireth.
 
-Semua ini rencana? Fragmen-fragmen ini... hanya umpan? pikir Kael getir. Perlahan, efek netralisir dari kristal mulai memudar. Kael merasakan koneksi ke Fragmen-nya kembali. Api merah dan biru kembali menyala lemah di tangannya.
+Sylvara menatapnya curiga. “Kenapa milikmu tidak terlihat?”
 
-Dia mengepalkan tangan. "Aku tidak peduli rencana siapa ini. Aku akan menghancurkannya."
+“Mungkin aku tidak punya ketakutan.” Zireth tersenyum miring. “Atau batu ini terlalu bodoh untuk memahami pikiranku.”
 
-"Untuk itu," kata Zireth, "kita harus keluar dulu dari ngarai terkutuk ini. Dan kuharap tidak ada 'gema' lain yang menunggu di depan." Mereka bertiga melanjutkan perjalanan, melewati Kristal Gema yang kini kembali memancarkan cahaya biru tenang. Namun, kebenaran yang terpantul di permukaannya tadi meninggalkan bekas luka baru dan pertanyaan mengganggu yang akan mengikuti langkah mereka.
+Kristal mendadak berkedip merah.
+
+Gambaran lain muncul.
+
+Rowan berdiri di depan altar Void bersama sosok berjubah hitam yang wajahnya tidak terlihat.
+
+“Kael bergerak sesuai rencana,” ujar Rowan. “Fragmen kelima akan mempercepat prosesnya.”
+
+Sosok gelap itu menjawab, “Pastikan dia siap ketika Gerbang Es terbuka. Pengorbanannya harus sempurna.”
+
+Gambaran lenyap.
+
+Kael mengepalkan tangan. “Jadi Rowan memang mempermainkanku. Apa maksudnya pengorbanan?”
+
+“Gerbang Es pasti berada di utara,” kata Sylvara.
+
+Wajah Zireth kehilangan nada mengejeknya. “Rowan bekerja untuk pihak yang lebih berbahaya daripada yang kita duga.”
+
+Koneksi Kael dengan Fragmen perlahan kembali. Api merah dan biru menyala lemah di ujung jarinya.
+
+Dia menatap cahaya itu.
+
+“Aku tidak peduli siapa yang membuat rencana ini. Aku akan menghancurkannya.”
+
+“Pertama, kita keluar dari ngarai,” kata Zireth. “Sebelum kristal itu menunjukkan sesuatu yang lebih buruk.”
+
+Mereka melewati Kristal Gema dan melanjutkan perjalanan. Cahaya pada permukaannya kembali tenang, tetapi kebenaran yang sempat terlihat terus mengikuti mereka menuju utara.
