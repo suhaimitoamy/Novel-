@@ -1,27 +1,51 @@
 # Episode 013 — Gurun yang Berbisik
 
-Panas matahari Gurun Bisikan membakar kulit Kael, Sylvara, dan Zireth saat mereka berjalan susah payah melintasi lautan pasir yang tak berujung. Udara terasa kering dan berdebu, membuat setiap napas terasa berat.
+Matahari Gurun Bisikan membakar kulit mereka sejak pagi. Pasir membentang tanpa ujung, memantulkan cahaya yang menyilaukan. Setiap tarikan napas membawa debu kering ke tenggorokan.
 
-"Tempat ini... benar-benar sesuai namanya," kata Sylvara sambil menyeka keringat di dahinya. "Aku bisa mendengar angin berbisik di telingaku... tapi rasanya seperti... suara-suara Gema?" Zireth, yang kini secara terbuka mendampingi Kael setelah kejadian di akademi, mengaktifkan sensor di tangannya. "Keanehan akustik di wilayah ini tercatat dalam beberapa teks kuno. Konon, gurun ini dulunya adalah lautan luas sebelum Perang Primordial mengeringkannya. Gema suara yang kau dengar mungkin sisa energi dari masa lalu yang terperangkap di sini."
+“Tempat ini benar-benar sesuai namanya,” kata Sylvara sambil menyeka keringat. “Anginnya seperti sedang berbicara.”
 
-Kael berjalan diam, pikirannya berkecamuk. Deklarasi ‘Jalan Keempat’ di akademi terasa gagah saat diucapkan, tapi kini di tengah gurun yang sunyi dan keras ini, dia mulai meragukan pilihannya. Jalan Keempat... apa itu benar-benar ada? Atau aku hanya lari dari pilihan sulit yang sudah ada di depanku?
+Zireth mengaktifkan sensor pada lengan mekanisnya. “Catatan kuno menyebut wilayah ini pernah menjadi lautan sebelum Perang Primordial. Suara yang kita dengar mungkin sisa energi masa lalu yang terperangkap di bawah pasir.”
 
-Tiba-tiba, pasir di depan mereka bergetar hebat. Dengan suara gemuruh, beberapa Golem Pasir raksasa muncul dari dalam tanah, mata mereka menyala merah redup. Golem pasir terbentuk.
+Kael berjalan tanpa menjawab.
 
-"Penjaga gurun!" seru Zireth sambil menyiapkan meriam energi kecil di lengan mekaniknya.
+Di akademi, pernyataan tentang Jalan Keempat terdengar tegas. Di tengah gurun yang kejam, keyakinan itu terasa jauh lebih rapuh.
 
-"Seharusnya mereka tidak seagresif ini!"
+Apakah jalan tersebut benar-benar ada, atau dia hanya menolak pilihan yang terlalu menyakitkan?
 
-"Entah ini penjaga alami... atau ilusi lain yang mencoba menguji kita," kata Sylvara sambil menyiapkan panah rune-nya. Golem-golem itu menyerang dengan tinju pasir raksasa. Kael segera bereaksi, menciptakan perisai api dua warna untuk menahan serangan itu.
+Pasir di depan mereka berguncang.
 
-Pertarungan melawan Golem Pasir itu menguras energi mereka di bawah terik matahari. Kael menyadari golem-golem itu tampaknya lebih tertarik pada energi Fragmen di dadanya.
+Beberapa tubuh raksasa bangkit dari bawah permukaan. Golem pasir berdiri mengelilingi mereka, dengan mata merah redup dan kepalan sebesar bongkahan batu.
 
-"Mereka tertarik padaku!" teriak Kael. "Alihkan perhatian mereka!"
+“Penjaga gurun.” Zireth mengangkat meriam kecil pada lengannya. “Mereka seharusnya tidak seagresif ini.”
 
-Sylvara dan Zireth segera menyerang dari sisi lain, menarik perhatian beberapa golem. Kael menggunakan kesempatan itu untuk fokus menghancurkan inti energi di dada golem yang tersisa dengan kombinasi api dan esnya.
+“Penjaga atau ilusi, mereka tetap menyerang,” ujar Sylvara sambil memasang panah rune.
 
-Setelah pertarungan usai, mereka bertiga terengah-engah kelelahan di tengah sisa-sisa debu pasir golem.
+Golem pertama menghantamkan tinjunya.
 
-"Ini baru awal perjalanan..." gumam Kael, menatap cakrawala gurun yang tampak tak
+Kael membentuk perisai api merah dan biru. Benturan itu membuat kakinya tenggelam ke dalam pasir, tetapi pertahanan tersebut bertahan.
 
-berujung. "...dan rasanya sudah seperti neraka." Zireth memeriksa cadangan energinya. "Air kita menipis. Kita harus segera menemukan sumber air... atau lokasi jatuhnya Fragmen kelima itu secepatnya." Mereka melanjutkan perjalanan di bawah matahari yang semakin terik, dengan keraguan dan bahaya mengintai di setiap bukit pasir.
+Golem lain datang dari samping. Sylvara menembakkan panah ke sendi lututnya, sementara Zireth melepaskan tembakan energi ke bagian kepala.
+
+Pertarungan berlangsung di bawah terik yang menguras tenaga. Setiap kali Kael bergerak, para golem mengubah arah dan mengejarnya.
+
+“Mereka tertarik pada Fragmenku,” teriaknya. “Tarik sebagian menjauh.”
+
+Sylvara dan Zireth menyerang dari dua sisi. Beberapa golem berbalik mengejar mereka, memberi Kael ruang untuk menghadapi yang tersisa.
+
+Dia menunggu hingga salah satu golem mengangkat tangan. Di balik lapisan pasir pada dadanya, inti energi berpendar sesaat.
+
+Kael melepaskan api dan es bersamaan.
+
+Perubahan suhu mendadak meretakkan pelindung di sekitar inti. Serangan berikutnya menembus tepat ke pusatnya.
+
+Golem itu runtuh menjadi tumpukan pasir.
+
+Mereka menghancurkan penjaga terakhir beberapa saat kemudian. Kael berdiri terengah-engah di antara sisa tubuh yang perlahan kembali menyatu dengan gurun.
+
+“Ini baru awal,” gumamnya sambil memandang cakrawala. “Dan tempat ini sudah terasa seperti neraka.”
+
+Zireth memeriksa persediaan. “Air kita tinggal sedikit. Kita harus menemukan sumber air atau lokasi Fragmen sebelum tubuh kita menyerah.”
+
+Mereka melanjutkan perjalanan di bawah matahari yang semakin tinggi.
+
+Bisikan angin terus mengikuti, menyusup di antara keraguan yang belum berhasil Kael bungkam.
