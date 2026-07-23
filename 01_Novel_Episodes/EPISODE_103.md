@@ -1,25 +1,51 @@
 # Episode 103 — Gema dari Forge God
 
-Suhu berubah setiap kali Kael menarik napas di lembah industri Urdron. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Automaton penambang menyerang sebelum mereka mencapai perlindungan.
 
-Serangan automaton penambang yang dikendalikan Arsitek datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ruang di depan Kael melengkung, lalu tekanan tak terlihat menghantam seperti palu. Dia melepaskan Pulse pendek dan menahannya sejengkal dari wajah.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan panah cahaya Sylvara dan pemindai Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Lantai pecah di bawah tumit.
 
-Kael menerapkan resonansi mekanik pada rangka baja kota. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael bergeser agar serangan berikutnya menjauh dari Sylvara. Panah cahaya serta gangguan pemindai Zireth datang dari dua sisi, memaksa automaton membagi perhatian.
 
-“Sekarang, Kael! Simpul Urdron yang Terkubur ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael menyalurkan resonansi ke rangka baja kota.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh lembah industri Urdron sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Dia tidak mencari bagian yang mudah dihancurkan. Di antara jutaan getaran, terdapat satu nada yang terlalu sempurna—simpul kendali dari luar.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Urdron yang Terkubur, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Sekarang,” seru Sylvara. “Aku hanya bisa menahannya beberapa detik.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Urdron yang Terkubur tetap memiliki batas yang tak boleh dilanggar.
+Kael membalik fase Pulse.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan panah cahaya Sylvara dan pemindai Zireth untuk menghantam pusat kendali yang baru terlihat.
+Dua gelombang bertemu. Cahaya pada tubuh automaton padam dan selubung pertahanannya retak dari dalam.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: logam kota masih menyimpan gema Forge God. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Namun energi yang terlepas tidak menghilang.
 
-Kael merasakan kemenangan kecil atas lapisan luar Urdron yang Terkubur, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh lembah industri Urdron menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Ia berpindah ke dinding. Logam di seluruh lorong bangkit membentuk bilah, tangan, dan rahang. Kota itu sendiri berubah menjadi tubuh baru bagi musuh.
 
-“Kita membangunkan pusat Urdron yang Terkubur,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama automaton penambang yang dikendalikan Arsitek mulai bergerak dari kedalaman.
+Kael menahan dorongan untuk meledakkan seluruh bagian tersebut.
+
+Dia menunggu gelombang kendali melewati satu sambungan, lalu menghantam titik itu dengan Pulse kecil. Lorong sempit terbuka tanpa meruntuhkan struktur utama.
+
+“Bergerak.”
+
+Mereka menerobos celah. Kael memotong aliran energi dan menahan serangan yang datang dari dinding. Setiap gerakan meninggalkan panas pada sarafnya.
+
+Satu bilah logam hampir mengenai Sylvara dari belakang.
+
+Kael membentuk perisai tipis. Benturan memutihkan pandangannya, tetapi Sylvara dan Zireth memakai jeda itu untuk menghantam pusat kendali yang terbuka.
+
+Jaring simbol di dalamnya pecah.
+
+Sebuah rekaman muncul di antara cahaya yang padam:
+
+*Logam kota masih menyimpan gema Forge God.*
+
+Seluruh lembah menjawab dengan denyut yang membuat gigi mereka bergetar.
+
+“Kita membangunkan pusat Urdron,” kata Sylvara.
+
+Kael memandang cahaya yang menjalar ke kedalaman seperti urat.
+
+“Pusat itu sudah bangun. Sekarang ia tahu kita dapat melukainya.”
+
+Dari bawah kota, bentuk utama automaton mulai bergerak.

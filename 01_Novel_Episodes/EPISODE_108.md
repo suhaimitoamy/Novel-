@@ -1,25 +1,47 @@
 # Episode 108 — Kebenaran yang Terfragmentasi
 
-Udara bergetar sebelum suara apa pun sempat lahir di arsip bawah tanah Urdron. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Penjaga Arsip menyerang saat mereka memasuki pusat kendali.
 
-Serangan Penjaga Arsip dan gelombang Rift datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ruang melengkung dan melepaskan tekanan tak terlihat. Kael menahannya dengan Pulse pendek, tetapi lantai pecah di bawah kaki.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan lengan mekanis Zireth yang meretas terminal kuno, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Zireth meretas terminal dari sisi lain. Gangguannya memaksa Penjaga membagi perhatian.
 
-Kael menerapkan interferensi fase untuk memisahkan data dari energi Void. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael mencari frekuensi alami di balik lapisan pertahanan. Di antara jutaan getaran, satu nada terdengar terlalu sempurna.
 
-“Sekarang, Kael! Simpul Pusat Data Urdron ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Simpul kendali.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh arsip bawah tanah Urdron sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Sekarang,” teriak Zireth. “Aku hanya bisa menahannya beberapa detik.”
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Dalam benturan Pusat Data Urdron, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael membalik fase Pulse.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Pusat Data Urdron tetap memiliki batas yang tak boleh dilanggar.
+Selubung Penjaga padam dan retak dari dalam.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan lengan mekanis Zireth yang meretas terminal kuno untuk menghantam pusat kendali yang baru terlihat.
+Energi yang terlepas berpindah ke dinding. Seluruh arsip berubah menjadi tubuh baru: bilah, tangan, dan rahang logam tumbuh dari setiap permukaan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Fragmen kedua belas telah dijadikan benih penataan ulang realitas. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael memilih sambungan terkecil yang dapat mengubah aliran serangan. Satu ledakan pendek membuka lorong tanpa meruntuhkan struktur utama.
 
-Kael merasakan kemenangan kecil atas lapisan luar Pusat Data Urdron, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh arsip bawah tanah Urdron menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Mereka bergerak melalui celah itu.
 
-“Kita membangunkan pusat Pusat Data Urdron,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Penjaga Arsip dan gelombang Rift mulai bergerak dari kedalaman.
+Bilah dari belakang hampir mengenai Zireth. Kael memutar Pulse menjadi perisai tipis. Pandangannya memutih akibat benturan, tetapi Zireth memanfaatkan waktu tersebut untuk menghancurkan pusat yang baru terbuka.
+
+Jaringan simbol di dalamnya pecah.
+
+Tidak ada inti monster. Hanya sebuah rekaman:
+
+*Fragmen kedua belas telah dijadikan benih penataan ulang realitas.*
+
+Kael menatap data yang bergetar di udara.
+
+Sang Arsitek tidak hanya ingin memakai Fragmen sebagai sumber tenaga. Dia hendak menanamkan Strukturnya ke dalam jantung Zerath dan membiarkan seluruh dunia dibangun ulang dari dalam.
+
+Pecahnya pusat kendali mengirim sinyal ke kedalaman.
+
+Seluruh arsip menjawab dengan satu denyut berat.
+
+“Kita membangunkannya,” kata Zireth.
+
+Kael melihat cahaya menjalar ke bawah seperti urat.
+
+“Ia sudah bangun. Sekarang ia tahu kita menemukan kebenarannya.”
+
+Bentuk utama Penjaga Arsip bergerak dari balik Rift, jauh lebih besar daripada wadah sebelumnya.

@@ -1,27 +1,53 @@
 # Episode 105 — Suara dari Kedalaman
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di lembah industri Urdron. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jalan terakhir membawa mereka ke ruang pusat Urdron.
 
-Semua jalan di lembah industri Urdron berakhir pada satu pusat. Di sanalah automaton penambang yang dikendalikan Arsitek menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menembus kota mesin sebelum gerbang dimensional terbuka penuh mustahil dilakukan.
+Automaton utama menunggu di tengah jaring energi yang saling mengunci. Setiap lapisan berdenyut dengan hukum berbeda, seolah banyak sistem dipaksa hidup dalam satu tubuh.
 
-“Kita mencapai pusat Urdron yang Terkubur bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada panah cahaya Sylvara dan pemindai Zireth. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Kita masuk bersama,” kata Sylvara. “Jangan menahan seluruh beban hanya karena kau mendengar frekuensinya.”
 
-Mereka bergerak serempak. Sekutunya menggunakan panah cahaya Sylvara dan pemindai Zireth untuk memecah lapisan luar, sedangkan Kael menyusupkan resonansi mekanik pada rangka baja kota ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Kael menatap Sylvara dan Zireth, lalu mengangguk.
 
-Kael tidak melawan semua lapisan Urdron yang Terkubur. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Mereka bergerak serentak.
 
-Di pusat jaring Urdron yang Terkubur itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Panah cahaya Sylvara dan peretasan Zireth memecah lapisan luar. Kael menyisipkan resonansi ke celah yang terbuka.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di pusat Urdron yang Terkubur, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Tekanan berlapis membalas. Kael tidak mencoba menahan semuanya. Dia memilih satu denyut dasar dan menyelaraskan tubuh dengan iramanya.
 
-Automaton penambang yang dikendalikan Arsitek mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Nyeri menyambar dari dada ke tengkuk.
 
-Tidak ada ledakan besar. Automaton penambang yang dikendalikan Arsitek retak dalam keheningan lembah industri Urdron. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Untuk beberapa detik, struktur musuh terlihat sebagai jaring cahaya. Di pusatnya terdapat benang kendali yang terhubung ke Sang Arsitek.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: logam kota masih menyimpan gema Forge God. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kael mengangkat tangan.
 
-Kael memandangi sisa-sisa pusat kendali Urdron yang Terkubur. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing. Ketiganya hampir saling memusnahkan sampai dia berhenti memperlakukan Keseimbangan sebagai perintah.
 
-Sylvara menurunkan senjata, tetapi Kael belum bergerak. Keheningan di pusat Urdron yang Terkubur memiliki irama baru. Beberapa detik kemudian mereka memahami alasannya. Pintu Pusat Data Urdron menyala dari bawah tanah.
+Ia adalah hubungan.
 
-Mereka membawa luka dan bukti dari Urdron yang Terkubur menuju jalur berikut. Kael tidak merasa lebih dekat pada kemenangan; ia hanya memahami harga kekalahan dengan lebih jelas.
+Sylvara menyerang tepat ketika Kael tidak mampu menahan bagian berikutnya. Zireth menutup simpul yang terbuka. Satu demi satu cahaya musuh padam.
+
+Automaton mengerahkan bentuk terakhir.
+
+Ruang melipat ke dalam. Seluruh cahaya hilang.
+
+Kael hanya mendengar detak jantungnya dan suara dua orang yang masih berada di sisinya.
+
+Dia mengikuti keduanya kembali, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+
+Tidak ada ledakan.
+
+Tubuh automaton retak dalam keheningan. Benang kendali terbakar, sementara energi asli wadahnya tetap hidup.
+
+Kael jatuh, tetapi Sylvara menangkap bahunya.
+
+Di dalam pusat yang pecah, sebuah rekaman terbuka:
+
+*Logam Urdron masih menyimpan gema Forge God.*
+
+Tak seorang pun bersorak.
+
+Pengetahuan itu membuat lawan mereka lebih besar daripada sebelumnya.
+
+Pintu menuju Pusat Data Urdron menyala dari bawah tanah.
+
+Kael berdiri dengan tubuh penuh luka. Dia tidak merasa lebih kuat—hanya lebih bertanggung jawab terhadap apa yang akan mereka temukan berikutnya.

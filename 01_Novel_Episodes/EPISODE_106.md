@@ -1,25 +1,53 @@
 # Episode 106 — Pusat Data Urdron
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di arsip bawah tanah Urdron. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pintu menuju arsip bawah tanah terbuka tanpa suara.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membaca cetak biru jantung mekanis. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Kael melangkah masuk. Penglihatannya berbayang merah, sementara Ragnarok Pulse menangkap denyut patah di balik dinding.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zireth. Kael mengangguk. Mereka mengambil posisi dengan lengan mekanis Zireth yang meretas terminal kuno, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Tujuan mereka terdengar sederhana: menemukan cetak biru jantung mekanis.
 
-Kael memusatkan napas dan menggunakan interferensi fase untuk memisahkan data dari energi Void. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Penjaga Arsip dan gelombang Rift.
+Namun setiap permukaan di ruang tersebut membawa bekas pertarungan lama. Kael menyentuh lantai dan mengirim getaran kecil ke dalam kegelapan.
 
-Denyut Pusat Data Urdron segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Gema kembali dengan bentuk yang berubah.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di Pusat Data Urdron, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Sesuatu sudah mengetahui kedatangan mereka.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan lengan mekanis Zireth yang meretas terminal kuno, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+“Jangan jawab tempat ini dengan kekuatan penuh,” kata Zireth. “Kita belum tahu apa yang ditahannya.”
 
-Di balik penghalang Pusat Data Urdron, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa arsip bawah tanah Urdron melupakan bentuk alaminya.
+Dia menghubungkan lengan mekanis ke terminal kuno. Sylvara menjaga lorong belakang, sementara Kael memisahkan data dari energi Void dengan interferensi fase.
 
-“Kita sudah melewati pintu Pusat Data Urdron, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zireth. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Pulse menyebar setipis riak.
 
-Suara pertama dari Penjaga Arsip dan gelombang Rift datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Dinding, lantai, dan udara mengembalikan peta tekanan ke tulangnya. Di antara pola alami terdapat denyut asing milik Penjaga Arsip dan gelombang Rift.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Pusat Data Urdron terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Ruangan segera membalas.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Penjaga Arsip dan gelombang Rift muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Pusat Data Urdron baru saja dimulai.
+Lantai terbelah. Serpihan logam terangkat, sementara jarak di depan mereka terlipat menjadi jebakan.
+
+Kael menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempatnya.
+
+Dia dapat merobek seluruh penghalang, tetapi sesuatu yang disimpan di baliknya mungkin ikut hancur.
+
+Kael menggeser fase Pulse beberapa derajat. Sinkronisasi jebakan goyah dan membuka celah selebar bahu.
+
+Mereka menerobos satu per satu.
+
+Tekanan paling besar menghantam Kael di depan. Rasa sakit bergerak dari telapak tangan ke bahu, tetapi dia mempertahankan iramanya sampai Sylvara dan Zireth lewat.
+
+Jalur di belakang menutup tanpa sambungan.
+
+Di sisi lain, garis-garis geometris memenuhi dinding. Polanya terlalu tepat untuk terbentuk secara alami. Fragmen Kael mengenali kehendak dingin yang terkandung di dalamnya.
+
+Seseorang telah memaksa arsip Urdron melupakan bentuk aslinya.
+
+“Kita baru melewati pintu,” kata Zireth, “tapi rasanya seperti masuk ke mulut sesuatu.”
+
+Debu mulai membentuk lingkaran di udara.
+
+Tekanan berubah.
+
+Dari batas cahaya, sosok Penjaga Arsip muncul bersama retakan Rift yang membuka jalan di belakangnya.
+
+Kael menurunkan pusat tubuh dan mengangkat tangan.
+
+Perjalanan mereka ke Pusat Data baru saja dimulai.
