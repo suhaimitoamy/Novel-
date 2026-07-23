@@ -1,37 +1,69 @@
 # Episode 039 — Ritual Pengorbanan
 
-Di Puncak Beku, retakan di Gerbang Es semakin lebar, memancarkan energi Void dingin yang membuat udara terasa berat dan menyesakkan. Siluet tak berbentuk di dalamnya bergerak samar, seolah sesuatu yang besar sedang mencoba merangsek keluar.
+Retakan di Gerbang Es terus melebar. Udara menjadi berat oleh hawa Void yang dingin, sementara siluet besar di balik celah bergerak semakin dekat.
 
-Di dataran tinggi di bawahnya, Kael, Sylvara, dan Zireth masih terkunci dalam pertarungan melawan para prajurit Dwarf yang dikendalikan Rowan. Mayat-mayat hidup itu bertarung tanpa rasa sakit atau takut, membuat mereka sangat sulit dikalahkan.
+Di dataran tinggi, Kael, Sylvara, dan Zireth masih dikepung prajurit Dwarf yang dikendalikan. Tubuh-tubuh itu menyerang tanpa rasa sakit atau takut.
 
-"Kita tidak bisa terus melawan mereka!" teriak Zireth sambil menggunakan ledakan sonik
+“Kita tidak bisa terus menahan mereka,” teriak Zireth. Gelombang soniknya menjatuhkan beberapa boneka, tetapi mereka kembali bangkit. “Rowan akan membuka gerbang sebelum kita sampai ke puncak.”
 
-untuk melumpuhkan beberapa prajurit sejenak. "Gerbang itu akan terbuka penuh jika kita tidak menghentikan Rowan!" Sylvara menembakkan panah terakhir dari jenis rune peledaknya. "Apa yang bisa kita lakukan!? Rowan sudah di atas sana!"
+Sylvara melepaskan panah rune peledak terakhirnya. “Dia sudah terlalu jauh.”
 
-Kael menatap ke arah puncak tempat Rowan menghilang, lalu ke prajurit Dwarf yang terus menyerang di depannya. Tekad dan kemarahan membara di matanya. "Kita harus hentikan sumber kendalinya!" Dia menunjuk ke arah tongkat obsidian yang masih tertancap di tanah, memancarkan energi ungu yang mengendalikan mayat-mayat itu. "Tongkat itu!"
+Kael memandang ke arah Rowan menghilang, lalu melihat jaringan energi yang menghubungkan setiap prajurit dengan tongkat obsidian yang tertancap di tanah.
 
-Mengabaikan serangan yang datang, Kael menerjang lurus ke arah tongkat. Sylvara dan Zireth segera bergerak untuk melindunginya dari serangan para prajurit Dwarf Void. Kael berhasil mencapai tongkat itu. Dia mencoba mencabutnya dari tanah es yang keras, tapi seketika rasa sakit seperti terbakar menjalar di tangannya saat menyentuh energi Void gelap yang pekat dari tongkat itu.
+“Sumber kendalinya ada di tongkat itu.”
 
-"Argh! Panas sekali!" keluhnya, namun dia tidak melepaskan genggamannya.
+Dia menerjang.
 
-Sementara itu, di puncak gunung, Rowan berdiri di depan Gerbang Es yang retak. Dia tidak sendirian. Beberapa sosok berjubah hitam bertopeng perak (sama seperti yang menyerang di reruntuhan) berdiri di sekelilingnya, menyalurkan energi gelap mereka ke arah gerbang, mempercepat proses pelemahan segel.
+Sylvara dan Zireth bergerak menutup kedua sisinya. Panah menghentikan kapak yang menyapu punggung Kael, sementara ledakan sonik membuka jalur melalui dua tubuh Dwarf.
 
-Rowan mengangkat tangannya. "Hampir... Energi kehidupan dari para Dwarf yang 'tertidur' di bawah cukup untuk memulai pelemahan segel terakhir..." Dia menoleh ke salah satu sosok berjubah di sampingnya. "Bawa 'kunci'-nya kemari."
+Kael mencapai tongkat dan menggenggamnya.
 
-Sosok berjubah itu menyeret seorang tawanan ke depan: Dagna, prajurit Dwarf wanita gesit yang pernah mengawal Kael. Dia terluka parah di beberapa bagian tubuhnya tapi masih sadar, dirantai dengan rantai energi Void hitam yang menyakitkan.
+Rasa panas menembus telapak tangannya. Energi Void membakar saraf hingga ke bahu, tetapi tongkat itu tidak bergerak dari es.
 
-Dagna meludah dengan marah ke arah Rowan. "Pengkhianat terkutuk... Raja Thürgrom akan memburumu sampai ke ujung Zerath karena ini!" Rowan tersenyum dingin, mengabaikan ancaman Dagna. "Raja kalian justru akan berterima kasih padaku nanti, setelah Zerath terlahir kembali." Dia menatap Dagna dengan tatapan menilai. "Darah Dwarf kuno sepertimu... memiliki resonansi yang kuat dengan segel elemen bumi di gerbang ini. Kau akan menjadi pengorbanan terakhir yang sempurna untuk membukanya."
+Di puncak, Rowan berdiri di depan gerbang bersama beberapa sosok bertopeng perak. Mereka menyalurkan energi gelap ke rune-rune segel.
 
-Rowan mengangkat tangannya ke arah Dagna. Energi gelap yang pekat mulai terkumpul di telapak tangannya, siap untuk merenggut nyawa Dagna dan menghancurkan segel terakhir Gerbang Es. Di bawah, Kael tiba-tiba merasakan gelombang energi ritual gelap itu melalui koneksi Fragmen-nya.
+“Hampir selesai,” kata Rowan. “Energi kehidupan para Dwarf telah melemahkan lapisan pertama.”
 
-"Tidak!" teriaknya, menyadari apa yang akan terjadi. "Dia akan mengorbankan prajurit Dwarf
+Dia menoleh kepada salah satu pengikut.
 
-itu!" Didorong oleh kemarahan dan keinginan untuk mencegah pembunuhan itu, Kael mengerahkan seluruh kekuatannya. Api merah dan biru membakar tangannya saat dia mencengkeram tongkat Rowan lebih kuat, mengabaikan rasa sakit. "LEPASKAN DIA!!!"
+“Bawa kuncinya.”
 
-Dengan teriakan penuh amarah dan kekuatan, Kael berhasil menarik tongkat obsidian itu dari tanah es yang membeku. Tongkat tercabut paksa. Seketika, semua prajurit Dwarf yang tadinya bergerak seperti boneka Void, jatuh lemas ke tanah. Koneksi energi gelap yang mengendalikan mereka terputus.
+Seorang tawanan diseret ke hadapan gerbang.
 
-Di puncak gunung, Rowan merasakan kendalinya hilang dan ritualnya terganggu. Dia berbalik, menatap ke bawah dengan ekspresi marah yang membara ke arah Kael.
+Dagna.
 
-"Kael!" desisnya penuh kebencian.
+Zirahnya rusak dan tubuhnya dipenuhi luka. Rantai Void membelit tangan serta lehernya, tetapi matanya masih menyala penuh perlawanan.
 
-Kael berdiri terengah-engah, memegang tongkat Rowan yang masih berdenyut samar dengan energi gelap. Di puncak, Rowan menatapnya marah, sementara retakan di Gerbang Es berhenti membesar untuk sesaat, namun energi kehampaan di dalamnya masih bergolak liar, menunggu.
+Dia meludah ke arah Rowan. “Raja Thürgrom akan memburumu sampai ujung Zerath.”
+
+“Kelak rajamu akan berterima kasih.” Rowan memandang rune pada gerbang. “Darah Dwarf kuno beresonansi dengan segel bumi. Kau adalah pengorbanan terakhir yang sempurna.”
+
+Energi hitam berkumpul di telapak tangannya.
+
+Jauh di bawah, Fragmen Kael menangkap gelombang ritual itu.
+
+Dia melihat Dagna melalui resonansi—terluka, terikat, dan beberapa detik dari kematian.
+
+“Tidak.”
+
+Kael menguatkan genggaman pada tongkat. Api merah dan biru membungkus tangannya, melawan energi Void yang mencoba mendorongnya pergi.
+
+“Lepaskan dia!”
+
+Dengan seluruh tenaganya, Kael menarik.
+
+Es di sekitar tongkat retak. Batang obsidian itu tercabut dari tanah.
+
+Jaringan rune padam.
+
+Semua prajurit Dwarf jatuh bersamaan. Senjata mereka menghantam salju ketika kendali Void terputus.
+
+Di puncak, energi ritual goyah. Rowan berbalik dan menatap Kael dengan kemarahan yang tak lagi dia sembunyikan.
+
+“Kael.”
+
+Kael berdiri terengah-engah sambil memegang tongkat yang masih berdenyut gelap.
+
+Retakan Gerbang Es berhenti membesar untuk sesaat.
+
+Namun sesuatu di baliknya tetap bergerak, menunggu kesempatan berikutnya.
