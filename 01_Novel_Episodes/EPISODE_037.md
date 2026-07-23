@@ -1,39 +1,85 @@
 # Episode 037 — Topeng Terbuka
 
-Keheningan yang tegang menyelimuti reruntuhan es kuno setelah pertarungan dan penemuan liontin spiral pecah yang ternyata terkait dengan keluarga Vorthax. Kael menatap Sylvara, lalu ke liontin di tangan Zireth. "Vorthax? Maksudmu... Vorthax the Betrayer? Leluhurmu... Necromancer terkenal itu?"
+Keheningan kembali memenuhi reruntuhan setelah pertarungan berakhir.
 
-Sylvara mengangguk pelan, wajahnya masih muram, menghindari tatapan Kael. "Simbol spiral pecah itu... adalah lambang kuno dari cabang keluarga Vorthax yang dianggap sesat dan diasingkan, bahkan oleh kaum Necromancer arus utama sekalipun... Jauh sebelum masa Dark Convergence." Dia menatap liontin itu dengan tatapan campur aduk antara jijik dan rasa ingin tahu yang tertahan. "Aku tidak tahu kalau... simbol seperti ini masih ada atau digunakan."
+Kael memandang liontin spiral retak di tangan Zireth, lalu menatap Sylvara.
 
-Zireth memeriksa liontin itu lebih dekat dengan sensor di jari mekaniknya. "Ini bukan sekadar simbol biasa. Ada jejak energi samar yang tersimpan di dalamnya. Semacam... kunci resonansi, mungkin?"
+“Vorthax? Maksudmu Vorthax sang Pengkhianat?”
 
-"Kunci? Untuk apa?" tanya Kael.
+Sylvara mengangguk pelan. “Lambang itu milik cabang keluarga Vorthax yang dianggap sesat dan diasingkan, bahkan oleh kaum Necromancer. Mereka sudah ada sebelum Dark Convergence.”
 
-"Entahlah," jawab Zireth sambil menyimpan liontin itu dengan hati-hati. "Tapi jika ini terkait dengan cabang sesat Vorthax dan kelompok misterius yang menyebut diri 'Kehampaan Abadi'... ini jelas sesuatu yang sangat berbahaya. Kita simpan ini. Mungkin bisa berguna nanti."
+Dia menahan tatapan pada liontin tersebut.
 
-Vorthax... Leluhur Sylvara ternyata terkait dengan semua ini? pikir Kael dalam hati. Seberapa banyak lagi rahasia yang tidak dia ceritakan padaku selama ini? Seolah bisa membaca pikiran Kael, Sylvara menatapnya dengan sungguh-sungguh. "Kael, aku bersumpah, aku sama sekali tidak tahu apa-apa soal ini. Keluargaku sudah lama sekali meninggalkan ajaran gelap Vorthax..."
+“Aku tidak tahu simbol itu masih digunakan.”
 
-Kael memotong dengan lembut tapi tegas, "Aku percaya padamu, Sylvara." Dia menatap mata Elf itu, melihat kejujuran di sana. "Tapi ini jelas membuat segalanya jadi jauh lebih rumit." Dia kembali fokus pada tujuan utama mereka. "Kita sudah terlalu banyak membuang waktu di sini. Ritual yang melemahkan segel Gerbang Es di Puncak Beku itu masih berlangsung. Kita harus pergi sekarang."
+Zireth menyentuhkan sensor jarinya ke permukaan logam. Cahaya tipis bergerak di sepanjang retakan spiral.
 
-Mereka bertiga meninggalkan reruntuhan kuno itu, kembali mendaki jalur es yang curam menuju Puncak Beku yang menjulang di depan. Saat mereka mendaki lebih tinggi, mereka mulai menemukan lebih banyak jejak pertempuran baru – sisa-sisa energi es yang membeku bercampur dengan residu energi Void hitam, beberapa senjata rusak milik patroli Dwarf yang hilang tergeletak di salju.
+“Ada energi tersimpan di dalamnya. Mungkin kunci resonansi.”
 
-Zireth berhenti, menganalisis area pertempuran. "Pertarungan besar terjadi di sini, belum lama berselang. Sepertinya patroli Dwarf lain mencoba menghentikan siapapun yang menuju puncak... dan mereka jelas gagal."
+“Kunci untuk apa?” tanya Kael.
 
-"Lihat!" seru Sylvara tiba-tiba, menunjuk ke satu arah di dinding es.
+“Belum tahu.” Zireth membungkus liontin itu dan menyimpannya. “Tapi hubungan antara cabang Vorthax dan kelompok Kehampaan Abadi tidak bisa diabaikan.”
 
-Di sana, tertancap dalam es tebal, sebuah kapak rune Dwarf yang Kael kenali – itu milik Borin, salah satu prajurit Dwarf yang mengawal mereka sebelumnya.
+Kael menatap Sylvara. Berapa banyak rahasia keluarganya yang belum pernah dia ceritakan?
 
-"Borin... Dagna..." gumam Kael. "Apakah mereka kembali lagi ke sini?"
+Sylvara menangkap keraguan itu.
 
-"Atau mungkin mereka tidak pernah benar-benar kembali ke Kragmar," duga Zireth.
+“Aku bersumpah tidak mengetahui semua ini. Keluargaku telah meninggalkan ajaran gelap Vorthax sejak lama.”
 
-"Mungkin Kapten Garn juga memerintahkan mereka untuk mengawasi kita dari jauh?"
+“Aku percaya padamu,” kata Kael.
 
-Mereka mengikuti jejak pertempuran yang mengerikan itu, yang mengarah ke sebuah dataran tinggi tepat di bawah puncak utama gunung es tersebut. Pemandangan di dataran tinggi itu membuat darah mereka seolah membeku. Puluhan prajurit Dwarf tergeletak tak bernyawa, sebagian membeku dalam es, sebagian lagi hangus oleh energi gelap. Dan di tengah medan pembantaian itu... berdiri Rowan. Jubah hitamnya berkibar ditiup angin es, tangannya memegang sebuah tongkat obsidian pendek yang berdenyut pelan dengan energi ungu gelap.
+Sylvara mengangkat wajah.
 
-Rowan menoleh saat merasakan kehadiran Kael dan yang lain, senyum tipis yang dingin tersungging di bibirnya. "Kalian datang lebih cepat dari dugaanku, Kael." Kael menatap pemandangan pembantaian di sekeliling Rowan, amarah mulai membakar dadanya, bersaing dengan dinginnya udara puncak. "Rowan! Apa yang telah kau lakukan!?
+“Tapi sekarang kita tahu masalah ini lebih besar dari Rowan.” Kael mengambil buku kuno dari altar. “Ritual di Puncak Beku masih berlangsung. Kita harus pergi.”
 
-Kenapa kau membunuh para prajurit Dwarf ini!?" Rowan menggeleng pelan, seolah Kael menanyakan hal yang sepele. "Membunuh? Tidak. Aku hanya... menidurkan mereka. Mereka terlalu berisik dan mengganggu." Dia menunjuk ke arah puncak gunung dengan tongkatnya. "Ritualnya hampir selesai. Gerbang Es akan segera terbuka."
+Mereka meninggalkan reruntuhan dan kembali mendaki.
 
-Sylvara segera menyiapkan panahnya. "Apa yang akan keluar dari sana, Rowan!?" Rowan tertawa pelan, tawa yang terdengar kosong di tengah angin menderu. "Bukan 'apa', Sylvara. Tapi 'siapa'. Sesuatu yang jauh lebih tua dari Aelarion, Zhorak, maupun Malgorath.
+Semakin tinggi, semakin banyak jejak pertempuran terlihat di salju. Lapisan es bercampur dengan residu Void hitam. Senjata-senjata Dwarf tergeletak patah di sepanjang lereng.
 
-Sesuatu yang akan... menyeimbangkan kembali Zerath yang sudah rusak ini." Kael, Sylvara, dan Zireth kini berdiri berhadapan dengan Rowan di medan pertempuran beku, dengan Puncak Beku dan Gerbang Es yang misterius menjulang di belakang sosok pengkhianat itu.
+Zireth berhenti untuk memeriksa bekas ledakan.
+
+“Pertarungan besar terjadi belum lama ini. Patroli Dwarf mencoba menghentikan seseorang yang menuju puncak.”
+
+“Lihat.” Sylvara menunjuk dinding es.
+
+Sebuah kapak rune tertancap jauh di dalamnya. Kael mengenali cincin logam pada gagangnya.
+
+“Itu milik Borin.”
+
+“Borin dan Dagna mungkin kembali ke sini,” kata Sylvara.
+
+“Atau mereka tidak pernah benar-benar menuju Kragmar,” ujar Zireth. “Kapten Garn bisa saja memerintahkan mereka mengawasi kita.”
+
+Jejak pertempuran mengarah ke dataran tinggi tepat di bawah puncak.
+
+Ketika mereka tiba, Kael berhenti.
+
+Puluhan prajurit Dwarf tergeletak di atas salju. Sebagian membeku, sebagian hangus oleh energi gelap. Di tengah medan pembantaian berdiri Rowan.
+
+Jubah hitamnya berkibar diterpa angin. Sebuah tongkat obsidian pendek berdenyut ungu di tangannya.
+
+Rowan menoleh dan tersenyum.
+
+“Kalian datang lebih cepat daripada dugaanku.”
+
+Amarah memanaskan dada Kael. “Apa yang kau lakukan kepada mereka?”
+
+“Membunuh?” Rowan melihat tubuh-tubuh di sekelilingnya. “Tidak. Aku hanya membuat mereka tidur. Mereka terlalu berisik.”
+
+Dia menunjuk puncak dengan tongkat.
+
+“Ritual hampir selesai. Gerbang Es akan segera terbuka.”
+
+Sylvara mengangkat busurnya. “Apa yang akan keluar dari sana?”
+
+Rowan tertawa pelan.
+
+“Bukan apa. Siapa.”
+
+Mata kuningnya memandang Puncak Beku.
+
+“Sesuatu yang lebih tua daripada Aelarion, Zhorak, dan Malgorath. Sesuatu yang akan mengembalikan keseimbangan Zerath.”
+
+Kael menggenggam Zerath's Fang.
+
+Di belakang Rowan, gunung bergetar pelan.
