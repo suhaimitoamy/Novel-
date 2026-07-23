@@ -1,23 +1,45 @@
 # Episode 092 — Tiga Warna Melawan Ungu
 
-Menyadari kelemahan Rowan ada pada liontin yang retak itu, Kael segera mengubah taktiknya. Dia tidak lagi mencoba melawan kekuatan mentah Rowan secara langsung, tapi fokus pada kecepatan, kelincahan, dan serangan presisi yang mengincar satu titik lemah.
+Kael berhenti melawan kekuatan Rowan secara langsung.
 
-Dia menggunakan semburan api biru dingin untuk menciptakan lapisan es tipis dan licin di lantai tepat di jalur Rowan, membuatnya sedikit terpeleset dan kehilangan keseimbangan sesaat. "Kau mungkin kuat sekarang, Rowan," kata Kael sambil menjaga jarak, "tapi kau tidak akan bisa mengendalikan kekuatan curian sebesar itu selamanya!"
+Dia menjaga jarak dan menunggu celah. Api biru membekukan lantai di jalur serangan berikutnya.
 
-Rowan mendengus marah, dengan cepat menstabilkan dirinya di atas es. "Diam!" Dia menembakkan sulur-sulur energi Void hitam dari tangannya ke arah Kael. Kael melompat menghindar, menggunakan semburan api merah untuk membakar habis sulur-sulur yang mengejarnya di udara, lalu menyalurkan energi tiga warnanya – merah, biru, dan ungu gelap – ke bilah Zerath's Fang.
+Rowan melesat, lalu pijakannya tergelincir sesaat.
 
-"Tri-Elemental Slash!"
+“Kekuatan curian itu tidak akan tunduk kepadamu selamanya,” kata Kael.
 
-Tebasan pedang yang dialiri tiga energi itu melesat cepat dan berhasil menembus medan pelindung Rowan yang sedikit goyah sesaat, menggores permukaan zirah hitamnya. Tebasan energi mengenai zirah. Rowan terkejut melihat zirahnya bisa tergores. "Bagaimana bisa!?"
+“Diam.”
 
-"Keseimbangan tiga energi fundamental dalam diri Kael menetralisir sebagian sifat chaos murni dari Void yang kau gunakan, Rowan!" teriak Zireth dari pinggir pertarungan, setelah menganalisis interaksi energi itu. "Itu kelemahan inheren dari kekuatanmu yang tidak stabil!"
+Sulur Void menyambar dari tangan Rowan. Kael melompat dan membakar ikatan tersebut dengan api merah sebelum mendarat di sisi lain aula.
 
-Rowan menatap Zireth dengan marah, lalu kembali ke Kael. "Analisis murahan! Aku akan tunjukkan pada kalian chaos yang sebenarnya!" Dia mulai mengumpulkan energi Void dalam jumlah yang jauh lebih besar dari sebelumnya, liontin di lehernya bersinar ungu gelap menyakitkan, retakannya tampak semakin lebar.
+Tiga energi dialirkan ke Zerath's Fang.
 
-"Dia akan melepaskan serangan besar!" peringat Sylvara. "Zireth, alihkan perhatiannya!"
+“Tri-Elemental Slash.”
 
-"Mengerti!" Zireth segera menembakkan beberapa drone peledak kecil yang tersisa dari
+Tebasan merah, biru, dan ungu menembus bagian medan pelindung yang sedang goyah. Zirah hitam Rowan tergores untuk pertama kalinya.
 
-kantungnya ke arah Rowan. Rowan dengan mudah menghancurkan drone-drone itu dengan satu lambaian tangan, tapi perhatiannya sempat teralih sepersekian detik. Kael tidak menyia-nyiakan momen itu. Mengincar liontin yang kini bersinar terang, dia melesat maju. "Sekarang!"
+Dia memandang luka tersebut dengan tidak percaya.
 
-Pedang Zerath's Fang yang dialiri energi tiga warna – api, es, dan Void yang seimbang – melesat lurus, mengarah tepat ke liontin Vorthax yang retak di leher Rowan.
+“Bagaimana?”
+
+“Keseimbangan energinya menetralkan sebagian kekacauan Void mentah,” teriak Zireth dari tepi medan. “Kekuatanmu besar, tetapi tidak stabil.”
+
+Rowan menoleh dengan marah.
+
+“Analisis murah.”
+
+Dia mengumpulkan energi jauh lebih banyak. Liontin pada lehernya menyala hingga menyakitkan mata, sementara retakannya menjalar semakin lebar.
+
+“Dia menyiapkan serangan besar,” kata Sylvara. “Alihkan perhatiannya.”
+
+Zireth melepaskan sisa drone peledak.
+
+Rowan menghancurkan semuanya dengan satu lambaian, tetapi pandangannya beralih selama sepersekian detik.
+
+Kael memanfaatkan waktu itu.
+
+Dia menjejak lantai dan melesat maju. Zerath's Fang memancarkan tiga warna yang berputar rapat di sepanjang bilah.
+
+Sasarannya bukan dada atau kepala Rowan.
+
+Ujung pedang diarahkan tepat pada liontin Vorthax yang hampir pecah.

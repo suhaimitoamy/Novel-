@@ -1,35 +1,51 @@
-# Episode 095 — Kenangan yang Hilang (rowan’s Past)
+# Episode 095 — Kenangan yang Hilang
 
-Energi Void liar sisa dari eksekusi Rowan melesat dan menyelimuti Kael.
+Void dari eksekusi Rowan menyelimuti Kael.
 
-"AAAAHHH!!!" Kael bersiap merasakan sakit yang luar biasa.
+Dia bersiap menerima rasa sakit, tetapi energi tersebut tidak menyerang. Rune pada lengan kiri menariknya masuk seperti pusaran.
 
-Namun, anehnya, energi itu tidak terasa menyakitkan seperti serangan Rowan sebelumnya. Sebaliknya, energi Void itu seolah tertarik dan tersedot masuk dengan deras ke lengan kirinya, diserap oleh pola rune ungu gelap yang terintegrasi di sana.
+Kegelapan terserap seluruhnya.
 
-Energi Void terserap. Saat energi itu terserap sepenuhnya ke dalam lengannya, Kael tidak hanya merasakan gelombang kekuatan dingin Void yang kini terasa lebih 'lengkap', tapi juga... serpihan-serpihan ingatan. Ingatan milik Rowan.
+Dingin memenuhi tubuh Kael. Bersamanya datang potongan-potongan ingatan yang bukan miliknya.
 
-FLASHBACK (Kilasan cepat, kacau, penuh emosi): Rowan muda, berdiri menangis di tengah puing-puing desa kecil yang hancur lebur akibat perang antar faksi Fragmen minor. Dia berlutut di atas mayat ayah, ibu, dan adiknya. Lalu, muncul sesosok figur berjubah gelap pekat (Sosok Arsitek dalam wujud samar?), menawarkan ‘kekuatan untuk mengubah segalanya, untuk menciptakan dunia tanpa rasa sakit’. Rowan muda yang putus asa menerima perjanjian Void itu, matanya mulai bersinar ungu redup. Dia terlihat berlatih sihir Void dengan keras di tempat terpencil, terobsesi pada janji ‘keseimbangan baru’ dari Arsitek, percaya bahwa hanya keteraturan absolut yang bisa mencegah tragedi seperti yang dialaminya terulang kembali pada orang lain. Dia melihat Kael sebagai kunci untuk mencapai tujuan itu, apapun caranya...
+Rowan muda berdiri di tengah desa yang hancur oleh perang faksi Fragmen. Mayat ayah, ibu, dan adiknya terbaring di antara puing.
 
-Kembali ke realita Kuil Pengorbanan. Kael terengah-engah, kini memahami sedikit rasa sakit dan keputusasaan yang mendorong ambisi gila Rowan. Dia… dia juga kehilangan segalanya… pikir Kael getir. Arsitek memanfaatkan rasa sakitnya… sama seperti Dia mencoba memanfaatkan kekuatanku.
+Seorang sosok berjubah muncul dari kegelapan dan menawarkan dunia tanpa rasa sakit—dunia yang akan dibangun melalui keteraturan mutlak.
 
-Sylvara segera menghampiri Kael. "Kael! Kau tidak apa-apa? Energi tadi..." Kael menatap titik tempat Rowan lenyap, lalu ke Zevaron yang masih terbaring pingsan.
+Rowan menerima perjanjian itu.
 
-"Aku… melihat sebagian masa lalunya. Kenapa dia menjadi seperti itu." Ada nada sedih
+Kael melihatnya berlatih Void sendirian selama bertahun-tahun. Setiap kegagalan menguatkan keyakinan bahwa kebebasan hanya melahirkan perang. Dia mulai melihat Kael sebagai kunci untuk menghapus kekacauan, apa pun harga yang harus dibayar.
 
-dalam suaranya, namun juga kemarahan pada Arsitek. "Tapi itu tetap tidak membenarkan semua tindakannya." Zireth mendekat, memeriksa Zevaron. "Dia hanya pingsan. Energi Void yang mengendalikannya sudah hilang total setelah liontin Rowan hancur. Dia... sepertinya kembali menjadi dirinya sendiri. Mungkin." Dia lalu melihat ke arah Rowan menghilang.
+Penglihatan berakhir.
 
-"Sekarang kita punya satu mantan antagonis yang lenyap... dan satu lagi yang pingsan."
+Kael kembali ke aula dengan napas berat.
 
-"Apa yang akan kita lakukan pada Zevaron?" tanya Sylvara.
+Rowan juga pernah kehilangan segalanya. Sang Arsitek menemukan luka itu dan mengubahnya menjadi rantai.
 
-Kael menatap Zevaron yang tak sadarkan diri. Dia teringat prinsip Jalan Keempat yang coba dia jalani – mencari keseimbangan, bukan hanya kehancuran atau pengekangan.
+Sylvara berlari menghampiri. “Kael, kau masih sadar?”
 
-"Kita bawa dia bersama kita," kata Kael tegas. "Kita tidak bisa meninggalkan dia di sini sendirian dalam kondisi lemah."
+“Aku melihat masa lalunya.” Kael memandang lingkaran hangus tempat Rowan menghilang. “Aku mengerti kenapa dia memilih jalan itu.”
 
-"Membawanya?" Zireth tampak ragu. "Kael, itu berisiko! Kita tidak tahu bagaimana
+Tangannya mengepal.
 
-reaksinya saat sadar nanti!"
+“Tapi rasa sakit tidak membenarkan semua yang dia lakukan.”
 
-"Aku tahu," jawab Kael. "Tapi membunuhnya saat dia tak berdaya… atau meninggalkannya di sini untuk mungkin dimanfaatkan lagi oleh Arsitek… itu bukan jalanku. Bukan Jalan Keempat." Kael membuat keputusan sulit untuk membawa Zevaron yang pingsan bersama mereka.
+Zireth berlutut di samping Zevaron. “Dia masih hidup. Kendali Void menghilang setelah liontin pecah.”
 
-Sylvara tampak khawatir namun memahami alasan Kael. Zireth terlihat skeptis, namun tidak membantah keputusan Kael.
+Sylvara menatap rival mereka yang pingsan. “Apa yang kita lakukan dengannya?”
+
+Kael tidak perlu berpikir lama.
+
+“Kita bawa.”
+
+Zireth mengangkat alis. “Dia akan menyerang lagi saat sadar.”
+
+“Mungkin.” Kael menatap Zevaron. “Tapi membunuh orang yang tidak berdaya atau meninggalkannya untuk dipakai Arsitek bukan jalanku.”
+
+Sylvara masih khawatir, tetapi tidak membantah.
+
+Kael memandang lengan kiri yang baru saja menyerap sisa kekuatan Rowan.
+
+Dingin di dalamnya terasa lebih lengkap.
+
+Begitu pula pemahamannya terhadap cara Sang Arsitek mengubah orang yang terluka menjadi alat.

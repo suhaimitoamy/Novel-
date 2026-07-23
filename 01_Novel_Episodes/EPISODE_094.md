@@ -1,27 +1,53 @@
 # Episode 094 — Bisikan Sang Arsitek
 
-Rowan mencengkeram liontin Vorthax yang retak parah, berjuang melawan energi Void liar yang terus menyiksanya dari dalam. "Arsitek… kumohon… beri aku kekuatan untuk mengendalikannya…!" Tiba-tiba, Kael merasakan sentuhan dingin yang familiar namun jauh lebih kuat menusuk pikirannya – sensasi yang sama seperti saat visinya dengan Nyara terputus paksa. Kali ini lebih jelas, lebih terstruktur.
+Rowan mencengkeram liontin yang hampir hancur.
 
-« …Variabel Kael Drayven terdeteksi… Resonansi tiga energi fundamental… Pola Keseimbangan baru… Menarik… Namun masih belum efisien… » Suara tanpa nada itu terdengar langsung di benak Kael, dingin dan geometris.
+“Arsitek, beri aku kekuatan untuk menahannya.”
 
-Suara ini… Sang Arsitek!? Dia… bicara padaku secara langsung? Kael terkejut oleh intrusi mental yang tiba-tiba itu. Suara Arsitek tampaknya tidak hanya terdengar oleh Kael, tapi juga bergema melalui sisa energi di liontin Rowan yang retak.
+Sentuhan dingin menembus pikiran Kael.
 
-« …Eksperimen dengan Wadah Rowan Galt… mendekati kesimpulan… Data resonansi Variabel Kael Drayven telah diterima dan dianalisis… » Suara itu kini terdengar oleh semua orang di aula, dingin dan tanpa ampun. « Kau… Wadah Rowan Galt… sudah tidak berguna lagi… » Rowan, mendengar kata-kata itu, tertegun. Matanya melebar karena tidak percaya dan rasa dikhianati yang luar biasa. "Tidak… TIDAK! Aku adalah pelayanmu yang paling setia! Aku melakukan semua ini untukmu! Kau berjanji…!"
+Kehadiran itu sama dengan yang mengganggu penglihatan Nyara, tetapi kini jauh lebih jelas dan teratur.
 
-« Janji adalah konsep fana yang tidak efisien. Struktur adalah absolut. Selamat tinggal, bidak yang rusak. » Seketika, rune-rune Void yang rumit muncul di tanah tepat di bawah kaki Rowan, bersinar ungu gelap pekat.
+*Variabel Kael Drayven terdeteksi. Resonansi tiga energi fundamental. Pola keseimbangan baru.*
 
-"Sepertinya…" Rowan menatap rune di bawahnya, lalu ke Kael dengan senyum pahit penuh
+Suara tanpa emosi tersebut terdengar langsung di kepalanya.
 
-keputusasaan. "Arsitek tidak suka bidak yang gagal." Rune itu bersinar semakin terang.
+*Menarik. Belum efisien.*
 
-"Pergilah dari sini, Kael. Hentikan Dia… sebelum semuanya terlambat…"
+Sisa energi pada liontin memancarkan suara itu ke seluruh aula.
 
-Sebelum Kael atau siapapun bisa bereaksi, energi Void gelap meledak hebat dari rune di bawah Rowan, menelan sosoknya sepenuhnya dalam pusaran kehampaan hitam. Ledakan Void menelan Rowan.
+*Eksperimen melalui wadah Rowan Galt mendekati kesimpulan. Data Variabel Kael Drayven telah diterima.*
 
-"ROWAN!!!" teriak Kael refleks.
+Rowan membeku.
 
-Setelah ledakan reda, tidak ada jejak Rowan yang tersisa. Hanya lingkaran tanah obsidian yang hangus dan aura Void yang perlahan memudar. Liontin Vorthax yang hancur berkeping-keping jatuh ke tanah. Energi Void liar yang tersisa dari ledakan itu, yang tidak sempat menelan Rowan, kini melesat dengan cepat ke arah... Kael!
+*Wadah Rowan Galt tidak lagi berguna.*
 
-"KAEL! AWAS!" teriak Sylvara panik.
+“Tidak.” Wajahnya berubah. “Aku pelayanmu. Aku melakukan semua ini karena janjimu.”
 
-Energi Void sisa dari penghapusan Rowan kini mengincar Kael. Dia tidak sempat menghindar.
+*Janji adalah konsep fana yang tidak efisien. Struktur bersifat mutlak.*
+
+Rune geometris muncul di bawah kaki Rowan.
+
+*Selamat tinggal, bagian yang rusak.*
+
+Rowan melihat pola tersebut, lalu menatap Kael. Senyum pahit muncul di wajahnya.
+
+“Arsitek tidak menyukai bidak yang gagal.”
+
+Cahaya rune terus membesar.
+
+“Pergilah. Hentikan Dia sebelum terlambat.”
+
+Kael hendak bergerak, tetapi ledakan Void telah menelan Rowan.
+
+“Rowan!”
+
+Ketika kegelapan mereda, tubuhnya tidak terlihat. Pecahan liontin jatuh ke lantai di tengah lingkaran obsidian yang hangus.
+
+Sisa energi dari eksekusi itu berputar liar.
+
+Alih-alih lenyap, seluruh gelombang melesat menuju Kael.
+
+Sylvara berteriak memperingatkan, tetapi jaraknya terlalu dekat.
+
+Void menghantam tubuh Kael sebelum dia sempat menghindar.

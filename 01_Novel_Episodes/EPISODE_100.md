@@ -1,39 +1,61 @@
 # Episode 100 — Fajar sebelum Badai Terakhir
 
-Di depan pintu Kuil Pengorbanan yang gelap, Kael, Sylvara, dan Zireth menatap Sosok Berhelm yang baru saja mendarat dengan Void Wyvern-nya.
+Kael berdiri di depan Sosok Berhelm.
 
-"Aset Kritis?" ulang Kael, bertanya. "Apa maksudmu dengan itu?"
+“Aset Kritis berarti apa?”
 
-"Kegagalan Rowan Galt dan gangguan signifikan yang kau sebabkan pada rencana Sang Arsitek menunjukkan bahwa kau, Kael Drayven, memiliki kemampuan unik untuk menentang Struktur yang ingin Dia paksakan pada realitas ini," jelas Sosok Berhelm. "Kau bukan lagi sekadar variabel liar yang berpotensi mengganggu... tapi kini dianggap sebagai potensi penyeimbang aktif."
+“Kegagalan Rowan membuktikan kau mampu menentang Struktur Sang Arsitek,” jawabnya. “Kau bukan lagi sekadar variabel liar. Nexus menilaimu sebagai penyeimbang aktif yang mungkin berguna.”
 
-"Jadi..." Zireth melangkah maju sedikit. "Apakah itu berarti Nexus Command akhirnya akan
+Zireth maju setengah langkah. “Apakah Nexus akhirnya akan membantu?”
 
-membantu kami sekarang?"
+“Kami tidak ikut campur dalam konflik satu realitas kecuali ancamannya meluas ke multiverse.”
 
-"Tugas utama kami bukanlah ikut campur secara langsung dalam konflik internal satu realitas, kecuali jika ancamannya meluas ke multiverse," jawab Sosok Berhelm. "Tapi... kami bisa memberikan sarana transportasi." Dia menunjuk ke arah Void Wyvern di belakangnya.
+Sosok Berhelm menunjuk Void Wyvern.
 
-"Konstruk ini bisa membawa kalian bertiga ke perbatasan wilayah Karag Thürm, dekat lokasi reruntuhan Urdron, jauh lebih cepat daripada berjalan kaki."
+“Namun kami dapat mengantar kalian ke perbatasan Karag Thürm, dekat Urdron.”
 
-"Kau... akan mengantar kami?" tanya Sylvara tak percaya.
+Sylvara menatapnya tidak percaya. “Kau benar-benar menawarkan tumpangan?”
 
-"Hanya sampai perbatasan terdekat," tegas Sosok Berhelm. "Intervensi lebih jauh akan melanggar protokol Keseimbangan Nexus. Setelah itu, pertarungan terakhir untuk menyelamatkan Zerath adalah milik kalian." Dia naik kembali ke punggung Wyvern. "Waktu adalah esensi. Sang Arsitek pasti akan segera memulai rencana cadangannya setelah kegagalan di sini."
+“Hanya transportasi. Setelah itu, pertarungan untuk Zerath kembali menjadi tanggung jawab kalian.”
 
-Kael, Sylvara, dan Zireth saling pandang sejenak, lalu mengangguk setuju. Tidak ada pilihan lain yang lebih baik saat ini. Mereka bertiga naik ke punggung Void Wyvern. Konstruk magitek kuno itu segera terbang melesat, meninggalkan Pulau Belzoth yang suram, melintasi lautan gelap menuju daratan utama Karag Thürm yang berbatu.
+Dia menaiki konstruksi tersebut.
 
-Dalam perjalanan di atas punggung Wyvern yang terbang cepat, Kael termenung. Dia menatap lengannya yang kini berpola rune ungu halus. Setiap perjalanan dan pertarungan semua pengalaman ini membawaku ke titik ini, pikirnya. Ke Fragmen terakhir. Ke jantung mekanis kuno di bawah reruntuhan Urdron. Dia teringat kembali visi pertarungan terakhir yang dia lihat melalui Nyara. Aku melawan Rowan... Zevaron... Arsitek mengawasi dari jauh... Apakah itu takdir yang tak bisa kuhindari? Atau hanya salah satu Gema kemungkinan yang bisa kuubah? Dia mengepalkan tangannya. Tidak masalah. Jalan Keempat berarti... akulah yang akan menulis akhir dari ceritaku sendiri.
+“Waktu terbatas. Sang Arsitek akan mengaktifkan rencana cadangan setelah kegagalan Belzoth.”
 
-Mereka tiba di pegunungan tandus di perbatasan Karag Thürm. Void Wyvern mendarat dengan mulus. Sosok Berhelm menunjuk ke arah sebuah lembah tersembunyi di depan mereka. "Dari sini, kalian harus melanjutkan dengan berjalan kaki. Reruntuhan Urdron berada di lembah tersembunyi di depan sana." Dia menatap Kael. "Ingat, Kael Drayven. Keseimbangan.
+Kael, Sylvara, dan Zireth naik ke punggung Wyvern.
 
-Apapun kekuatan besar yang akhirnya kau pilih untuk digunakan nanti… jagalah Keseimbangan di atas segalanya." Tanpa menunggu jawaban, Sosok Berhelm dan Void Wyvern-nya terbang pergi, menghilang dengan cepat di balik puncak gunung.
+Mesin senyapnya membawa mereka meninggalkan pulau, menembus badai, lalu melintasi lautan menuju pegunungan Karag Thürm.
 
-Kael, Sylvara, dan Zireth kini berdiri sendirian di perbatasan wilayah Dwarf, menatap ke arah lembah sunyi tempat reruntuhan Urdron berada. Aura energi kuno dan kekuatan yang sangat besar terasa memancar dari sana.
+Selama perjalanan, Kael memandang rune ungu pada lengannya.
 
-"Energi di depan sana... luar biasa besar," gumam Zireth sambil memeriksa pemindainya.
+Setiap pertempuran telah membawanya menuju Fragmen terakhir dan jantung mesin Urdron. Penglihatan Nyara mungkin menunjukkan satu kemungkinan, bukan akhir yang pasti.
 
-"Jauh lebih kuat daripada Nexus Point Void di Kuil Pengorbanan tadi."
+Jalan Keempat berarti dia masih dapat memilih.
 
-"Ini dia..." bisik Sylvara. "Tempat terakhir..."
+Void Wyvern mendarat di pegunungan tandus.
 
-Tiba-tiba, Kael merasakan getaran kuat dari Fragmen di dadanya. Bukan sebagai peringatan bahaya seperti biasanya, tapi lebih seperti... sebuah panggilan? Atau... sebuah pintu yang dipaksa terbuka? Di langit tepat di atas lembah Urdron, awan badai mulai berkumpul dengan sangat cepat, namun bukan awan badai biasa. Warnanya hitam keunguan pekat, berputar ganas, dan di tengah pusaran awan itu, sebuah lubang kecil mulai terbentuk, merobek tabir langit, memperlihatkan kehampaan bintang yang dingin dan asing di baliknya.
+Sosok Berhelm menunjuk lembah tersembunyi.
 
-Retakan dimensional mulai terbuka. Kael mendongak, matanya melebar karena kaget dan firasat buruk. "Itu… itu bukan badai biasa. Itu… sebuah gerbang dimensional… Arsitek sudah memulai sesuatu di Urdron!" Mereka bertiga menatap ngeri pada gerbang dimensional yang mulai terbuka di langit di atas tujuan terakhir mereka, Urdron. Pertarungan terakhir sepertinya akan segera dimulai, lebih cepat dari yang mereka duga.
+“Reruntuhan Urdron berada di depan. Ingatlah keseimbangan ketika memilih kekuatan yang akan kau gunakan.”
+
+Dia terbang pergi tanpa menunggu jawaban.
+
+Kael, Sylvara, dan Zireth berdiri di tepi lembah. Energi kuno yang sangat besar berdenyut dari bawah tanah.
+
+“Pembacaannya melampaui Nexus Point Belzoth,” kata Zireth.
+
+Fragmen di dada Kael menjawab dengan getaran kuat.
+
+Bukan peringatan. Sebuah panggilan.
+
+Awan hitam keunguan berkumpul di atas Urdron. Pusat pusaran robek, memperlihatkan bintang asing dan kehampaan dingin di balik langit.
+
+Kael mendongak.
+
+“Gerbang dimensi.”
+
+Retakan terus membesar di atas tujuan mereka.
+
+“Sang Arsitek sudah memulai rencananya.”
+
+Tanpa waktu untuk beristirahat, mereka berlari menuju Urdron dan awal dari pertarungan terakhir yang datang lebih cepat daripada penglihatan mana pun.

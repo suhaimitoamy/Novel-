@@ -1,31 +1,63 @@
 # Episode 098 — Nasib Sang Rival
 
-Setelah kepergian Rowan yang tragis dan final, suasana di dekat pintu keluar Kuil Pengorbanan menjadi semakin suram.
+Keheningan menyelimuti pintu keluar kuil setelah Rowan benar-benar lenyap.
 
-"Jadi… begitu saja?" gumam Zireth, melihat lingkaran hangus di lantai. "Arsitek bisa
+“Arsitek dapat menghapus bidaknya dari jarak sejauh ini,” gumam Zireth. “Kekuatan apa yang kita hadapi?”
 
-menghapus bidaknya sendiri dari jarak sejauh ini?"
+Zevaron bergerak di atas tandu.
 
-"Kekuatan macam apa yang sedang kita hadapi sebenarnya..." bisik Kael, merasa ancaman
+Dia mengerang dan membuka mata. Cahaya ungu telah hilang, menyisakan tatapan emas yang kebingungan.
 
-Arsitek semakin nyata. Tiba-tiba, Zevaron, yang berada di tandu energi, mulai bergerak dan perlahan sadar. Dia mengerang, memegangi kepalanya yang terasa sakit.
+“Di mana aku?”
 
-"Uh… di mana aku…? Apa yang terjadi…?" Dia membuka mata, pandangannya masih
+Pandangan Zevaron menemukan Kael, Sylvara, dan Zireth.
 
-sedikit kabur. Lalu dia melihat Kael, Sylvara, dan Zireth berdiri di dekatnya. Matanya yang kini kembali normal (tidak lagi ungu kosong) melebar karena kaget dan ingatan yang mulai kembali. "Kau… Anomali… Si Pemanah… dan Si Mesin?"
+“Kalian.”
 
-Sylvara segera waspada. "Dia sudah sadar." Kael menatap Zevaron dengan hati-hati. "Rowan mengendalikanmu. Dia sudah… pergi." Zevaron mencoba mengingat. Wajahnya berkerut karena sakit kepala dan kemarahan saat ingatan terakhirnya kembali. "Rowan… pengkhianat licik itu! Dia menyerangku setelah aku membantunya melawan Penjaga di kuil Celestial!" Dia mencoba bangkit, namun tubuhnya masih terlalu lemah. "Dia bilang… aku akan mendapatkan bagian dari kekuatan Fragmen keenam jika membantunya…"
+Sylvara langsung menyiapkan panah.
 
-"Kau hanya ditipu," kata Zireth datar. "Sama seperti banyak orang lain yang termakan janji Arsitek, mungkin." Zevaron menatap Kael dengan sengit, rasa irinya kembali muncul. "Dan kau… kau yang selalu mendapatkan semua perhatian dari Fragmen! Kenapa!? Apa istimewanya darah campuran sepertimu!?"
+“Rowan mengendalikanmu,” kata Kael. “Dia sudah pergi.”
 
-"Aku tidak pernah memilih kekuatan ini, Zevaron," jawab Kael tenang. "Sama sepertimu yang tidak memilih untuk dikendalikan oleh Rowan." Zevaron terdiam mendengar jawaban itu. Dia menatap Kael lama, ada pergulatan emosi yang terlihat jelas di matanya – amarah, ambisi, rasa malu, dan mungkin sedikit pengertian.
+Ingatan kembali sedikit demi sedikit. Wajah Zevaron menegang.
 
-Akhirnya, dia menghela napas kasar. "Aku… aku hanya ingin kekuatan untuk melindungi rasku… untuk membuktikan pada semua kekaisaran bahwa kami tidak lemah…" Dia menunduk, tampak sedikit malu mengakui ambisinya. "Dan aku hampir menghancurkan segalanya karena keserakahanku sendiri."
+“Dia menyerangku setelah pertarungan di Kuil Celestial. Dia menjanjikan bagian dari kekuatan Fragmen keenam.”
 
-"Lalu apa rencanamu sekarang?" tanya Sylvara.
+“Kau ditipu,” ujar Zireth.
 
-Zevaron menatap ke arah luar kuil, seolah melihat ke arah Puncak Beku di kejauhan. "Aku… aku harus kembali. Memastikan kerajaanku aman dari ancaman apapun yang mungkin datang dari Gerbang Es itu nanti." Dia kembali menatap Kael. "Aku masih tidak menyukaimu, Anomali. Tapi… kau berhutang nyawa padaku karena aku sempat mengalihkan perhatian Rowan di kuil Celestial itu. Dan sekarang… sepertinya aku juga berhutang padamu karena kau membebaskanku dari kendalinya." Dia mencoba berdiri dengan susah payah. "Anggap saja kita impas untuk saat ini. Tapi jika kita bertemu lagi saat berburu Fragmen terakhir… aku tidak akan ragu untuk melawanmu."
+Zevaron mencoba bangkit, tetapi tubuhnya belum kuat.
 
-Tanpa menunggu jawaban, Zevaron berjalan tertatih menjauh, menghilang di kegelapan lorong Kuil Pengorbanan, mencari jalannya sendiri keluar dari Pulau Belzoth.
+Tatapannya kembali dipenuhi iri ketika melihat Kael.
 
-"Yah… setidaknya satu masalah berkurang untuk sementara waktu," komentar Zireth. Dia juga korban dari ambisinya sendiri… pikir Kael. Dunia ini penuh dengan korban dari ambisi orang lain. Kael melihat kepergian Zevaron, merenungkan betapa tipis dan rumitnya garis antara seorang pahlawan, penjahat, dan korban dalam perang memperebutkan kekuatan di Zerath.
+“Kenapa Fragmen selalu memilihmu? Apa yang istimewa dari darah campuran sepertimu?”
+
+“Aku tidak pernah meminta kekuatan ini.” Kael menatapnya tenang. “Sama seperti kau tidak meminta tubuhmu diambil Rowan.”
+
+Jawaban tersebut membuat Zevaron diam.
+
+Amarah, malu, dan ambisi bergantian di wajahnya.
+
+“Aku hanya ingin cukup kuat untuk melindungi rasku dan membuktikan kami tidak lemah.” Dia menunduk. “Lalu keserakahan hampir membuatku menghancurkan semuanya.”
+
+“Apa yang akan kau lakukan?” tanya Sylvara.
+
+Zevaron memandang arah luar kuil.
+
+“Kembali ke kerajaanku. Gerbang Es masih dapat menjadi ancaman.”
+
+Dia memaksa diri turun dari tandu.
+
+“Aku tetap tidak menyukaimu, Anomali. Kau berutang karena aku mengalihkan Rowan di Aethelgard.”
+
+Senyum pahit muncul.
+
+“Dan aku berutang karena kau membebaskanku. Anggap kita impas.”
+
+Zevaron berjalan tertatih menuju lorong lain.
+
+“Jika bertemu lagi saat memburu Fragmen terakhir, aku tidak akan menahan diri.”
+
+Zireth memandang kepergiannya. “Setidaknya satu masalah menjauh untuk sementara.”
+
+Kael tidak menjawab.
+
+Zevaron adalah rival, pelaku, dan korban dalam waktu yang sama. Di Zerath, batas antara ketiganya semakin sulit dilihat.

@@ -1,23 +1,39 @@
 # Episode 093 — Retakan di Hati Pengkhianat
 
-Pedang tiga warna Kael melesat cepat menuju liontin Vorthax yang retak dan bersinar tidak stabil di leher Rowan. Rowan, menyadari bahaya yang mengancam sumber kekuatan barunya, mencoba menangkis serangan itu dengan lengannya yang dilapisi energi Void. Namun, karena perhatiannya sempat teralih oleh drone Zireth, dia sedikit terlambat.
+Zerath's Fang melesat menuju liontin Vorthax.
 
-Ujung bilah Zerath's Fang yang dialiri energi Keseimbangan tiga warna berhasil mengenai permukaan liontin yang sudah retak itu. Dampaknya tidak besar secara fisik, namun energi Keseimbangan itu seolah memperparah ketidakstabilan di dalam liontin. Retakan di liontin itu langsung menjalar lebih parah ke seluruh permukaannya, cahaya ungu gelapnya berkedip hebat dan liar.
+Rowan mengangkat lengan yang dilapisi Void untuk menangkis. Namun perhatiannya terlambat kembali setelah ledakan drone.
 
-Rowan berteriak kesakitan yang luar biasa saat merasakan feedback energi Void liar yang tak terkendali mengalir balik dari liontin itu ke tubuhnya.
+Ujung bilah menyentuh permukaan liontin.
 
-"AAAAARRGGHH!!!"
+Benturannya tidak besar. Energi tiga warna yang dibawa Kael justru masuk ke dalam retakan dan mengacaukan aliran Void di dalamnya.
 
-Energi Void meledak tak terkendali dari liontin yang hampir hancur itu, mendorong Kael mundur dengan keras dan membuat Rowan terhuyung-huyung kesakitan, tubuhnya bergetar hebat. Ledakan energi Void tak stabil dari liontin.
+Garis pecah menyebar ke seluruh permukaan.
 
-Rowan memegangi liontin di lehernya, mencoba menghentikan aliran energi liar yang menyiksanya. "Tidak… Tidak boleh sekarang… Arsitek… bantu aku mengendalikannya…!" Kael mendarat dengan susah payah, mengamati Rowan yang jelas kesakitan. "Liontin itu…
+Cahaya ungu berkedip tanpa pola.
 
-menolaknya? Atau... energinya memang terlalu besar untuk wadah sekecil itu?"
+Rowan menjerit ketika energi yang semula mengalir keluar berbalik menghantam tubuhnya.
 
-"Koneksi paksa ke Nexus Point Void di altar tadi sepertinya terputus!" analisis Zireth cepat.
+Ledakan Void mendorong Kael menjauh. Rowan terhuyung sambil mencengkeram liontin di lehernya.
 
-"Liontin itu mengalami kelebihan beban energi!"
+“Tidak. Belum sekarang.”
 
-Rowan menatap Kael dengan mata penuh kebencian, tapi kini juga terselip rasa takut dan putus asa di dalamnya. "Kau… kau tidak akan mengerti… pengorbanan apa yang diperlukan… untuk mencapai tatanan yang sempurna…"
+Kegelapan menyembur dari celah-celah benda tersebut dan membakar zirah serta kulitnya.
 
-Rowan terhuyung kesakitan, energi Void liar terus menyembur keluar dari liontin yang kini hampir hancur berkeping-keping. Pertarungan tampaknya telah mencapai titik kritis.
+“Arsitek, bantu aku mengendalikannya.”
+
+Kael mendarat dengan susah payah. “Energinya terlalu besar untuk wadah itu.”
+
+“Hubungan paksa dengan Nexus Point terputus,” kata Zireth setelah melihat pemindai. “Liontin mengalami kelebihan beban.”
+
+Rowan mengangkat wajah.
+
+Kebencian masih ada dalam matanya, tetapi kini bercampur takut. Untuk pertama kalinya, keyakinannya kepada Sang Arsitek tampak retak bersama liontin di tangannya.
+
+“Kau tidak memahami pengorbanan yang dibutuhkan untuk membangun tatanan sempurna.”
+
+Energi liar terus merobek tubuhnya.
+
+Pertarungan telah berubah. Kael tidak lagi menghadapi Rowan yang mengendalikan Void.
+
+Dia menghadapi seseorang yang sedang ditelan oleh kekuatan yang dipercaya akan menyelamatkannya.
