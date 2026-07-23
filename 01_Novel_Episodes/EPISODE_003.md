@@ -1,43 +1,71 @@
 # Episode 003 — Buronan Dimensi
 
-Kael dan Sylvara berlari sekuat tenaga di jalur bebatuan yang licin. Hujan mulai turun, membuat pandangan kabur.
+Kael dan Sylvara berlari di atas jalur bebatuan yang licin. Hujan turun semakin deras, mengaburkan pepohonan di depan mereka.
 
-"Sedikit lagi..." kata Sylvara terengah. "Sebelum kita berhasil melewati batas wilayah
+“Sedikit lagi,” ujar Sylvara di sela napas. “Begitu melewati batas Aranyel, pengejaran mereka akan melambat.”
 
-Aranyel..."
+“Lalu kita aman?”
 
-"Apakah kita akan aman... setelah itu?" tanya Kael penuh harap.
+Sylvara belum sempat menjawab ketika kilatan sihir merah menghantam jalan di belakang mereka. Batu pecah dan serpihannya melesat melewati kepala Kael.
 
-Namun, kilatan sihir merah gelap meledak tepat di belakang mereka, menghancurkan batu tempat mereka berpijak beberapa detik sebelumnya.
+“Mereka membawa Void Hunter,” desis Sylvara. “Cepat sekali.”
 
-"Mereka memanggil Void Hunter!? Secepat ini!?" seru Sylvara tak percaya.
+Kael terhuyung. Fragmen di dadanya berdenyut liar, membuat pandangannya terbelah dua. Suara yang selama ini bersembunyi di balik pikirannya kembali terdengar.
 
-Kael tiba-tiba terhenti. Fragmen di dadanya bergetar hebat dan liar. Pandangannya menjadi ganda, kepalanya terasa sakit. "Kepalaku... suara-suara itu... mereka berbisik lagi..."
+*Lari bukanlah pilihan. Hadapi bentuk pertamamu.*
 
-« ...Lari bukanlah pilihan... Hadapi... bentuk pertamamu... » bisik suara dari dalam Fragmen itu. Sylvara menarik tangan Kael dengan paksa, membawanya masuk ke reruntuhan gerbang batu tua yang diselimuti kabut tebal aneh. "Masuk cepat! Ini jalan pintas menuju ZONA FRAGMENTED – wilayah retakan antar dimensi! Para pemburu itu tidak akan bisa mengikutimu ke dalam sana... kecuali mereka siap kehilangan kewarasan dan jiwanya!"
+“Kepalaku...” Kael menekan pelipis. “Suara itu kembali.”
 
-Di dalam Zona Fragmented, pemandangannya kacau balau. Tanah tampak menggantung di udara, air sungai mengalir ke atas, dan gravitasi terasa berubah-ubah tanpa pola. Kael menatap sekeliling dengan campuran takjub dan takut. "...Tempat apa ini... seperti dunia yang rusak...?"
+Sylvara meraih lengannya dan menyeretnya menuju reruntuhan gerbang batu yang tertutup kabut.
 
-"Selamat datang di antara dunia nyata dan dunia yang seharusnya tidak pernah ada," jawab Sylvara. Dia menjelaskan sambil mereka berjalan pelan di atas tanah retak yang melayang.
+“Masuk. Ini jalan menuju Zona Fragmented. Para pemburu tidak akan mengikuti kecuali mereka siap kehilangan kewarasan.”
 
-"Fragmen yang aktif bisa memecah lapisan dimensi seperti ini. Menciptakan 'retakan'. Banyak yang tersesat masuk ke sini... tapi jarang sekali ada yang bisa menemukan jalan keluar." ...Lalu kenapa aku merasa... tempat ini seperti rumah? batin Kael bingung.
+Begitu melewati gerbang, dunia berubah.
 
-Tiba-tiba, terdengar suara auman mengerikan dari langit yang tampak terbalik di atas mereka. Makhluk besar mengerikan bermata tiga turun dari pusaran energi gelap.
+Tanah melayang dalam bongkahan-bongkahan besar. Sungai mengalir ke atas, menembus langit yang terbalik. Setiap langkah terasa ringan sesaat, lalu mendadak berat ketika gravitasi bergeser tanpa pola.
 
-"SHADOWBLOOD BEAST!!" teriak Sylvara panik. Dia segera menarik panah rune dan
+Kael memandangi tempat itu dengan tengkuk meremang. “Dunia ini seperti sudah pecah.”
 
-menembakkannya. Tapi serangannya hanya menembus tubuh makhluk itu tanpa efek. "Sial! Ini hanya Ilusi! Kael, makhluk itu bisa membaca emosimu... bentuknya akan berubah tergantung ketakutan terbesarmu!!" Kael gemetar hebat. Seketika, makhluk itu berubah bentuk menjadi siluet ibunya yang hangus terbakar.
+“Ini celah di antara dunia yang nyata dan dunia yang seharusnya tidak ada,” jawab Sylvara. Mereka meniti lempeng batu yang melayang di atas kehampaan. “Fragmen aktif dapat merobek lapisan dimensi. Banyak orang masuk ke sini. Sedikit yang menemukan jalan pulang.”
 
-"...Ibu...?" panggil Kael lirih.
+Anehnya, Kael tidak merasa asing.
 
-« Kau... kaulah penyebabnya... kau yang membakar kami semua... » bisik makhluk ilusi itu dengan suara ibunya. Cahaya dari Fragmen Kael meledak keluar dari dadanya. Bola api merah membara seketika menyelubungi seluruh tubuhnya.
+Tempat itu kacau, tetapi denyut di dadanya justru menjadi lebih teratur. Seolah-olah sebagian dari dirinya mengenali kerusakan di sekeliling mereka.
 
-"DIAM!!!" teriak Kael penuh amarah dan kesakitan.
+Auman rendah mengguncang udara.
 
-Ledakan api emosi menghancurkan bayangan ilusi. Kael berdiri terengah-engah di tengah kobaran api merah. Wajahnya kotor dan terluka, tapi tatapannya kini tegas. "Aku... akan mencari tahu siapa diriku sebenarnya. Tapi sebelum itu...
+Dari pusaran gelap di langit, seekor makhluk bermata tiga turun dengan tubuh yang berubah-ubah seperti asap.
 
-aku akan menghancurkan semua yang mencoba membuatku lupa siapa aku." Sylvara tersenyum tipis melihat perubahan pada Kael. Makhluk ilusi itu telah lenyap. Namun, api Fragmen di tubuh Kael... masih menyala liar, enggan padam.
+“Shadowblood Beast!” Sylvara menarik panah rune dan melepaskannya.
 
-"Kau baru saja menyentuh potensi kekuatan Tier 1," kata Sylvara. "Tapi Fragmen itu... sepertinya menginginkan lebih." Kael menatap api di tangannya, napasnya masih berat. "...Kalau begitu... biarkan dia mencoba... aku tidak akan tunduk padanya."
+Anak panah itu menembus tubuh makhluk tersebut tanpa meninggalkan luka.
 
-Jauh di luar Zona Fragmented, Rowan berdiri tenang di atas sebuah batu tinggi. Angin dingin meniup jubah hitamnya. Dia tersenyum tipis. "Hmph... Awal yang cukup bagus, Kael. Tapi sekuat apapun nyalimu nanti... pada akhirnya... kau akan memohon untuk dilepaskan dari beban Fragmen itu."
+“Ilusi,” katanya cepat. “Ia membaca ketakutanmu. Jangan biarkan—”
+
+Wujud makhluk itu mencair sebelum berubah menjadi seorang perempuan dengan kulit hangus dan pakaian yang terbakar.
+
+Kael membeku.
+
+“Ibu?”
+
+*Kaulah penyebabnya,* bisik sosok itu dengan suara yang sangat dia kenal. *Kau membakar kami semua.*
+
+Api merah menyembur dari dada Kael dan membungkus tubuhnya. Panasnya memaksa Sylvara mundur.
+
+“Diam!”
+
+Ledakan energi menghantam bayangan itu hingga tercerai-berai. Kael berdiri di tengah kobaran api, tubuhnya gemetar, tetapi tatapannya tidak lagi menghindar.
+
+“Aku akan mencari tahu siapa diriku,” katanya. “Dan tak akan kubiarkan siapa pun memakai ingatanku untuk mengendalikanku.”
+
+Api di kulitnya belum padam. Ia bergerak liar, seolah masih mencari sesuatu untuk dibakar.
+
+Sylvara mengamatinya dengan hati-hati. “Kau baru menyentuh potensi tingkat pertama. Masalahnya, Fragmen itu tampaknya menginginkan lebih.”
+
+Kael menatap nyala api di telapak tangannya.
+
+“Biarkan ia mencoba. Aku tidak akan tunduk.”
+
+Jauh di luar Zona Fragmented, Rowan berdiri di atas batu tinggi. Jubah hitamnya berkibar diterpa angin.
+
+“Awal yang bagus, Kael,” gumamnya. “Tapi suatu hari nanti, kau sendiri yang akan memohon agar beban itu dilepaskan.”
