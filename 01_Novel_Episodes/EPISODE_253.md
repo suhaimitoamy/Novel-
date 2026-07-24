@@ -1,25 +1,41 @@
 # Episode 253 — Benturan Dataran Terbelah
 
-Debu bergerak melawan arah angin di zona nol antara empat kekaisaran. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Empat kekaisaran menolak menghentikan serangan pada waktu yang sama.
 
-Serangan artileri Fragmen dan tanah bergravitasi liar datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Masing-masing menuntut pihak lain mundur lebih dahulu. Selama perdebatan berlangsung, hentakan energi terus merusak gravitasi dan celah tanpa dasar semakin lebar.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan jaringan pengungsi Sylvara dan Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael, Sylvara, dan Zireth membagi tugas.
 
-Kael menerapkan penyeimbangan medan gravitasi lokal. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sylvara menjaga jalur pengungsi. Zireth memisahkan koordinat palsu Sistem Pahlawan dari perintah asli. Kael bergerak di antara empat garis pasukan untuk menstabilkan tanah sebelum serangan berikutnya mencapai pusat dataran.
 
-“Sekarang, Kael! Simpul Dataran Terbelah ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Tanpa entropi murni, dia tidak dapat merobek semua penghalang. Itu memaksanya mencari bagian terkecil yang benar-benar perlu dihentikan.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh zona nol antara empat kekaisaran sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Zevaron tiba bersama sebagian legiun Rhythor dan memerintahkan penghentian. Beberapa jenderal menolak, membuat perpecahan muncul di dalam pasukan sendiri.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Dataran Terbelah, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Sistem memanfaatkan kekacauan.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Dataran Terbelah tetap memiliki batas yang tak boleh dilanggar.
+Tanah Dataran Terbelah bangkit menjadi raksasa yang membawa lambang empat kekaisaran. Setiap gerakannya mengirim gelombang ke arah berbeda, memastikan semua pihak percaya lawannya berkhianat.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan jaringan pengungsi Sylvara dan Zireth untuk menghantam pusat kendali yang baru terlihat.
+Kael membaca medan gravitasi makhluk tersebut. Tidak ada inti tunggal. Seluruh dataran menjadi wadah bagi kerusakan yang ditumpuk selama perang.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: senjata kekaisaran merusak jangkar fisika di bawah medan. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Kita tidak dapat mengalahkannya seperti lawan biasa,” kata Zireth.
 
-Kael merasakan kemenangan kecil atas lapisan luar Dataran Terbelah, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh zona nol antara empat kekaisaran menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael menghubungkan seluruh sumber energi yang telah dihentikan ke satu jaringan penyeimbang. Aliran yang semula dipakai merusak wilayah diarahkan untuk mengembalikan kestabilan tanah.
 
-“Kita membangunkan pusat Dataran Terbelah,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama artileri Fragmen dan tanah bergravitasi liar mulai bergerak dari kedalaman.
+Sylvara meminta para pengungsi dan regu medis menjaga rune serta jangkar. Orang-orang yang sebelumnya hanya diselamatkan kini ikut mempertahankan jalur.
+
+Raksasa dataran menyerang pusat jaringan.
+
+Kael menahan satu sisi. Zevaron menjaga sisi lain dengan badai. Zireth mengatur fase energi, sementara Sylvara mengarahkan orang-orang menuju simpul yang mulai runtuh.
+
+Empat pasukan melihat kekuatannya bekerja bersama untuk memperbaiki kerusakan yang mereka buat.
+
+Sebagian komandan akhirnya menghentikan serangan secara sukarela.
+
+Setiap aliran yang padam membuat tubuh raksasa tersebut lebih kecil.
+
+Namun satu sumber tersembunyi masih aktif dari bawah tanah. Gelombangnya menghantam pusat Dataran Terbelah dan membuka jurang terbesar.
+
+Ribuan prajurit yang sedang dievakuasi tersedot masuk.
+
+Kael melompat ke tepi dan membangun medan gravitasi dengan tubuhnya sebagai jangkar.
