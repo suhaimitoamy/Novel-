@@ -1,27 +1,25 @@
 # Episode 354 — Harga yang Dituntut Sarang Pengawas
 
-Bayangan-bayangan memanjang meski tak ada matahari di koridor pengawasan Sistem. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Agar prediksi benar-benar gagal, Kael harus melawan naluri yang paling dalam.
 
-Mereka telah kehilangan ruang untuk bergerak. Watcher tanpa wajah dan jebakan prediksi menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Watcher menempatkan Sylvara di satu jalur dan ribuan jiwa tak bernama di jalur lain. Sistem menghitung Kael akan bergerak kepada Sylvara terlebih dahulu.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael harus bertindak bertentangan dengan nalurinya sendiri. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Seluruh tubuhnya memang ingin melakukannya.
 
-“Kita mundur dari Sarang Pengawas. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael tetap di tempat.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan gerak improvisasi Sylvara. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Dia mempercayakan Sylvara menyelamatkan dirinya dan mengirim noise entropi ke jalur jiwa. Sylvara terluka, tetapi bertahan. Jiwa-jiwa aman.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan noise entropi untuk merusak prediksi untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Keputusan itu mematahkan model Watcher.
 
-Watcher tanpa wajah dan jebakan prediksi bereaksi liar di pusat Sarang Pengawas. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Namun harga psikologisnya menetap. Untuk beberapa saat setelahnya, Kael tidak lagi dapat mempercayai dorongan pertama dalam dirinya. Setiap naluri terasa seperti kemungkinan jebakan.
 
-Kael menemukan benang kendali milik Watcher tanpa wajah dan jebakan prediksi. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh koridor pengawasan Sistem.
+Sylvara menghampirinya dengan darah di pelipis. “Kau membuat pilihan yang tepat.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Sarang Pengawas akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+“Aku membiarkanmu terkena.”
 
-“Tidak,” kata Kael di hadapan Sarang Pengawas, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Aku bukan bagian tubuhmu yang harus selalu kau gerakkan.”
 
-Serangan mereka melalui gerak improvisasi Sylvara tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Kael menerima luka dalam kata-kata itu.
 
-Saat debu Sarang Pengawas turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael harus bertindak bertentangan dengan nalurinya sendiri. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
-
-Di tengah kerusakan, satu jalur terakhir menuju pusat Sarang Pengawas terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Sarang Pengawas padam. Harga kemenangannya permanen: Kael harus belajar bertindak bertentangan dengan naluri tanpa kehilangan dirinya pada keraguan.

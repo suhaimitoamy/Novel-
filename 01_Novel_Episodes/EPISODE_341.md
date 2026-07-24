@@ -1,25 +1,21 @@
 # Episode 341 — Jejak Hukum Keempat
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di puncak Menara Fragmen. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pola Jalan Keempat turun dari Inti Kosmos menuju puncak Menara Fragmen.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menanam kebebasan kausal ke dalam Zerath. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Dua belas saksi datang dari dua belas ras. Mereka bukan raja atau pendeta tertinggi, melainkan orang-orang yang akan menanggung akibat hukum baru: penjaga kota, penyembuh, penambang, pemburu, dan anak-anak yang lahir setelah perang.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan saksi dari dua belas ras, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael menolak menanam hukum tanpa kesaksian mereka.
 
-Kael memusatkan napas dan menggunakan pemutusan prediksi deterministik. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik serangan terakhir Pemandu Kosmik.
+Pemandu Kosmik yang telah pecah kembali melalui sisa prediksi Sistem. Ia tidak memiliki tubuh, tetapi dapat memperlihatkan masa depan yang paling mungkin bila hukum itu diterapkan.
 
-Denyut Hukum Keempat segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Sebagian masa depan berakhir damai. Sebagian lain dipenuhi perang baru karena tidak ada nubuat yang mengarahkan keputusan.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di Hukum Keempat, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Lihat,” kata suara pemandu. “Kebebasan tidak memperbaiki sifat makhluk hidup.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan saksi dari dua belas ras, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+“Bukan itu tujuannya,” jawab Kael.
 
-Di balik penghalang Hukum Keempat, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa puncak Menara Fragmen melupakan bentuk alaminya.
+Dia menyentuh denyut planet dan menemukan lapisan prediksi deterministik yang masih mengikat setiap keputusan pada hasil paling mungkin.
 
-“Kita sudah melewati pintu Hukum Keempat, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Untuk menanam Hukum Keempat, lapisan itu harus diputus.
 
-Suara pertama dari serangan terakhir Pemandu Kosmik datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
-
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Hukum Keempat terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
-
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama serangan terakhir Pemandu Kosmik muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Hukum Keempat baru saja dimulai.
+Kael akan kehilangan kemampuan melihat masa depan bersama Sistem.

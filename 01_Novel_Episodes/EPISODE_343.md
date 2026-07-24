@@ -1,25 +1,25 @@
 # Episode 343 — Benturan Hukum Keempat
 
-Suhu berubah setiap kali Kael menarik napas di puncak Menara Fragmen. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sisa Pemandu Kosmik menyerang melalui masa depan.
 
-Serangan serangan terakhir Pemandu Kosmik datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ia menunjukkan kematian setiap saksi bila Kael memutus prediksi. Beberapa orang mundur. Yang lain meminta proses dihentikan.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan saksi dari dua belas ras, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael tidak memaksa mereka bertahan.
 
-Kael menerapkan pemutusan prediksi deterministik. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Mereka yang memilih tetap menjadi jangkar hukum. Sylvara berdiri di depan jaring prediksi dan menembakkan panah pada garis yang memperlihatkan dirinya mati.
 
-“Sekarang, Kael! Simpul Hukum Keempat ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Aku sudah melihat cukup banyak versi kematianku.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh puncak Menara Fragmen sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Anak panah memecah satu cabang.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Hukum Keempat, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael memakai pemutusan prediksi deterministik. Setiap denyut memisahkan hasil yang paling mungkin dari perintah yang mencoba mewujudkannya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Hukum Keempat tetap memiliki batas yang tak boleh dilanggar.
+Pemandu membalas dengan membuat masa depan terasa sebagai ingatan. Kael merasakan kota terbakar, Sylvara jatuh, dan Zerath runtuh seolah semuanya sudah terjadi.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan saksi dari dua belas ras untuk menghantam pusat kendali yang baru terlihat.
+Dia hampir mengubah keputusan untuk mencegahnya.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: hukum baru tidak menjamin keselamatan, hanya hak memilih. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Saksi dari dua belas ras menyebut keadaan masa kini: menara masih berdiri, mereka masih hidup, dan belum ada satu hasil yang menjadi kenyataan.
 
-Kael merasakan kemenangan kecil atas lapisan luar Hukum Keempat, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh puncak Menara Fragmen menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael mengikuti suara mereka pulang.
 
-“Kita membangunkan pusat Hukum Keempat,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama serangan terakhir Pemandu Kosmik mulai bergerak dari kedalaman.
+Jaring prediksi retak.

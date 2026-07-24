@@ -1,27 +1,29 @@
 # Episode 344 — Harga yang Dituntut Hukum Keempat
 
-Butiran cahaya melayang seperti abu dari bintang mati di puncak Menara Fragmen. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Untuk memutus lapisan prediksi, Kael harus memutus hubungan dirinya sendiri dengannya.
 
-Mereka telah kehilangan ruang untuk bergerak. Serangan terakhir Pemandu Kosmik menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Ragnarok Pulse telah lama membaca kemungkinan melalui resonansi. Kemampuan itu membantunya menghindari kematian dan mengenali pola musuh.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael kehilangan kemampuan melihat masa depan. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Pemandu menawarkan agar Kael mempertahankan akses pribadi.
 
-“Kita mundur dari Hukum Keempat. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Dunia boleh bebas. Kau tetap dapat melihat agar menjaga mereka.”
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan saksi dari dua belas ras. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Godaan itu lebih halus daripada takhta.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pemutusan prediksi deterministik untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael menatap Sylvara. “Kalau aku melihat bencana dan memaksa semua orang menghindarinya, apa bedanya?”
 
-Serangan terakhir Pemandu Kosmik bereaksi liar di pusat Hukum Keempat. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Bedanya hanya kau percaya niatmu lebih baik.”
 
-Kael menemukan benang kendali milik serangan terakhir Pemandu Kosmik. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh puncak Menara Fragmen.
+Kael memutus jalur terakhir.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Hukum Keempat akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Semua masa depan padam.
 
-“Tidak,” kata Kael di hadapan Hukum Keempat, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Tidak ada lagi gambaran beberapa detik sebelum serangan, tidak ada kemungkinan yang berbisik di tepi pikirannya. Untuk pertama kalinya sejak Ragnarok Pulse bangun, Kael hanya memiliki masa kini.
 
-Serangan mereka melalui saksi dari dua belas ras tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Sisa Pemandu menjerit lalu runtuh.
 
-Saat debu Hukum Keempat turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael kehilangan kemampuan melihat masa depan. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Harga Hukum Keempat permanen: Kael kehilangan kemampuan melihat masa depan.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Hukum Keempat terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Dia tidak tahu apakah keputusan berikutnya akan menyelamatkan atau menghancurkan dunia.
+
+Dia hanya tahu keputusan itu tidak lagi dibuat oleh ramalan.

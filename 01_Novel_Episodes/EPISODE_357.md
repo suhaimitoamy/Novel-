@@ -1,25 +1,25 @@
 # Episode 357 — Suara dari Jiwa Para Pahlawan
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di gudang kristal kelahiran. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Suara para Pahlawan memenuhi gudang.
 
-Sejak benturan sebelumnya, pola rantai kontrak ilahi terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membebaskan jiwa tanpa memutus identitasnya, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Ada yang memohon dibebaskan. Ada yang memohon jangan disentuh. Ada yang tidak lagi mampu membedakan keinginan sendiri dari perintah kontrak.
 
-“Ada lapisan lain di bawah Jiwa Para Pahlawan. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sylvara meminta setiap jiwa menyebut satu keinginan yang tidak berhubungan dengan misi.
 
-Ia mengalirkan pemutusan entanglement kontrak satu per satu melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Haren ingin mencicipi makanan dari rumahnya. Seorang perempuan ingin belajar musik. Pahlawan lain hanya ingin tidur tanpa mimpi perang.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan kesabaran Sylvara mendengar tiap jiwa. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Keinginan kecil itu menjadi penanda identitas.
 
-Kael menyentuh rekaman Jiwa Para Pahlawan. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Kael mengunci pola tersebut, lalu memutus satu simpul kontrak. Haren menjerit, tetapi ingatannya tetap utuh.
 
-Ia memutus kontak dengan rekaman Jiwa Para Pahlawan sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Rantai ilahi menyerang melalui rasa bersalah. Semua korban yang pernah gagal diselamatkan muncul di sekitar Haren dan menuduhnya meninggalkan tugas.
 
-“Ini bukan hanya jejak serangan di Jiwa Para Pahlawan,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Kael tidak menghapus gambaran.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Rantai kontrak ilahi telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+“Bebas tidak berarti bebas dari rasa bersalah,” katanya. “Hanya berarti rasa bersalah tidak lagi memegang rantai.”
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—banyak Pahlawan mengetahui mereka boneka tetapi tak pernah mampu berhenti.
+Haren memilih melangkah keluar dari kristal.
 
-“Kalau petunjuk tentang Jiwa Para Pahlawan ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Yang lain melihatnya.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan rantai kontrak ilahi berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Sebagian mulai meminta kesempatan yang sama.

@@ -1,27 +1,23 @@
 # Episode 349 — Harga yang Dituntut Pabrik Jiwa
 
-Debu bergerak melawan arah angin di kompleks tersembunyi di balik aurora. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael membuka Gema Pengetahuan untuk menampung suara jiwa yang belum lahir.
 
-Mereka telah kehilangan ruang untuk bergerak. Operator Sistem dan mesin pencetak takdir menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Tidak ada nama untuk memisahkan mereka. Tidak ada kenangan, keluarga, atau pilihan yang sudah dibuat. Hanya jutaan kemungkinan hidup yang baru belajar takut.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael mendengar jutaan bayi yang belum sempat memiliki nama. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Suara mereka masuk ke Ragnarok Pulse sebagai tekanan tanpa bahasa.
 
-“Kita mundur dari Pabrik Jiwa. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zireth. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael jatuh pada satu lutut.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan alat pembaca pola buatan Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Zireth menawarkan menutup sebagian aliran agar tubuhnya tidak pecah. Itu berarti membiarkan tabung terputus.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pemetaan aliran energi jiwa tanpa menyentuhnya untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael menolak dan membagi beban melalui jaringan dua belas ras. Para penyembuh, penjaga, dan keluarga di Zerath menerima tanggung jawab membangun tempat kelahiran tanpa fungsi yang dipaksakan.
 
-Operator Sistem dan mesin pencetak takdir bereaksi liar di pusat Pabrik Jiwa. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zireth berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Pabrik berhenti runtuh.
 
-Kael menemukan benang kendali milik operator Sistem dan mesin pencetak takdir. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh kompleks tersembunyi di balik aurora.
+Namun suara itu tidak hilang dari Kael. Setiap kali dia menutup mata, dia mendengar jutaan bayi yang belum sempat memiliki nama.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Pabrik Jiwa akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Harga tersebut permanen. Mereka menjadi pengingat bahwa Sistem pernah menilai kehidupan sebelum kehidupan itu mampu memilih.
 
-“Tidak,” kata Kael di hadapan Pabrik Jiwa, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Operator terakhir terlepas dari mesin.
 
-Serangan mereka melalui alat pembaca pola buatan Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zireth; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
-
-Saat debu Pabrik Jiwa turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael mendengar jutaan bayi yang belum sempat memiliki nama. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
-
-Di tengah kerusakan, satu jalur terakhir menuju pusat Pabrik Jiwa terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Di belakangnya, pintu-pintu kompleks berputar dan berubah menjadi mata.
