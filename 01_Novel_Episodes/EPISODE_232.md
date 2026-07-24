@@ -1,25 +1,51 @@
 # Episode 232 — Suara dari Nama yang Terkikis
 
-Keheningan datang seperti tangan yang menutup tenggorokan di koridor kenangan Neraka. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Di balik pintu, koridor berubah menjadi ruang tanpa gambar.
 
-Sejak benturan sebelumnya, pola versi-versi Kael yang menawarkan jalan mudah terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menjaga identitas setelah melihat masa depan tiran, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Kael tidak melihat masa lalu, tetapi merasakan bagian-bagian dirinya hilang satu demi satu. Nama tetap ada. Pilihan-pilihan penting masih dapat diingat. Namun wajah, suara, dan tempat yang memberi pilihan itu makna mulai memudar.
 
-“Ada lapisan lain di bawah Nama yang Terkikis. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Eira. Kael memandangi garis-garis pada permukaan. Ia tahu Eira benar. Kekuatan mentah hanya akan mempercepat bencana.
+Eira menyentuh liontinnya.
 
-Ia mengalirkan denyut ritmis sebagai jangkar autobiografis melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Aku tahu pernah punya adik,” katanya. “Tapi aku tidak bisa mengingat suaranya.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Eira yang menyerahkan kenangan terakhirnya. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Kael menahan rasa bersalah. “Kenanganmu membuka jalan untukku.”
 
-Kael menyentuh rekaman Nama yang Terkikis. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Untuk kita. Jangan ubah pengorbananku menjadi hutang yang membuatmu merasa paling menderita.”
 
-Ia memutus kontak dengan rekaman Nama yang Terkikis sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Versi-versi Kael muncul kembali. Kali ini mereka tidak menawarkan kekuatan, melainkan identitas sederhana.
 
-“Ini bukan hanya jejak serangan di Nama yang Terkikis,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Eira. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Satu berkata dia hanya korban para dewa.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Versi-versi Kael yang menawarkan jalan mudah telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Satu menyebut dirinya monster yang tidak dapat berubah.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—identitas bertahan karena pilihan berulang, bukan karena ingatan sempurna.
+Satu lagi mengaku pahlawan terpilih yang wajib menyelamatkan semua orang.
 
-“Kalau petunjuk tentang Nama yang Terkikis ini benar, akibatnya lebih besar daripada musuh di depan,” kata Eira. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Masing-masing memberi jawaban mudah atas pertanyaan siapa dirinya.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan versi-versi Kael yang menawarkan jalan mudah berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Kael hampir memilih salah satu karena kelelahan menjaga identitas yang terus berubah.
+
+Eira memukul lantai dengan tongkat. “Kau bukan kalimat tunggal.”
+
+Denyut ritmis Kael menjawab.
+
+Dia menyadari identitasnya tidak bertahan karena ingatan sempurna. Banyak kenangan telah hilang, tetapi pada situasi berbeda dia terus memilih hal yang sama: menolak rantai, menjaga hak orang lain, dan membatasi kehancuran meski jalan cepat tersedia.
+
+“Diriku bukan kumpulan gambar yang tidak pernah berubah,” katanya. “Aku adalah pilihan yang terus kuambil ulang.”
+
+Koridor bereaksi.
+
+Versi korban, monster, dan pahlawan menyerang bersamaan. Kael tidak menghancurkan mereka. Dia mengambil bagian yang benar dari masing-masing tanpa menyerahkan seluruh identitas: dia pernah menjadi korban, mampu menjadi monster, dan kadang bertindak sebagai pahlawan.
+
+Tidak ada satu sebutan yang berhak memerintah sisanya.
+
+Denyutnya menjadi lebih stabil.
+
+Di pusat ruang, Kael menemukan satu suara yang hampir hilang—suara ibunya memanggil namanya. Dia mencoba mendekat, tetapi koridor memindahkan suara tersebut ke balik dinding lain.
+
+“Jangan mengejarnya,” kata Eira. “Tempat ini memakai kerinduan sebagai arah.”
+
+Kael menahan langkah.
+
+Pintu berikut terbuka karena dia memilih maju tanpa memperoleh kembali apa yang paling diinginkan.
+
+Namun suara ibunya menjadi semakin tipis di belakang.
