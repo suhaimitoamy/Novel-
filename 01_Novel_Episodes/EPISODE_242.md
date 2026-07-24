@@ -1,25 +1,47 @@
 # Episode 242 — Suara dari Kebenaran Furyborn
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di inti arsip Neraka Zerath. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Protokol penghapus menutup semua jalur.
 
-Sejak benturan sebelumnya, pola protokol penghapus Neraka terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membawa bukti eksperimen para dewa kembali ke dunia, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Cahaya putih memenuhi ruang pusat, menyapu nama-nama dari dinding dan mencoba masuk ke Gema Pengetahuan. Kael menahan proses tersebut dengan simpul nol, tetapi data jiwa yang telah dikompresi menekan artefak sampai permukaannya retak.
 
-“Ada lapisan lain di bawah Kebenaran Furyborn. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sylvara menopang Gema dengan kedua tangan.
 
-Ia mengalirkan kompresi data jiwa ke dalam Gema Pengetahuan melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Kalau dipaksa menerima semua kesaksian, benda ini akan pecah.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Gema Pengetahuan dan sisa denyut Eira. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Kalau dikurangi, kita memilih siapa yang dilupakan.”
 
-Kael menyentuh rekaman Kebenaran Furyborn. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Suara Eira muncul sebagai denyut kasar dalam pola Frekuensi Penyangkal. Bukan jiwanya—hanya irama yang pernah dia tinggalkan saat membakar Fury.
 
-Ia memutus kontak dengan rekaman Kebenaran Furyborn sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Denyut tersebut memberi Kael ide.
 
-“Ini bukan hanya jejak serangan di Kebenaran Furyborn,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Kesaksian tidak harus disimpan sebagai arsip lengkap dalam satu wadah. Ia dapat dibagi menjadi hubungan-hubungan kecil yang saling membuktikan keberadaan satu sama lain.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Protokol penghapus Neraka telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Kael memecah data jiwa menjadi jaringan. Gema Pengetahuan menyimpan inti kebenaran. Tongkat Eira membawa catatan Furyborn. Lengan bintang Zireth, yang masih terhubung dari dunia atas, menerima sebagian pola eksperimen. Bahkan Kael dan Sylvara masing-masing menyimpan kesaksian dalam resonansi tubuh.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Kael adalah Furyborn pertama yang lahir di luar rancangan Sistem.
+Protokol tidak dapat menghapus semuanya sekaligus tanpa menyentuh banyak sistem berbeda.
 
-“Kalau petunjuk tentang Kebenaran Furyborn ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Cahaya putih berubah menjadi sosok penjaga tanpa wajah.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan protokol penghapus Neraka berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+*Informasi terlarang akan memicu perang dan keruntuhan iman. Penghapusan diperlukan demi stabilitas.*
+
+Kael menatapnya. “Kebenaran dapat disalahgunakan. Itu tidak membuatmu berhak menghapus korbannya.”
+
+Penjaga menyerang jaringan data. Setiap sentuhan mencoba menjadikan satu kesaksian tidak pernah terjadi.
+
+Sylvara menjaga Gema, sementara Kael mengalihkan proses penghapusan ke simpul nol. Sisa denyut Eira mengacaukan pola mesin, karena Fury yang lahir dari kegagalan Sistem tidak mengikuti aturan arsipnya.
+
+Di pusat pertahanan, Kael menemukan catatan tambahan tentang dirinya.
+
+Tidak ada pencipta, laboratorium, atau otorisasi kelahiran. Fragmen dan luka primordial bertemu secara spontan pada garis sebab-akibat yang tidak dapat dilihat para dewa.
+
+Kael adalah Furyborn pertama yang lahir tanpa rancangan Sistem.
+
+Keberadaannya bukan bukti keberhasilan eksperimen mereka.
+
+Ia adalah bukti bahwa dunia mampu menghasilkan jawaban sendiri tanpa izin penguasanya.
+
+Protokol penghapus meningkatkan daya. Seluruh inti arsip mulai runtuh.
+
+Bukti telah tersimpan dalam banyak tempat.
+
+Sekarang mereka harus keluar sebelum Neraka menghapus saksi yang membawanya.
