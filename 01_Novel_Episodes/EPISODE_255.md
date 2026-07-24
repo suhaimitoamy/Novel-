@@ -1,27 +1,65 @@
 # Episode 255 — Langit Celestial Menutup
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di zona nol antara empat kekaisaran. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Dataran Terbelah belum selesai berkabung ketika langit berubah.
 
-Semua jalan di zona nol antara empat kekaisaran berakhir pada satu pusat. Di sanalah artileri Fragmen dan tanah bergravitasi liar menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat membuka jalur kemanusiaan di tengah perang mustahil dilakukan.
+Lapisan awan membentuk lingkaran cahaya biru pucat. Kapal-kapal Celestial turun dan menutup seluruh jalur udara di atas zona nol. Perisai raksasa terbentang dari satu horizon ke horizon lain.
 
-“Kita mencapai pusat Dataran Terbelah bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada jaringan pengungsi Sylvara dan Zireth. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Rombongan pengungsi yang baru diselamatkan berhenti di tengah jalan.
 
-Mereka bergerak serempak. Sekutunya menggunakan jaringan pengungsi Sylvara dan Zireth untuk memecah lapisan luar, sedangkan Kael menyusupkan penyeimbangan medan gravitasi lokal ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Perintah karantina,” kata Zevaron setelah menerima transmisi. Wajahnya mengeras. “Komando Rhythor menilai seluruh wilayah telah terkontaminasi energi Neraka dan kerusakan Fragmen.”
 
-Kael tidak melawan semua lapisan Dataran Terbelah. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Jalur darat masih tidak stabil,” ujar Zireth. “Tanpa evakuasi udara, puluhan ribu orang terjebak.”
 
-Di pusat jaring Dataran Terbelah itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Zevaron membuka saluran kepada armada.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Di pusat Dataran Terbelah, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Beri koridor selama satu jam. Warga sipil tidak membawa ancaman.”
 
-Artileri Fragmen dan tanah bergravitasi liar mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Jawaban datang dari Jenderal Aerthys, mantan mentornya sendiri.
 
-Tidak ada ledakan besar. Artileri Fragmen dan tanah bergravitasi liar retak dalam keheningan zona nol antara empat kekaisaran. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+“Pangeran Zevaron telah kehilangan kewenangan setelah bersekutu dengan Kael Drayven. Tidak ada kapal yang melewati segel.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: senjata kekaisaran merusak jangkar fisika di bawah medan. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kael menatap perisai langit. Di dalam pola cahayanya terdapat jalur Sistem Pahlawan yang sangat halus. Komando Celestial memang memilih menutup wilayah, tetapi ketakutannya diperkuat oleh nubuat yang belum sepenuhnya mati.
 
-Kael memandangi sisa-sisa pusat kendali Dataran Terbelah. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Dia dapat merusak perisai dengan mengurai simpulnya. Tanpa entropi, proses itu membutuhkan waktu dan akan membuka seluruh langit, termasuk jalur bagi pasukan yang mungkin ingin menyerang.
 
-Fase terakhir Dataran Terbelah telah berakhir. Sebelum yang lain sempat merasa lega, pesan berikutnya sampai melalui tanah, cahaya, atau ruang itu sendiri: Celestial menutup jalur evakuasi.
+“Kita tidak menghancurkan segelnya,” kata Kael. “Kita buat satu pintu yang hanya mengenali pengungsi.”
 
-Kael berdiri sekali lagi. Peristiwa Dataran Terbelah tertinggal di belakangnya; di depan ada akibat yang belum memiliki wajah. Ia memilih maju.
+Sylvara mengangkat busur biasa dan menembakkan panah penanda ke empat titik pada perisai. Zireth menghubungkan lengan bintang dengan daftar warga yang telah dicatat regu medis. Zevaron menyalurkan tanda otoritas keluarga kerajaan, meski sebagian sistem telah mencabut haknya.
+
+Kael menggunakan Frekuensi Penyangkal pada hubungan antara perintah karantina dan mekanisme penutupan. Perisai tetap berdiri, tetapi satu bagian kehilangan kemampuan menolak tubuh yang tidak membawa senjata atau resonansi Fragmen aktif.
+
+Celah sempit terbuka.
+
+Armada Celestial segera mengarahkan meriamnya.
+
+“Menembak jalur itu berarti menembak warga yang kalian klaim lindungi,” kata Zevaron melalui saluran umum.
+
+Beberapa kapal tetap membidik. Kapal lain menurunkan larasnya.
+
+Keraguan menyebar di antara legiun.
+
+Pengungsi pertama masuk ke koridor. Lalu seratus. Lalu ribuan.
+
+Jenderal Aerthys memerintahkan penutupan paksa. Zevaron berdiri di bawah celah dan mengangkat kedua tangan.
+
+“Kalau harus menembak, mulai dariku.”
+
+Tidak ada tembakan.
+
+Langit Celestial tetap tertutup bagi pasukan, tetapi jalur kemanusiaan bertahan sampai korban terakhir yang masih dapat berjalan melewatinya.
+
+Ketika celah ditutup kembali, Zevaron menerima pesan resmi pencabutan gelar dan perintah penangkapan.
+
+Dia membaca kalimat tersebut tanpa menunjukkan emosi, lalu mematikan kristal komunikasi.
+
+“Sekarang aku benar-benar tidak punya kerajaan.”
+
+Kael menumpukan berat badan pada tongkat Eira.
+
+“Kerajaan bukan satu-satunya tempat seseorang bisa berdiri.”
+
+Di balik perisai, kapal-kapal Celestial membentuk barisan baru.
+
+Mereka tidak menyerang hari itu.
+
+Namun Rhythor telah menyatakan Kael, Zevaron, dan siapa pun yang membantu jalur tersebut sebagai musuh tatanan langit.
