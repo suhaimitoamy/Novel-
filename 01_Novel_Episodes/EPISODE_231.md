@@ -1,25 +1,53 @@
 # Episode 231 — Jejak Nama yang Terkikis
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di koridor kenangan Neraka. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jalan pulang dari reruntuhan Malgorath melewati koridor kenangan Neraka.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menjaga identitas setelah melihat masa depan tiran. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Dindingnya dipenuhi potongan hidup Kael: rumah di Aranyel, tangan ibunya, pertemuan pertama dengan Sylvara, lengan mekanis lama Zireth, dan wajah orang-orang yang telah kehilangan nama.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Eira. Kael mengangguk. Mereka mengambil posisi dengan Eira yang menyerahkan kenangan terakhirnya, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Namun setiap gambar terus berubah.
 
-Kael memusatkan napas dan menggunakan denyut ritmis sebagai jangkar autobiografis. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik versi-versi Kael yang menawarkan jalan mudah.
+Pada satu dinding, Kael menerima takhta dan menjadi penguasa. Pada dinding lain, dia menyerahkan tubuh kepada Voidmaker. Versi lain memilih membakar seluruh Sistem agar tidak ada lagi yang dapat memakainya.
 
-Denyut Nama yang Terkikis segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Eira mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Mereka bukan masa depan,” kata Eira. “Mereka jalan mudah yang mencoba menggantikan ingatanmu.”
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Di Nama yang Terkikis, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael menggunakan denyut ritmis sebagai jangkar autobiografis. Setiap detak dihubungkan pada satu pilihan nyata yang pernah dia buat, bukan pada wajah atau peristiwa yang mungkin sudah kabur.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan Eira yang menyerahkan kenangan terakhirnya, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Aku menolak Rowan.
 
-Di balik penghalang Nama yang Terkikis, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa koridor kenangan Neraka melupakan bentuk alaminya.
+Aku meninggalkan Fragmen kelima.
 
-“Kita sudah melewati pintu Nama yang Terkikis, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Eira. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Aku memilih menutup Gerbang Es.
 
-Suara pertama dari versi-versi Kael yang menawarkan jalan mudah datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Aku kembali untuk Sylvara dan Zireth.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Nama yang Terkikis terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Versi-versi Kael bergerak keluar dari dinding.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama versi-versi Kael yang menawarkan jalan mudah muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Nama yang Terkikis baru saja dimulai.
+Masing-masing menawarkan sesuatu yang hilang: tubuh sehat, ingatan utuh, umur panjang, wajah ibunya, atau dunia yang aman di bawah kekuasaan tunggal.
+
+Kael hampir menyentuh salah satunya.
+
+Eira menghentikan tangannya. “Jangan ukur kebenaran dari seberapa besar kau menginginkannya.”
+
+Koridor menutup jalan belakang.
+
+Di depan, satu pintu hanya dapat dibuka dengan ingatan yang tidak pernah berubah. Kael tidak memilikinya lagi. Terlalu banyak bagian dirinya telah rusak atau hilang.
+
+Eira memandang pintu, lalu membuka liontin kecil di lehernya.
+
+Di dalamnya tersimpan kenangan terakhir sebelum dia menjadi Furyborn: suara adiknya memanggil namanya saat desa mereka terbakar.
+
+“Pakai ini sebagai kalibrator.”
+
+“Kalau diberikan kepada koridor, kau bisa kehilangannya.”
+
+“Sudah kubilang. Jangan curi pilihanku.”
+
+Eira menyalurkan kenangan tersebut ke denyut Kael. Pintu bereaksi dan membuka celah.
+
+Versi-versi Kael menjerit karena satu ingatan milik orang lain tidak sesuai dengan jalan-jalan yang mereka bangun.
+
+Mereka menerobos bersama.
+
+Di belakang, suara adik Eira mulai memudar dari liontin.
+
+Koridor telah menerima pembayaran pertamanya.
