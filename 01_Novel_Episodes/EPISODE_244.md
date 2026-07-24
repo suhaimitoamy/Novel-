@@ -1,27 +1,59 @@
 # Episode 244 — Harga yang Dituntut Kebenaran Furyborn
 
-Keheningan datang seperti tangan yang menutup tenggorokan di inti arsip Neraka Zerath. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Gerbang atas menampilkan tiga sumber utama Ragnarok Pulse.
 
-Mereka telah kehilangan ruang untuk bergerak. Protokol penghapus Neraka menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Resonansi.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Jalan keluar hanya terbuka jika Kael meninggalkan kekuatan tertentu. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Entropi.
 
-“Kita mundur dari Kebenaran Furyborn. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Keseimbangan.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Gema Pengetahuan dan sisa denyut Eira. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Salah satunya harus ditinggalkan sebagai jaminan agar bukti eksperimen dapat melewati batas Neraka.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan kompresi data jiwa ke dalam Gema Pengetahuan untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Sylvara menatap rune. “Ini bisa menjadi sisa pengaman para dewa. Mereka tidak ingin seseorang membawa kebenaran dan kekuatan penuh sekaligus.”
 
-Protokol penghapus Neraka bereaksi liar di pusat Kebenaran Furyborn. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Bisa juga mekanisme baru yang dibentuk roh-roh setelah Inti dibagi,” kata Kael. “Satu batas agar aku tidak memakai bukti sebagai alasan mengambil alih dunia.”
 
-Kael menemukan benang kendali milik protokol penghapus Neraka. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh inti arsip Neraka Zerath.
+Tidak ada waktu untuk mengetahui siapa yang membuat syarat tersebut. Protokol penghapus mengejar dari belakang.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Kebenaran Furyborn akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Kael mempertimbangkan resonansi. Tanpanya, dia tidak dapat menghubungkan jiwa, Fragmen, atau orang lain. Meninggalkan keseimbangan akan membuat dua energi tersisa saling melahap.
 
-“Tidak,” kata Kael di hadapan Kebenaran Furyborn, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Entropi adalah satu-satunya pilihan.
 
-Serangan mereka melalui Gema Pengetahuan dan sisa denyut Eira tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Bagian dirinya yang menikmati kehancuran langsung menolak. Entropi telah menyelamatkannya berkali-kali, memotong rantai, merobek distorsi, dan menghancurkan lawan yang tidak dapat dihentikan dengan cara lain.
 
-Saat debu Kebenaran Furyborn turun, mereka sadar kemenangan kecil itu menuntut harga permanen: jalan keluar hanya terbuka jika Kael meninggalkan kekuatan tertentu. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Tanpanya, Kael kehilangan jalan tercepat dan senjata paling menakutkan.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Kebenaran Furyborn terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Mungkin itu justru alasan Gerbang meminta kekuatan tersebut.
+
+“Aku meninggalkan Pulse entropi murni.”
+
+Rune membuka lingkaran hitam di lantai.
+
+Kael menyalurkan energi ungu yang berfungsi menghapus struktur. Ia tidak menyerahkan seluruh hubungan dengan Void atau luka primordial—hanya kemampuan melepaskan annihilation sebagai kehendaknya sendiri.
+
+Rasa dingin keluar dari tulang dan saraf.
+
+Bagian tersebut tidak pergi dengan tenang. Ia memperlihatkan semua situasi masa depan ketika Kael membutuhkan satu ledakan untuk menyelamatkan orang lain. Kota yang runtuh, musuh abadi, dan teman-teman yang mati karena dia memilih menjadi lemah.
+
+Sylvara berdiri di sampingnya. “Kekuatan yang kau tinggalkan tidak menjamin semua orang selamat.”
+
+“Aku tahu.”
+
+“Dan keputusan ini tidak otomatis membuatmu lebih baik.”
+
+“Aku tahu.”
+
+Kael melepaskannya.
+
+Entropi murni jatuh ke lingkaran dan berubah menjadi api ungu gelap yang tidak membakar. Neraka menyimpannya sebagai bagian dari keseimbangan baru, berada di bawah pengawasan banyak jiwa, bukan satu penguasa.
+
+Ragnarok Pulse dalam dada Kael berubah. Merah dan biru tetap ada. Ungu bertahan sebagai kemampuan mengurai pola melalui hubungan, tetapi tidak lagi mampu melepaskan kehancuran absolut.
+
+Gerbang terbuka.
+
+Protokol penghapus tiba tepat ketika Kael dan Sylvara melangkah masuk. Frekuensi Penyangkal menahan serangannya selama beberapa detik terakhir, lalu jalur menutup.
+
+Mereka kembali ke Zerath membawa bukti.
+
+Kael meninggalkan senjata yang selama ini membuat dunia paling takut kepadanya.
