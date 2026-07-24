@@ -1,27 +1,59 @@
 # Episode 180 — Hujan yang Menghapus Batu
 
-Udara bergetar sebelum suara apa pun sempat lahir di langit tanpa bintang di atas The Core. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Mereka baru keluar dari ruang observasi ketika abu perak mulai turun dari langit.
 
-Semua jalan di langit tanpa bintang di atas The Core berakhir pada satu pusat. Di sanalah bayangan antimateri di luar atmosfer menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menentukan asal keheningan yang menjawab kehancuran Sistem mustahil dilakukan.
+Butirannya tampak ringan seperti salju. Saat menyentuh menara The Core, batu hitam menghilang sedikit demi sedikit tanpa pecah atau meninggalkan debu.
 
-“Kita mencapai pusat Sinyal Outer Void bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zireth. Kael menatap Zireth, lalu pada jaringan sensor magitek Zireth. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Residu antimateri,” kata Zireth. “Bayangan itu pergi, tetapi sebagian lapisan atmosfer sudah terkontaminasi.”
 
-Mereka bergerak serempak. Sekutunya menggunakan jaringan sensor magitek Zireth untuk memecah lapisan luar, sedangkan Kael menyusupkan pemetaan spektrum gamma dari batas atmosfer ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Alarm Nexus berbunyi di seluruh fasilitas.
 
-Kael tidak melawan semua lapisan Sinyal Outer Void. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Sylvara melihat abu menembus perisai biasa. “Bagaimana menghentikannya?”
 
-Di pusat jaring Sinyal Outer Void itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Kael merasakan setiap butir memiliki frekuensi yang sama dengan dingin di dadanya. Dia dapat menarik hujan tersebut ke tubuh, tetapi jumlahnya terlalu besar. Menyerap semuanya mungkin menghapus dirinya dari dalam.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di pusat Sinyal Outer Void, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zireth tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Sosok Berhelm memerintahkan evakuasi. “The Core dapat ditinggalkan. Jangan mempertaruhkan aset kritis.”
 
-Bayangan antimateri di luar atmosfer mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Kael menatap daratan di bawah. Abu tidak hanya jatuh pada fasilitas. Angin mulai membawanya menuju kota dan hutan di sekitarnya.
 
-Tidak ada ledakan besar. Bayangan antimateri di luar atmosfer retak dalam keheningan langit tanpa bintang di atas The Core. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zireth menahannya sebelum kepalanya membentur tanah.
+“Kalau kita pergi, hujan ini menyebar.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: setiap Pulse besar Kael terdengar seperti suar bagi pemangsa kosmik. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Dia tidak menggunakan Pulse besar.
 
-Kael memandangi sisa-sisa pusat kendali Sinyal Outer Void. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Kael membentuk jaringan resonansi rendah melalui menara sensor Nexus. Zireth menghubungkan lengan bintang ke sistem dan mengubah seluruh The Core menjadi penangkap spektrum.
 
-Debu Sinyal Outer Void belum menyentuh tanah saat peringatan berikutnya tiba. Abu perak pertama turun tanpa suara. Kael dan Zireth saling pandang; keduanya tahu perjalanan tak memberi mereka waktu berkabung.
+Sylvara menembakkan panah penanda ke empat arah angin, menciptakan batas wilayah yang harus dilindungi.
 
-Kael menutup pintu pusat Sinyal Outer Void. Ia tidak menutup ingatan tentang apa yang terjadi di sana. Ingatan itulah yang dibawanya sebagai batas bagi kekuatan sendiri.
+Abu perak mulai tertarik ke menara.
+
+Setiap butir yang masuk tidak diserap Kael. Dia menjaga frekuensinya tetap terkunci dalam medan yang dibangun bersama sistem Nexus.
+
+Dinding The Core terus terkikis. Menara sensor satu per satu menghilang setelah menahan beban antimateri.
+
+“Fasilitas akan runtuh,” kata Sosok Berhelm.
+
+“Biarkan bangunannya membayar sebelum rakyat di bawah.”
+
+Zireth membuka jalur pembuangan menuju ruang observasi kosong. Kael menggeser fase medan dan mendorong seluruh abu terkumpul ke sana.
+
+Proses tersebut menarik residu dalam dadanya ikut bergerak.
+
+Untuk sesaat, Kael hampir membiarkannya keluar bersama hujan. Namun simpul itu terikat terlalu dalam pada Ragnarok Pulse. Memaksanya akan merobek Fragmen dan menyalakan suar baru.
+
+Dia melepaskan kesempatan tersebut.
+
+Abu terakhir masuk ke ruang observasi. Zireth menutup jalur, lalu ruang itu terputus dari Zerath.
+
+Hujan berhenti.
+
+Separuh The Core telah terhapus. Langit kembali memperlihatkan bintang, meski beberapa wilayah tetap berlubang gelap.
+
+Kael berdiri di antara sisa menara dengan detak kedua yang masih dingin.
+
+Mereka menyelamatkan daratan, tetapi Nexus kehilangan pusat pengamatannya.
+
+Di balik puing, satu transmisi baru muncul dari Sistem Pahlawan.
+
+Pahlawan-pahlawan terpilih telah menerima perintah bersama:
+
+**Buru Kael Drayven sebelum dia menghancurkan dunia.**
