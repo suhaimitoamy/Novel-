@@ -1,25 +1,45 @@
 # Episode 216 — Jejak Roh Furyborn
 
-Udara bergetar sebelum suara apa pun sempat lahir di perkampungan arwah tanpa matahari. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jalur yang dibuka seribu roh membawa Kael dan Eira ke perkampungan arwah tanpa matahari.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mendengar kesaksian para pengguna Pulse terdahulu. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Rumah-rumahnya dibangun dari kenangan. Satu pintu terbentuk dari suara tawa, dinding lain dari bau hujan atau sentuhan tangan yang sudah dilupakan. Setiap kali seorang roh kehilangan identitas, bagian rumahnya ikut runtuh.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan Sylvara yang mengulang nama dan sejarah Kael, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Di gerbang kampung, Sylvara menunggu.
 
-Kael memusatkan napas dan menggunakan penguncian identitas melalui frekuensi suara. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik roh yang kehilangan identitas dan iri pada tubuh hidup.
+Dia menemukan jalur dari dunia atas melalui Gema Pengetahuan dan mengikuti nama Kael yang terus diulang dalam jaringan jiwa.
 
-Denyut Roh Furyborn segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Kau lama,” katanya.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Di Roh Furyborn, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael ingin menjawab dengan nada ringan, tetapi tanah di bawah kaki menyampaikan kematian lain ke pikirannya. Dia terhuyung.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan Sylvara yang mengulang nama dan sejarah Kael, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Sylvara menangkap lengannya. “Apa yang terjadi?”
 
-Di balik penghalang Roh Furyborn, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa perkampungan arwah tanpa matahari melupakan bentuk alaminya.
+“Lembah sekarang berbicara melalui tanah.”
 
-“Kita sudah melewati pintu Roh Furyborn, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Eira menjelaskan perubahan pada resonansi Kael. Sylvara tidak menyukai harga tersebut, tetapi waktu untuk berdebat habis ketika para roh kampung mulai berkumpul.
 
-Suara pertama dari roh yang kehilangan identitas dan iri pada tubuh hidup datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Mereka tidak memiliki wajah tetap. Sebagian memakai wajah orang hidup yang mereka lihat, termasuk wajah Kael, Sylvara, dan Eira.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Roh Furyborn terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+*Tubuh hidup membawa nama,* bisik mereka. *Berikan kepada kami.*
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama roh yang kehilangan identitas dan iri pada tubuh hidup muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Roh Furyborn baru saja dimulai.
+Kael merasakan identitasnya ditarik sedikit demi sedikit. Bukan kenangan tertentu, melainkan kepastian bahwa nama Kael Drayven benar-benar miliknya.
+
+Sylvara berdiri di sampingnya dan mulai berbicara.
+
+“Kael Drayven. Anak Aranyel. Pembawa Fragmen. Orang yang menolak tiga jalan dan memilih Jalan Keempat.”
+
+Setiap kalimat menjadi jangkar suara.
+
+Roh-roh menyerang, mencoba memasuki tubuh yang masih hidup. Kael tidak menghancurkan mereka. Dia memakai penguncian identitas melalui frekuensi suara, memisahkan rasa iri dari inti jiwa yang masih ingin diingat.
+
+Beberapa roh berhenti dan memperlihatkan bentuk aslinya.
+
+Mereka adalah pengguna Pulse terdahulu—eksperimen yang gagal, dibuang ke Neraka setelah tubuhnya rusak atau kehendaknya menolak perintah para dewa.
+
+Salah seorang mendekat. Wajahnya berubah-ubah, tetapi suaranya jelas.
+
+*Ragnarok Pulse bukan pertama kali diberikan kepadamu. Kami semua pernah menjadi percobaan.*
+
+Di pusat kampung berdiri menara yang menyimpan kesaksian mereka.
+
+Untuk mencapai kebenaran tersebut, Kael harus melewati roh-roh yang kehilangan nama dan ingin mencuri milik orang hidup.
