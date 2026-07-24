@@ -1,21 +1,21 @@
 # Episode 455 — Nama-Nama di Dinding Abu
 
-Malam terakhir di jalur reruntuhan bekas perang tidak membawa pengampunan, hanya keputusan. Kael dan warga bersiap untuk menemui mereka yang kehilangan rumah akibat Pulse sementara kemarahan warga dan sisa monster perang mendekat.
+Dinding abu diperpanjang.
 
-Rencana disusun oleh majelis, bukan oleh Kael seorang. Perannya dibatasi dengan jelas. Ia menerima batas itu dan menempatkan Sylvara yang berdiri di samping tanpa membela kebohongan sesuai keputusan bersama.
+Nama korban yang dulu tidak tercatat ditulis bersama keadaan kematiannya, termasuk keputusan Kael yang berperan di dalamnya. Tidak ada gelar pahlawan pada bagian tersebut.
 
-Serangan datang saat lonceng berbunyi. Kael memakai peredaman Pulse sampai titik nol dengan presisi, membuka ruang bagi warga untuk mempertahankan rumah mereka sendiri.
+Kemenangan atas monster diraih oleh banyak tangan. Kael hanya salah satu orang di alun-alun.
 
-Sylvara bertarung di sisi lain alun-alun. Mereka tidak perlu saling memanggil; kepercayaan mereka kini cukup dewasa untuk tidak selalu berada dalam jangkauan tangan.
+Sylvara bertanya, “Apakah ini cukup?”
 
-Kemarahan warga dan sisa monster perang menawarkan akhir mudah jika Kael mengambil alih seluruh kekuasaan. Ia menolak. Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya.
+Kael melihat rumah yang belum selesai dan keluarga yang masih berkabung. “Tidak. Tapi ini nyata.”
 
-Kemenangan diraih oleh banyak tangan. Kael hanya menahan pukulan yang tidak dapat ditahan orang lain. Ia menolak memakai kekuatan untuk membungkam lemparan batu, tetapi tak satu pun warga kehilangan hak memilih.
+Kebenaran desa tidak sederhana: sebagian kerusakan benar-benar berasal dari pilihan Kael; sebagian ditimpakan kepadanya karena dunia membutuhkan satu wajah untuk dibenci.
 
-Sesudahnya terungkap bahwa sebagian kerusakan benar-benar berasal dari pilihan Kael. Majelis mencatat kebenaran itu bersama kesalahan Kael, tanpa menghapus salah satunya.
+Majelis mencatat keduanya tanpa menghapus salah satu.
 
-“Apakah ini cukup?” tanya Sylvara. Kael melihat rumah-rumah rusak dan orang-orang yang masih berkabung. “Tidak. Tapi ini nyata.” Jawaban itu adalah satu-satunya yang dapat ia berikan.
+Kael pergi tanpa gelar baru. Beberapa warga masih membencinya. Beberapa mulai percaya bahwa dia akan kembali menyelesaikan kewajiban.
 
-Lalu daftar korban yang tak pernah tercatat dibuka. Warga memutuskan langkah berikut melalui suara mereka sendiri. Kael berdiri di belakang keputusan tersebut, bukan di atasnya.
+Perjalanan membawa mereka ke kota pengungsian Tujuh Jembatan.
 
-Ia meninggalkan jalur reruntuhan bekas perang tanpa gelar baru. Beberapa orang masih membencinya. Beberapa mulai percaya. Keduanya berhak membawa perasaan itu ke hari esok.
+Di sana lebih banyak korban menunggu, dan suara mereka tidak menginginkan permintaan maaf yang sama.

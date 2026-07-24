@@ -1,21 +1,23 @@
 # Episode 449 — Harga yang Dituntut Menolak Keabadian
 
-Waktu menagih utangnya di puncak Menara Waktu. Kael terbangun dengan tubuh yang terasa lebih tua dan ingatan yang lebih muda. Ia menyerahkan kesempatan hidup bersama semua orang selamanya; ia dapat merasakan ruang kosong yang ditinggalkannya.
+Keabadian menghilang dari tubuh Kael.
 
-Sylvara meminta mereka mundur. Kael menoleh dan melihat empat versi wajah yang sama—marah, takut, letih, dan tanpa ekspresi. Ia memilih berbicara kepada semuanya karena tak tahu mana yang akan bertahan.
+Tidak ada cadangan usia, pengulangan, atau cara menunda akhir. Umur yang tersisa tidak dapat dihitung karena sebagian telah menjadi jahitan dunia.
 
-“Kau tidak wajib mengorbankan setiap bagian dirimu untuk membuktikan bahwa pilihanmu benar,” kata Sylvara. Kalimat itu melukai lebih dalam daripada tuduhan.
+Kael menyerahkan kesempatan hidup bersama semua orang selamanya.
 
-Kael mencoba pemutusan loop umur kausal, tetapi mesin umur dan masa depan paling indah menahan semua jalan kecuali satu. Jalan itu menawarkan hasil sempurna dengan syarat Kael menyerahkan hak untuk berubah pikiran.
+Sylvara tidak mengatakan keputusan itu mudah atau pasti benar. Dia hanya duduk di sampingnya sampai napas Kael kembali teratur.
 
-Ia hampir menerimanya. Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Kemudian Kael menyadari bahwa kesempurnaan tanpa hak menyesal hanyalah bentuk lain dari Sistem.
+Harga tersebut permanen. Kael akan mati, dan tidak ada nubuat yang memberitahu kapan.
 
-Ia menolak jalan tunggal Menolak Keabadian dan memecahnya menjadi kemungkinan kecil. Tekanan temporal menyambar sarafnya. Darahnya jatuh ke atas, kembali ke luka, lalu jatuh lagi.
+Mesin umur menawarkan satu aktivasi terakhir bila mereka berubah pikiran.
 
-Tangan Sylvara di ambang waktu menahan identitas mereka saat sejarah berputar. Bersama-sama mereka menemukan satu kebenaran yang tidak berubah di seluruh cabang: keabadian akan menjadikan Kael pusat takdir baru.
+Kael menghancurkan pusatnya.
 
-Penolakan terhadap Menolak Keabadian menghancurkan imbalan yang dijanjikan. Sebuah kehidupan damai lenyap di depan mata Kael. Ia membiarkannya pergi tanpa berpura-pura tidak menginginkannya.
+Kebenaran yang tersisa: keabadian akan menjadikan Kael pusat takdir baru, meski dia memulai dengan niat melindungi.
 
-Di balik masa depan yang runtuh, ruang pusat Menolak Keabadian membuka diri. Kael berjalan ke arahnya membawa kehilangan yang tidak dapat dipahami siapa pun di luar tempat ini.
+Dia memilih kembali ke masa kini sebagai manusia yang terbatas.
 
-Ia tidak merasa menang atas Menolak Keabadian. Namun untuk pertama kalinya, jam-jam di sekelilingnya bergerak maju tanpa mencoba menyeretnya kembali.
+Bukan untuk mati dengan indah.
+
+Untuk hidup tanpa menjadikan ketakutan pada perpisahan sebagai rantai bagi dunia.

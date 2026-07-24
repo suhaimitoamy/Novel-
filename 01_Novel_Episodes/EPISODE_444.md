@@ -1,21 +1,23 @@
 # Episode 444 — Harga yang Dituntut Pewaris Denyut
 
-Waktu menagih utangnya di kota masa depan di bawah menara. Kael terbangun dengan tubuh yang terasa lebih tua dan ingatan yang lebih muda. Kael muda harus melawan dirinya yang menyerah pada keabadian; ia dapat merasakan ruang kosong yang ditinggalkannya.
+Kael Tua memilih tinggal.
 
-Kael Tua meminta mereka mundur. Kael menoleh dan melihat empat versi wajah yang sama—marah, takut, letih, dan tanpa ekspresi. Ia memilih berbicara kepada semuanya karena tak tahu mana yang akan bertahan.
+Dia tidak meminta pengampunan dari versi mudanya. Selama berabad-abad dia telah memusatkan keputusan dunia pada diri sendiri. Satu tindakan terakhir tidak menghapus semuanya.
 
-“Kau tidak wajib mengorbankan setiap bagian dirimu untuk membuktikan bahwa pilihanmu benar,” kata Kael Tua. Kalimat itu melukai lebih dalam daripada tuduhan.
+Kael muda ingin menariknya keluar.
 
-Kael mencoba resonansi lintas usia pada pola yang sama, tetapi Kael tua dari masa depan dan pemburu waktu menahan semua jalan kecuali satu. Jalan itu menawarkan hasil sempurna dengan syarat Kael menyerahkan hak untuk berubah pikiran.
+“Jangan wariskan kebiasaan menyelamatkan orang dari pilihan mereka,” kata Kael Tua.
 
-Ia hampir menerimanya. Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Kemudian Kael menyadari bahwa kesempurnaan tanpa hak menyesal hanyalah bentuk lain dari Sistem.
+Anak Merah melihat dua versi orang yang sama berpisah.
 
-Ia menolak jalan tunggal Pewaris Denyut dan memecahnya menjadi kemungkinan kecil. Tekanan temporal menyambar sarafnya. Darahnya jatuh ke atas, kembali ke luka, lalu jatuh lagi.
+Kael Tua menahan kota, sementara pemburu waktu dan seluruh masa depan palsu runtuh bersamanya. Sebelum hilang, dia menyerahkan satu ingatan: hari ketika keabadian pertama kali ditawarkan.
 
-Anak bermata merah dan penyesalan Kael Tua menahan identitas mereka saat sejarah berputar. Bersama-sama mereka menemukan satu kebenaran yang tidak berubah di seluruh cabang: warisan bukan salinan kekuatan, melainkan hak menolak.
+Harga Pewaris Denyut bukan kematian Anak Merah atau pemindahan kekuatan.
 
-Penolakan terhadap Pewaris Denyut menghancurkan imbalan yang dijanjikan. Sebuah kehidupan damai lenyap di depan mata Kael. Ia membiarkannya pergi tanpa berpura-pura tidak menginginkannya.
+Kael harus menerima bahwa satu versi dirinya memilih menjadi penjara dan tetap layak membuat keputusan terakhirnya sendiri.
 
-Di balik masa depan yang runtuh, ruang pusat Pewaris Denyut membuka diri. Kael berjalan ke arahnya membawa kehilangan yang tidak dapat dipahami siapa pun di luar tempat ini.
+Anak Merah pulang tanpa membawa seluruh kemampuan Kael.
 
-Ia tidak merasa menang atas Pewaris Denyut. Namun untuk pertama kalinya, jam-jam di sekelilingnya bergerak maju tanpa mencoba menyeretnya kembali.
+Dia membawa sesuatu yang lebih penting: hak menolak warisan.
+
+Di jalur keluar, waktu menawarkan Kael muda pilihan yang sama dengan Kael Tua—hidup abadi agar kesalahan itu tidak pernah terulang.

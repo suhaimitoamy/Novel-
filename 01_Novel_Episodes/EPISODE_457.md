@@ -1,21 +1,23 @@
-# Episode 457 — Gema Para Korban
+# Episode 457 — Suara dari Suara Para Korban
 
-Pagi di kota pengungsian Tujuh Jembatan dipenuhi bunyi palu, roda, dan pertengkaran. Kael bekerja bersama warga untuk mendengar tuntutan dan membangun ganti rugi nyata. Tangannya yang pernah meruntuhkan benteng kini mengangkat batu satu per satu.
+Kesaksian berlangsung dua hari.
 
-Anak Buta mengingatkannya agar tidak mengubah pekerjaan itu menjadi pertunjukan penyesalan. Karena itu Kael menolak menggunakan Pulse kecuali ketika keselamatan seseorang terancam.
+Seorang perempuan berkata Kael menyelamatkan tubuhnya tetapi menghancurkan rumah serta keluarganya. Seorang prajurit mengaku memakai nama Kael untuk membenarkan pembantaian. Seorang pendeta menuduhnya mematikan keyakinan yang memberi hidup pada banyak orang.
 
-Kelompok pembalas yang ingin menjadikan Kael simbol kebencian menyebarkan kabar bahwa bantuan Kael adalah cara membeli pengampunan. Sebagian warga meninggalkan lokasi. Kael tidak mengejar mereka dan tidak menyuruh siapa pun membela namanya.
+Kael tidak membela setiap tindakan.
 
-Seorang perempuan tua di kota pengungsian Tujuh Jembatan menanyakan mengapa ia baru datang sekarang. Kael menjawab, “Karena sebelumnya aku terlalu sibuk menyelamatkan dunia sampai lupa dunia terdiri dari rumah-rumah seperti ini.” Tidak ada tepuk tangan setelahnya.
+Dia juga tidak menerima tanggung jawab atas keputusan orang yang memakai namanya tanpa persetujuan.
 
-Mereka menemukan bukti bahwa permintaan maaf tidak menghapus akibat. Fakta itu tidak menghapus kesalahan Kael; justru memperjelas bagian mana yang benar-benar menjadi tanggung jawabnya.
+Anak Buta duduk di antara warga. “Permintaan maaf tidak menghapus akibat,” katanya.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Ia menggunakan resonansi empatik tanpa membaca pikiran untuk menyelesaikan satu bahaya tersembunyi tanpa merusak bangunan di sekelilingnya. Tindakan presisi itu membuat luka lama di lengannya terbuka kembali.
+Kael mengangguk.
 
-Salah satu orang yang pernah ia selamatkan mencoba membunuhnya. Warga melihat harga tersebut, tetapi Kael tidak menggunakannya untuk meminta simpati. Ia membalut luka dan kembali bekerja.
+Resonansi empatik membantunya merasakan tekanan emosi tanpa memasuki pikiran. Dia menggunakannya hanya setelah majelis memberi izin.
 
-Menjelang senja, seseorang yang pernah diselamatkannya mengangkat senjata. Anak Buta bergerak, namun Kael meminta semua orang berhenti. Ia ingin mendengar alasan orang itu sebelum menentukan tindakan.
+Kelompok pembalas mencoba memancing Pulse dengan menyerang saksi yang pernah membela Kael.
 
-Alasan tersebut membawa mereka pada jaringan pendukung kelompok pembalas yang ingin menjadikan Kael simbol kebencian. Persoalan yang tampak pribadi ternyata terhubung dengan ancaman lebih besar.
+Kael menahan diri.
 
-Kael meninggalkan alat kerjanya di tanah, di tengah kota pengungsian Tujuh Jembatan, lalu mengikuti jejak baru. Beberapa warga ikut, bukan sebagai pengikut, melainkan sebagai saksi.
+Warga sendiri menangkap penyerang.
+
+Sidang tidak berubah menjadi duel yang menempatkan Kael kembali di pusat.

@@ -1,21 +1,21 @@
 # Episode 456 — Jejak Suara Para Korban
 
-Tak ada monster yang menunggu Kael di kota pengungsian Tujuh Jembatan. Yang menunggunya adalah orang-orang: wajah letih, pakaian berkabung, tangan yang pernah menggali keluarga dari reruntuhan. Suara mereka berhenti ketika ia datang.
+Tujuh Jembatan dibangun dari sisa kota yang hilang.
 
-Kael datang untuk mendengar tuntutan dan membangun ganti rugi nyata. Ia sengaja menahan Ragnarok Pulse sampai hanya tersisa denyut redup di dada. Di tempat ini, kekuatan bukan jawaban; kehadirannya sendiri sudah terasa seperti ancaman.
+Pengungsi dari banyak perang tinggal berdampingan, membawa cerita berbeda tentang Kael. Bagi sebagian dia penyelamat. Bagi yang lain dia alasan rumah mereka menjadi medan perang.
 
-Sebuah batu mengenai bahunya. Ia tidak menghindar. Batu kedua melukai pelipis. “Kau boleh melindungi dirimu,” kata Anak Buta. Kael menggeleng. “Bukan dari ini.” Ia tahu kemarahan tidak selalu adil, tetapi sebagian telah lahir dari tindakannya.
+Seorang anak buta memimpin Kael menuju sidang.
 
-Seorang warga maju dan menyebut nama korban. Lalu nama lain. Kael mendengarkan tanpa membela niatnya. Kelompok pembalas yang ingin menjadikan Kael simbol kebencian berada di antara kerumunan, tetapi ia menolak menjadikan seluruh kerumunan sebagai musuh.
+Dia mampu mendengar perubahan frekuensi emosi tanpa membaca pikiran. Warga memanggilnya Anak Buta.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia mencatat setiap nama pada lembar yang dibawa Zireth. Daftar itu jauh lebih berat daripada senjata mana pun yang pernah diangkatnya.
+Kelompok pembalas telah mengumpulkan kesaksian dan memelintir sebagian untuk menjadikan Kael simbol kebencian. Namun banyak tuduhan mereka benar.
 
-Ketika pertengkaran hampir berubah menjadi pembantaian, Kael memakai resonansi empatik tanpa membaca pikiran hanya untuk melumpuhkan bilah yang terhunus. Tak seorang pun terluka. Pembatasan itu menuntut konsentrasi lebih besar daripada sebuah ledakan.
+Kael berdiri tanpa senjata.
 
-Peristiwa tersebut membuka percakapan yang sebelumnya mustahil. Di dalam kesaksian warga, Kael menemukan bahwa permintaan maaf tidak menghapus akibat. Ia tidak meminta maaf agar dimaafkan. Ia meminta maaf karena kebenaran menuntutnya.
+Zireth membuka catatan pembangunan ulang dan jumlah sumber daya yang masih kurang. Majelis meminta bukan kata-kata, melainkan ganti rugi, akses arsip, dan pembagian kekuasaan.
 
-Salah satu orang yang pernah ia selamatkan mencoba membunuhnya mulai terasa sebagai pekerjaan yang harus dijalani, bukan hukuman satu malam. Kael menerima syarat-syarat warga satu per satu, termasuk yang membuatnya tidak nyaman.
+Kael menyetujui proses.
 
-Saat malam turun, seorang penghasut yang memanfaatkan kelompok pembalas yang ingin menjadikan Kael simbol kebencian bergerak dari balik kerumunan. Orang-orang kembali gelisah. Kael berdiri di antara mereka dan ancaman baru tanpa meminta mereka mempercayainya.
+Kelompok pembalas tidak menginginkan proses.
 
-Ia hanya berkata bahwa siapa pun di kota pengungsian Tujuh Jembatan berhak mengawasi apa yang akan dilakukannya. Untuk pertama kalinya, beberapa orang tetap tinggal untuk melihat.
+Mereka menginginkan kematian yang dapat mengakhiri semua cerita pada satu wajah.

@@ -1,21 +1,21 @@
 # Episode 454 — Harga yang Dituntut Desa yang Terbakar
 
-Sidang terbuka digelar di jalur reruntuhan bekas perang. Kael berdiri tanpa senjata, sementara kemarahan warga dan sisa monster perang memaparkan setiap kegagalannya. Banyak tuduhan benar. Sebagian dipelintir. Ia menjawab keduanya dengan nada yang sama.
+Sidang dilanjutkan setelah pertempuran.
 
-Sylvara duduk di antara warga, bukan di sisinya. Kael meminta itu agar kesaksian tidak berubah menjadi pertunjukan kesetiaan.
+Kemenangan malam itu tidak menghapus bukti lama. Majelis menjatuhkan kewajiban: Kael harus mendanai pembangunan, membuka arsip keputusan perang, dan menerima bahwa beberapa keluarga tidak menginginkan kehadirannya.
 
-Ketika bukti tentang sebagian kerusakan benar-benar berasal dari pilihan Kael dibuka, ruangan pecah oleh teriakan. Kael menahan Pulse dan membiarkan ketakutan bergerak sampai orang-orang siap mendengar lagi.
+Salah satu warga masih melempar batu.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Ia mengakui keputusan yang tidak akan diulanginya. Ia juga menolak mengaku bersalah atas hal yang tidak dilakukannya hanya demi mendapatkan akhir yang cepat.
+Kael menahan Pulse dan membiarkannya mengenai bahu.
 
-“Penebusan tanpa kebenaran hanya kebohongan yang terdengar rendah hati,” kata Sylvara. Kalimat itu membantu Kael berdiri tegak tanpa berubah defensif.
+Harga Desa yang Terbakar bukan luka baru yang dramatis. Ia adalah penolakan memakai kekuatan untuk membungkam orang yang marah, meski sebagian kemarahan tidak adil.
 
-Kemarahan warga dan sisa monster perang kehilangan kendali dan menyerang. Kael menggunakan peredaman Pulse sampai titik nol untuk menghentikannya tanpa melukai seorang saksi pun.
+Kael mengakui keputusan yang tidak akan dia ulangi. Dia juga menolak tuduhan palsu karena penebusan yang dibangun di atas kebohongan akan runtuh lagi.
 
-Ia menolak memakai kekuatan untuk membungkam lemparan batu. Harga itu terlihat oleh semua orang, namun sidang tetap berjalan. Kael menerima bahwa rasa sakitnya tidak menghapus rasa sakit mereka.
+Majelis tidak mengampuni.
 
-Majelis yang menangani Desa yang Terbakar menjatuhkan keputusan yang tidak memuaskan semua pihak. Kael menerimanya dan bersedia menjalankan kewajiban yang ditetapkan.
+Mereka memberi pekerjaan.
 
-Sebelum sidang berakhir, majelis memutuskan perlawanan terakhir terhadap kemarahan warga dan sisa monster perang akan dilakukan malam itu. Ancaman dari luar mencoba memaksa warga kembali bergantung pada Kael.
+Kael menerimanya.
 
-Ia menoleh kepada majelis yang menangani Desa yang Terbakar dan menunggu perintah mereka. Kebebasan, pikirnya, juga berarti memberi orang lain hak menentukan kapan bantuannya dibutuhkan.
+Rasa sakitnya tidak menghapus rasa sakit warga, dan bantuan hari ini tidak membeli hak untuk dicintai besok.

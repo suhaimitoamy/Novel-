@@ -1,21 +1,25 @@
 # Episode 450 — Pulang untuk Meminta Maaf
 
-Pusat puncak Menara Waktu menyerupai sebuah jam tanpa jarum. Mesin umur dan masa depan paling indah berdiri pada porosnya, menahan seluruh kemungkinan sebagai lapisan cahaya di sekeliling tubuh.
+Kael dan Sylvara turun dari Menara Waktu.
 
-Kael dan Sylvara mengambil posisi. Mereka sepakat bahwa tujuan mereka adalah kembali ke masa kini sebagai manusia yang dapat mati, bukan memilih masa depan yang paling menyenangkan. Perbedaan itu menjadi satu-satunya pertahanan terhadap godaan tempat ini.
+Mereka tidak membawa keabadian, hanya tubuh yang lebih rapuh dan daftar tempat yang pernah rusak oleh perjalanan mereka.
 
-Tangan Sylvara di ambang waktu membuka celah pertama. Kael memasukkan pemutusan loop umur kausal ke dalam poros dan merasakan ribuan tahun berputar melalui sarafnya.
+Desa-desa memanggil dari bawah.
 
-Lawan melepaskan semua masa depan sekaligus. Kael melihat kemenangan, kegagalan, cinta, kesepian, ketenaran, dan kematian saling menimpa. Di antara semuanya, keabadian akan menjadikan Kael pusat takdir baru tetap menjadi garis yang tidak berubah.
+Kael tidak pergi sebagai penyelamat. Dia datang untuk meminta maaf, mendengar tuntutan, dan mengerjakan bagian yang masih dapat diperbaiki.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Kael memilih garis itu bukan karena aman, melainkan karena tidak mencabut pilihan orang lain.
+Tempat pertama adalah jalur reruntuhan bekas perang. Rumah-rumah berdiri setengah, tanah masih membawa bekas Pulse, dan nama korban ditulis pada dinding abu.
 
-Pulse bergerak satu kali. Poros jam berhenti. Ia menyerahkan kesempatan hidup bersama semua orang selamanya, tetapi cahaya kemungkinan mulai terpisah dari kehendak yang memenjarakannya.
+Warga tidak menyambut.
 
-Sylvara menahan tangan Kael ketika ia hampir terseret ke masa depan paling indah. “Yang nyata ada di sini,” katanya. Kael mengikuti suara itu kembali ke tubuhnya.
+Sebagian melempar batu. Kael tidak menahan dengan kekuatan.
 
-Jam tanpa jarum pecah. Mesin umur dan masa depan paling indah kehilangan kuasa atas hasil dan runtuh menjadi debu usia. Tak ada masa depan yang dinobatkan sebagai pemenang.
+Sylvara berdiri di antara warga, bukan di sisi Kael, agar kesaksian mereka tidak berubah menjadi pertunjukan kesetiaan.
 
-Lalu desa-desa yang pernah ia rusak memanggil dari bawah. Waktu kembali bergerak lurus, membawa mereka menuju akibat yang tak lagi dapat dilihat Kael.
+Majelis lokal menetapkan aturan: Kael tidak boleh memakai Pulse kecuali diminta, tidak boleh memimpin sidang, dan harus menerima putusan ganti rugi.
 
-Ia menerima kebutaan setelah Menolak Keabadian sebagai kebebasan. Bersama yang lain, Kael meninggalkan tempat tersebut sebelum godaan terakhir sempat memanggil namanya lagi.
+Kael menyetujui.
+
+Perjalanan berikutnya bukan melawan dewa.
+
+Ia harus menghadapi orang-orang yang hidup dengan akibat pilihannya.

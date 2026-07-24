@@ -1,21 +1,23 @@
 # Episode 460 — Tangan Kecil Menuju Danau
 
-Malam terakhir di kota pengungsian Tujuh Jembatan tidak membawa pengampunan, hanya keputusan. Kael dan warga bersiap untuk mendengar tuntutan dan membangun ganti rugi nyata sementara kelompok pembalas yang ingin menjadikan Kael simbol kebencian mendekat.
+Tujuh Jembatan bertahan melalui keputusan majelis dan warga sendiri.
 
-Rencana disusun oleh majelis, bukan oleh Kael seorang. Perannya dibatasi dengan jelas. Ia menerima batas itu dan menempatkan kesaksian korban dan kerja Zireth membangun ulang sesuai keputusan bersama.
+Kael membantu hanya pada batas yang ditentukan. Kelompok pembalas kehilangan kemampuan memakai monster perang, tetapi tidak dipaksa mencabut kemarahannya.
 
-Serangan datang saat lonceng berbunyi. Kael memakai resonansi empatik tanpa membaca pikiran dengan presisi, membuka ruang bagi warga untuk mempertahankan rumah mereka sendiri.
+Daftar korban yang belum tercatat dibuka kepada publik. Zireth mulai membangun ulang jaringan tanpa memakai nama Kael sebagai lambang.
 
-Anak Buta bertarung di sisi lain alun-alun. Mereka tidak perlu saling memanggil; kepercayaan mereka kini cukup dewasa untuk tidak selalu berada dalam jangkauan tangan.
+Anak Buta meminta satu hal.
 
-Kelompok pembalas yang ingin menjadikan Kael simbol kebencian menawarkan akhir mudah jika Kael mengambil alih seluruh kekuasaan. Ia menolak. Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka.
+“Antar aku ke Danau Penyesalan.”
 
-Kemenangan diraih oleh banyak tangan. Kael hanya menahan pukulan yang tidak dapat ditahan orang lain. Salah satu orang yang pernah ia selamatkan mencoba membunuhnya, tetapi tak satu pun warga kehilangan hak memilih.
+Danau itu menampung emosi yang dibuang para pejuang agar dapat terus bertarung. Banyak suara korban, pelaku, dan penyelamat terperangkap di dalamnya.
 
-Sesudahnya terungkap bahwa permintaan maaf tidak menghapus akibat. Majelis mencatat kebenaran itu bersama kesalahan Kael, tanpa menghapus salah satunya.
+Majelis mengizinkan perjalanan. Kael berdiri di belakang keputusan mereka, bukan di atasnya.
 
-“Apakah ini cukup?” tanya Anak Buta. Kael melihat rumah-rumah rusak dan orang-orang yang masih berkabung. “Tidak. Tapi ini nyata.” Jawaban itu adalah satu-satunya yang dapat ia berikan.
+Dia meninggalkan kota tanpa pengampunan umum. Beberapa orang membencinya. Beberapa percaya pada pekerjaannya. Keduanya membawa perasaan itu ke hari berikutnya.
 
-Lalu anak kecil buta meminta diantar ke Danau Penyesalan. Warga memutuskan langkah berikut melalui suara mereka sendiri. Kael berdiri di belakang keputusan tersebut, bukan di atasnya.
+Anak Buta mengulurkan tangan kecil.
 
-Ia meninggalkan kota pengungsian Tujuh Jembatan tanpa gelar baru. Beberapa orang masih membencinya. Beberapa mulai percaya. Keduanya berhak membawa perasaan itu ke hari esok.
+Kael menggenggamnya.
+
+Bersama Sylvara dan Zireth, mereka berjalan menuju danau yang menyimpan penyesalan Zerath.
