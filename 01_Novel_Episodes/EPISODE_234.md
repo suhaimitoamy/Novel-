@@ -1,27 +1,55 @@
 # Episode 234 — Harga yang Dituntut Nama yang Terkikis
 
-Bayangan-bayangan memanjang meski tak ada matahari di koridor kenangan Neraka. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Simpul pengikis berdenyut di depan Kael.
 
-Mereka telah kehilangan ruang untuk bergerak. Versi-versi Kael yang menawarkan jalan mudah menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Pada bagian dalamnya tersimpan suara ibunya—satu-satunya bagian yang masih terasa utuh setelah begitu banyak kenangan hilang.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael melupakan suara ibunya tetapi mempertahankan janjinya. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Jika Kael memutus simpul, pengikisan nama berhenti. Namun suara itu ikut lenyap.
 
-“Kita mundur dari Nama yang Terkikis. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Eira. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Eira berdiri beberapa langkah di belakang. Liontinnya kini kosong. Dia telah memberikan kenangan terakhir tentang adiknya untuk membuka jalan ini.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Eira yang menyerahkan kenangan terakhirnya. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Aku tidak akan menyuruhmu melepaskannya,” katanya. “Aku juga tidak akan berkata bahwa mempertahankannya tidak punya harga.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan denyut ritmis sebagai jangkar autobiografis untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Versi-versi Kael mengepung ruangan. Mereka menawarkan solusi: biarkan simpul tetap hidup dan serahkan sebagian nama lain. Lupakan Aranyel, Sylvara, Zireth, atau semua korban yang tidak lagi dapat dikenali.
 
-Versi-versi Kael yang menawarkan jalan mudah bereaksi liar di pusat Nama yang Terkikis. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Eira berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Suara sang ibu memanggil.
 
-Kael menemukan benang kendali milik versi-versi Kael yang menawarkan jalan mudah. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh koridor kenangan Neraka.
+“Kael.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Nama yang Terkikis akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Hanya satu kata. Namun kehangatan di dalamnya hampir membuat seluruh perjuangan terasa layak dipertukarkan.
 
-“Tidak,” kata Kael di hadapan Nama yang Terkikis, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Kael menutup mata.
 
-Serangan mereka melalui Eira yang menyerahkan kenangan terakhirnya tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Eira; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Dia tidak dapat mengingat wajah ibunya. Tidak tahu apakah suara tersebut benar-benar miliknya atau rekonstruksi Neraka dari kerinduan. Namun janji yang lahir dari hubungan itu masih ada: jangan membiarkan kekuatan menentukan siapa yang berhak hidup.
 
-Saat debu Nama yang Terkikis turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael melupakan suara ibunya tetapi mempertahankan janjinya. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Janji tersebut tidak membutuhkan suara untuk tetap dipilih.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Nama yang Terkikis terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Kael meletakkan tangan kanan pada simpul.
+
+“Maaf. Aku tidak bisa terus memakai dirimu sebagai alasan untuk tinggal dalam masa lalu.”
+
+Suara itu tidak memohon atau marah.
+
+Ia hanya mengucapkan namanya sekali lagi.
+
+Kael memakai denyut ritmis untuk memisahkan pengikisan identitas dari seluruh koridor. Merah membuka simpul. Biru menjaga pilihan yang masih tersisa. Ungu mengurai hubungan paksa antara nama dan kenangan.
+
+Simpul retak.
+
+Suara ibunya menghilang.
+
+Bukan memudar perlahan. Satu detik masih ada, detik berikutnya tidak pernah terdengar lagi dalam ingatan Kael.
+
+Dia jatuh pada satu lutut.
+
+Eira tidak menghiburnya dengan janji bahwa suara tersebut dapat ditemukan kembali. Dia hanya duduk di samping dan membiarkan kehilangan itu memiliki ruang.
+
+Setelah beberapa saat, Kael mengulang janji yang masih dia ingat.
+
+Kata-katanya terdengar asing tanpa suara sang ibu, tetapi tetap menjadi pilihannya.
+
+Koridor berhenti mengikis nama.
+
+Kael Drayven bertahan bukan karena ingatannya sempurna, melainkan karena dia terus memilih menjadi orang yang membawa janji tersebut.
+
+Di depan mereka, pusat koridor terbuka menuju danau darah. Sesuatu yang sangat besar bergerak di bawah permukaannya.
