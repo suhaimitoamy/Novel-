@@ -1,25 +1,51 @@
 # Episode 198 — Benturan Wadah Entropi
 
-Bayangan-bayangan memanjang meski tak ada matahari di labirin kesadaran Kael. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pintu menuju pusat labirin terbuka pada ruang yang menyerupai jantung raksasa.
 
-Serangan salinan Kael tanpa rasa sakit dan belas kasih datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Dindingnya berdenyut mengikuti tubuh Kael di dunia nyata. Setiap kali Voidmaker menggerakkan tangannya di luar, otot dan saraf pada ruang ini ikut berubah menjadi lorong baru.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Eira. Yang lain membalas dari sudut berbeda dengan resonansi kasar Eira dari dunia nyata, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Salinan Kael menunggu di tengah jaringan tersebut.
 
-Kael menerapkan desinkronisasi impuls saraf dan frekuensi jiwa. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Ia tidak lagi berdiri sebagai satu tubuh. Wajahnya muncul pada dinding, lantai, dan setiap jalur saraf, seolah seluruh kesadaran Kael telah menjadi wadahnya.
 
-“Sekarang, Kael! Simpul Wadah Entropi ini hanya bisa kutahan beberapa detik,” seru Eira. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Kau terlambat,” kata suara dari segala arah. “Tubuh telah menerima keheningan.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh labirin kesadaran Kael sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Eira menghantam lantai dengan tongkat bayangan. Resonansi kasar dari dunia nyata membuat satu bagian labirin bergetar.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Dalam benturan Wadah Entropi, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Tubuhnya masih meronta. Aku bisa merasakan tulangnya mencoba mematahkan dirinya sendiri agar kau tidak dapat memakainya.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Wadah Entropi tetap memiliki batas yang tak boleh dilanggar.
+Kael menahan napas.
 
-Eira hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan resonansi kasar Eira dari dunia nyata untuk menghantam pusat kendali yang baru terlihat.
+Di luar kesadaran, tubuhnya sedang melawan tanpa kendali pikiran. Gerak kecil itu memberi jalan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Ragnarok Pulse diciptakan dari bekas luka Voidmaker pada realitas. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Dia mendesinkronkan impuls saraf dari frekuensi jiwa. Ketika salinan memerintahkan tangan kanan bergerak, Kael menggeser jalur perintah ke kaki kiri. Ketika Voidmaker mencoba menyalakan Pulse, dia mengunci alirannya pada lingkaran tertutup.
 
-Kael merasakan kemenangan kecil atas lapisan luar Wadah Entropi, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh labirin kesadaran Kael menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Tubuh salinan mulai berkedip.
 
-“Kita membangunkan pusat Wadah Entropi,” kata Eira pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama salinan Kael tanpa rasa sakit dan belas kasih mulai bergerak dari kedalaman.
+Namun lawan tersebut mempelajari perubahan dengan cepat. Jaringan saraf di sekeliling mereka berubah menjadi bilah dan rantai. Eira hampir tertusuk dari belakang.
+
+Kael membentuk perisai dari ingatan akan suara Sylvara. Benturan membuat sebagian kenangan tersebut pecah, tetapi Eira selamat.
+
+“Jangan lindungi aku dengan bagian dirimu yang tersisa,” geram Eira.
+
+“Kalau tidak digunakan untuk melindungi, kenangan itu hanya akan menjadi barang yang kusimpan sampai hilang.”
+
+Mereka bergerak menuju simpul pusat.
+
+Eira memukul ritme kasar pada dinding. Kael memakai setiap ketukan untuk mengubah pola saraf tanpa urutan yang dapat diprediksi. Salinan yang sempurna terlambat sepersekian detik setiap kali keputusan lahir dari dua kehendak berbeda.
+
+Di pusat jaringan, Kael melihat akar sebenarnya dari Wadah Entropi: residu Voidmaker telah menanam pintu kecil pada detak keduanya.
+
+Dia mengulurkan tangan.
+
+Salinan Kael muncul tepat di depan, kini tanpa wajah.
+
+“Jika pintu itu ditutup, Pulse-mu ikut mati.”
+
+Kael menatap luka realitas yang menjadi sumber kekuatannya.
+
+“Kalau harga kebebasanku adalah kehilangan kekuatan, biarkan.”
+
+Dia memisahkan pintu dari jaringan saraf.
+
+Seluruh labirin bergetar. Di dunia nyata, tubuh Kael menjerit dengan suara yang bukan sepenuhnya miliknya.
