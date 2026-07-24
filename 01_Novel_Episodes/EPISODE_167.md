@@ -1,25 +1,45 @@
 # Episode 167 — Wadah Sekunder Terungkap
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di gua Jantung Es Rhythor. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Zireth memindai kristal yang menahan Zevaron.
 
-Sejak benturan sebelumnya, pola Elemental Lord yang dibungkus kristal Void terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membebaskan Roh Es Agung dan menghancurkan benih Struktur, mereka harus masuk lebih dalam ke sumber napas tersebut.
+“Tubuhnya bukan inti utama. Dia hanya cetakan emosi dan elemen.”
 
-“Ada lapisan lain di bawah Wadah Sekunder. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Kael mengikuti aliran energi ke kedalaman gua. Semua jalur berakhir pada Roh Es Agung yang terkurung dalam kristal Void.
 
-Ia mengalirkan pemutusan benang kendali lewat resonansi seimbang melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Tubuh raksasa makhluk itu menyerupai naga bersayap yang dibentuk dari gletser. Di sekeliling tulangnya tumbuh lapisan geometris yang perlahan menyusun bentuk humanoid baru.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Arsitek sedang membangun tubuh dari roh penjaga Zerath,” kata Kael. “Zevaron hanya memberi pola kepribadian dan kekuatan.”
 
-Kael menyentuh rekaman Wadah Sekunder. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Shaman Agung menutup mata. “Roh ini menjaga musim kami sejak sebelum kerajaan berdiri.”
 
-Ia memutus kontak dengan rekaman Wadah Sekunder sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Suara Sang Arsitek memenuhi gua.
 
-“Ini bukan hanya jejak serangan di Wadah Sekunder,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+*Wadah Utama menolak fungsi. Wadah Sekunder dibangun dari komponen yang lebih patuh: roh, trauma, dan keteraturan.*
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Elemental Lord yang dibungkus kristal Void telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Zevaron mengepalkan tangan di dalam kristal.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Arsitek sedang membangun tubuh pengganti dari roh-roh penjaga Zerath.
+“Dia memakai rasa takutku terhadap kegagalan.”
 
-“Kalau petunjuk tentang Wadah Sekunder ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+*Ketakutan menghasilkan kepatuhan yang stabil.*
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Elemental Lord yang dibungkus kristal Void berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Kael mengangkat Zerath's Fang. “Kau masih belum memahami satu hal. Ketakutan tidak menghapus pilihan.”
+
+Kristal di sekitar Zevaron retak ketika dia ikut melawan dari dalam.
+
+Wadah Sekunder bereaksi. Seluruh gua berubah menjadi badai. Kristal Void menutup lorong dan memisahkan pasukan menjadi kelompok-kelompok kecil.
+
+Sylvara menembakkan panah pemurnian ke jalur menuju Zevaron. Zireth menahan tekanan dengan lengan bintang. Prajurit Iskali membentuk perisai es di depan Shaman.
+
+Kael menyentuh kristal utama.
+
+Di balik kendali Arsitek, Roh Es Agung masih hidup. Kesadarannya lemah, tetapi satu permintaan terdengar:
+
+*Jangan hancurkan tubuhku. Bebaskan musim.*
+
+Kael mengangguk.
+
+Dia tidak akan memenangkan pertarungan dengan membunuh Wadah.
+
+Dia harus memisahkan tiga bagian yang dipaksa menyatu: Roh Es, pola Zevaron, dan Benih Struktur.
+
+Satu kesalahan akan menghancurkan semuanya sekaligus.
