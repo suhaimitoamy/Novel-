@@ -1,27 +1,55 @@
 # Episode 190 — Suara di Antara Atom
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di cincin pertahanan Inti Planet. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Setelah gelombang mundur, cincin pertahanan menjadi sunyi.
 
-Semua jalan di cincin pertahanan Inti Planet berakhir pada satu pusat. Di sanalah gelombang antimateri dan pasukan tanpa bayangan menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat mendirikan garis pertahanan terakhir mustahil dilakukan.
+Kael berdiri di depan dinding transparan yang menghadap ruang kosong. Detak kedua di dadanya bergerak lambat dan dingin.
 
-“Kita mencapai pusat Benteng The Core bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zevaron. Kael menatap Zevaron, lalu pada legiun Celestial Zevaron dan meriam Dwarf. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Voidmaker berbicara lagi.
 
-Mereka bergerak serempak. Sekutunya menggunakan legiun Celestial Zevaron dan meriam Dwarf untuk memecah lapisan luar, sedangkan Kael menyusupkan isolasi vakum elektromagnetik bertingkat ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Bukan melalui udara. Suaranya muncul di ruang kecil di antara atom-atom tubuh Kael.
 
-Kael tidak melawan semua lapisan Benteng The Core. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+*Jangkar materi menahan dunia dari bentuk aslinya. Lepaskan. Semua batas akan berakhir.*
 
-Di pusat jaring Benteng The Core itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Kael melihat gambaran kosmik: Fragmen-fragmen Zerath sebagai paku cahaya yang menahan materi, waktu, ingatan, dan jiwa tetap terpisah. Di luar jaring tersebut terdapat lautan kesunyian tanpa bentuk.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di pusat Benteng The Core, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zevaron tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Dunia tidak meminta dibebaskan darinya sendiri.”
 
-Gelombang antimateri dan pasukan tanpa bayangan mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+*Materi adalah penundaan. Kehidupan adalah pola sementara.*
 
-Tidak ada ledakan besar. Gelombang antimateri dan pasukan tanpa bayangan retak dalam keheningan cincin pertahanan Inti Planet. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zevaron menahannya sebelum kepalanya membentur tanah.
+“Karena sementara, ia berharga.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Fragmen-fragmen mempertahankan konstanta materi Zerath. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Voidmaker menunjukkan miliaran dunia yang telah dimakan. Tidak ada rasa sakit di sana. Tidak ada perang, kehilangan, atau ketakutan.
 
-Kael memandangi sisa-sisa pusat kendali Benteng The Core. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Tidak ada siapa pun yang tersisa untuk merasakannya.
 
-Zevaron menyentuh bahu Kael, memastikan ia masih sadar. Tepat saat Kael berdiri, Voidmaker berbicara melalui ruang kosong di antara atom. Kemenangan mereka langsung berubah menjadi awal pengejaran berikutnya.
+Sang Arsitek ikut muncul sebagai pola tipis pada penglihatan.
 
-Jalan di depan Benteng The Core terbuka selebar satu langkah. Kael mengambilnya, diikuti yang lain, sementara dunia menunggu keputusan berikutnya tanpa berani memberi perintah.
+*Voidmaker menghapus. Aku menyusun. Pilih kesunyian atau keteraturan.*
+
+Kael memahami jebakan lama dengan bentuk baru. Dua kekuatan kosmik menawarkan akhir berbeda, tetapi keduanya menghapus kehendak makhluk hidup.
+
+“Tidak keduanya.”
+
+Dia menutup koneksi dengan menyeimbangkan tiga Pulse di sekitar residu antimateri. Suara itu tidak hilang sepenuhnya, tetapi terkurung kembali pada detak dingin.
+
+Zireth mendekat membawa data dari benteng.
+
+“Gelombang berikutnya tidak mengarah ke The Core.”
+
+Peta menunjukkan dua belas jalur menyebar menuju lokasi Fragmen.
+
+“Voidmaker telah memahami fungsi jangkar,” kata Kael. “Ia akan memakan Fragmen satu per satu.”
+
+Zevaron memandang titik-titik tersebut. “Kita tidak dapat melindungi dua belas tempat sekaligus.”
+
+Sosok Berhelm mengirim perintah darurat kepada seluruh kekaisaran. Untuk pertama kalinya, Nexus membuka data ancaman tanpa menyembunyikan status Kael atau fungsi Fragmen.
+
+Peringatan bergerak ke Aelarion, Karag Thürm, Rhythor, Nyrathis, Xyphus, dan wilayah lain.
+
+Di seluruh Zerath, para penguasa harus memilih apakah akan bekerja sama atau tetap memperebutkan jangkar yang menjaga dunia mereka tetap nyata.
+
+Kael memandang rambut putih di tangannya yang rontok setelah pertahanan.
+
+Waktu pribadinya semakin sedikit.
+
+Ancaman yang harus dihentikan justru menyebar ke seluruh dunia.
