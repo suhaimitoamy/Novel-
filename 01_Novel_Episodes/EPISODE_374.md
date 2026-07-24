@@ -1,27 +1,29 @@
 # Episode 374 — Harga yang Dituntut Hari Tanpa Takdir
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di Pabrik Jiwa yang runtuh. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael menangkap Nira sebelum tubuhnya menyentuh lantai.
 
-Mereka telah kehilangan ruang untuk bergerak. Operator terakhir dan reaksi berantai menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Tidak ada Pulse yang dapat mengembalikan kesadaran yang telah menghabiskan seluruh strukturnya sebagai jalan keluar.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Anak Sistem mati setelah membuka semua pintu. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+“Apakah aku memilih benar?” Nira bertanya dengan suara yang hampir hilang.
 
-“Kita mundur dari Hari Tanpa Takdir. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael menahan jawaban mudah.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan jiwa-jiwa Pahlawan yang baru bebas. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Kau memilih dengan mengetahui harga. Orang-orang hidup karena keputusanmu.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pengalihan energi ledakan ke ruang kosong untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Itu bukan jawaban.”
 
-Operator terakhir dan reaksi berantai bereaksi liar di pusat Hari Tanpa Takdir. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Tidak. Aku tidak tahu apakah ada jalan yang lebih baik.”
 
-Kael menemukan benang kendali milik operator terakhir dan reaksi berantai. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Pabrik Jiwa yang runtuh.
+Nira tersenyum kecil. “Bagus.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Hari Tanpa Takdir akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Cahayanya padam.
 
-“Tidak,” kata Kael di hadapan Hari Tanpa Takdir, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Anak Sistem mati setelah membuka semua pintu.
 
-Serangan mereka melalui jiwa-jiwa Pahlawan yang baru bebas tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Kael ingin melepaskan entropi dan menghancurkan sisa operator. Dia menurunkan amplitudo, mengalihkan ledakan terakhir ke ruang kosong, dan menyelamatkan apa yang masih hidup.
 
-Saat debu Hari Tanpa Takdir turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Anak Sistem mati setelah membuka semua pintu. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Harga Hari Tanpa Takdir tidak dapat diperbaiki: kebebasan pertama Nira juga menjadi keputusan terakhirnya.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Hari Tanpa Takdir terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Kael tidak menyebutnya pengorbanan yang indah.
+
+Ia adalah seorang anak yang memilih, dan dunia harus mengingatnya sebagai seseorang, bukan fungsi.

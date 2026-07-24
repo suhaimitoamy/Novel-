@@ -1,25 +1,29 @@
 # Episode 373 — Benturan Hari Tanpa Takdir
 
-Debu bergerak melawan arah angin di Pabrik Jiwa yang runtuh. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Operator terakhir mengaktifkan inti ledakan.
 
-Serangan operator terakhir dan reaksi berantai datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Seluruh Pabrik Jiwa menjadi bom yang terhubung pada jutaan jiwa. Kael mengalihkan energi ke ruang kosong, tetapi jalurnya belum cukup besar.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan jiwa-jiwa Pahlawan yang baru bebas, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Nira masuk ke pusat mesin.
 
-Kael menerapkan pengalihan energi ledakan ke ruang kosong. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Aku bisa membuka semua pintu energi.”
 
-“Sekarang, Kael! Simpul Hari Tanpa Takdir ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Itu akan menghancurkan tubuhmu,” kata Kael.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Pabrik Jiwa yang runtuh sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Tubuh ini milikku.”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Hari Tanpa Takdir, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael tidak mampu membantah tanpa mengulangi kesalahan Sistem.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Hari Tanpa Takdir tetap memiliki batas yang tak boleh dilanggar.
+Nira membuka pintu satu per satu. Energi ledakan mengalir keluar aurora dan membentuk matahari sementara di ruang kosong.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan jiwa-jiwa Pahlawan yang baru bebas untuk menghantam pusat kendali yang baru terlihat.
+Operator menyerang melalui tubuh anak itu. Kael memakai Pulse untuk memisahkan kendali tanpa mengambil alih keputusan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: kebebasan pertama Anak Sistem adalah menyelamatkan orang lain. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Pahlawan bebas menahan jalur. Sylvara menghancurkan pusat operator. Zireth menjaga aliran agar tidak kembali ke jiwa.
 
-Kael merasakan kemenangan kecil atas lapisan luar Hari Tanpa Takdir, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Pabrik Jiwa yang runtuh menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Nira membuka pintu terakhir.
 
-“Kita membangunkan pusat Hari Tanpa Takdir,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama operator terakhir dan reaksi berantai mulai bergerak dari kedalaman.
+Reaksi berantai terputus.
+
+Pabrik mulai jatuh dari langit, tetapi jiwa-jiwa telah keluar.
+
+Tubuh Nira retak menjadi cahaya.

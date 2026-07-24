@@ -1,27 +1,21 @@
 # Episode 379 — Harga yang Dituntut Turunnya Tiga Dewa
 
-Suhu berubah setiap kali Kael menarik napas di langit Valerium yang terbakar. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Penduduk Valerium yang kehilangan sihir tidak mendapatkannya kembali ketika medan ilahi melemah.
 
-Mereka telah kehilangan ruang untuk bergerak. Aelarion, Zhorak, dan Malgorath menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Aelarion telah menarik hubungan mereka dengan energi dunia. Penyembuh, penjaga, dan anak-anak yang lahir dengan kemampuan alami menjadi biasa dalam satu tatapan.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Penduduk kehilangan sihir hanya karena menatap mereka. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Kael mencoba menyambungnya. Hukum Keempat menolak, karena hubungan tersebut tidak boleh dipulihkan tanpa mengembalikan sebagian klaim Aelarion.
 
-“Kita mundur dari Turunnya Tiga Dewa. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Biarkan,” kata seorang penyembuh tua. “Kami masih hidup.”
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan dua belas ras yang membentuk lingkar pertahanan. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Kael mendengar kemarahan di balik ketenangannya.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan penjangkaran hukum lokal dengan Fragmen untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Harga turunnya tiga dewa permanen: ribuan penduduk kehilangan sihir hanya karena melihat kehadiran mereka.
 
-Aelarion, Zhorak, dan Malgorath bereaksi liar di pusat Turunnya Tiga Dewa. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kael menolak mengubah kehilangan itu menjadi slogan kepahlawanan. Jaringan dua belas ras menyiapkan dukungan bagi kehidupan tanpa sihir dan memindahkan kekuasaan dari mereka yang menganggap kemampuan sebagai hak memerintah.
 
-Kael menemukan benang kendali milik Aelarion, Zhorak, dan Malgorath. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh langit Valerium yang terbakar.
+Sementara itu, Kael memutus dua benang hukum lain.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Turunnya Tiga Dewa akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Tiga medan mundur dari Valerium, tetapi para dewa belum kalah.
 
-“Tidak,” kata Kael di hadapan Turunnya Tiga Dewa, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
-
-Serangan mereka melalui dua belas ras yang membentuk lingkar pertahanan tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
-
-Saat debu Turunnya Tiga Dewa turun, mereka sadar kemenangan kecil itu menuntut harga permanen: penduduk kehilangan sihir hanya karena menatap mereka. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
-
-Di tengah kerusakan, satu jalur terakhir menuju pusat Turunnya Tiga Dewa terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Mereka hanya kehilangan hak menguasai wilayah tanpa perlawanan.

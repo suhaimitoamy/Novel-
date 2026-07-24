@@ -1,25 +1,23 @@
 # Episode 368 — Benturan Mesin Nubuat
 
-Butiran cahaya melayang seperti abu dari bintang mati di kubus prediksi di pusat Pabrik Jiwa. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Masa depan menyerbu dalam gelombang.
 
-Serangan jutaan masa depan yang menyerang sebagai senjata datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Kael melihat dirinya menjadi tiran, mati sebagai pahlawan, meninggalkan Zerath, dan membunuh Nira demi menyelamatkan jutaan orang. Setiap gambaran terasa cukup nyata untuk memengaruhi tubuh.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan angka acak dari inti logam bintang Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Zireth mengunci satu titik acak. Kael memakai keruntuhan prediksi terkendali, memaksa kubus memilih hasil tanpa mengetahui apakah hasil itu menguntungkan.
 
-Kael menerapkan keruntuhan fungsi prediksi secara acak terkendali. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Mesin kehilangan keunggulan.
 
-“Sekarang, Kael! Simpul Mesin Nubuat ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Nira masih terhubung pada pusat. Dia dapat memutus kabel dari dalam, tetapi mesin menunjukkan masa depan tempat tindakan itu menghancurkan Pabrik Jiwa.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh kubus prediksi di pusat Pabrik Jiwa sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Pilih berdasarkan orang yang ada sekarang,” kata Kael.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Dalam benturan Mesin Nubuat, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Nira melihat jiwa-jiwa yang sedang dievakuasi. Dia tidak memutus seluruh kabel. Dia mengalihkan energi ke ruang kosong dan membuka jalur satu per satu.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Mesin Nubuat tetap memiliki batas yang tak boleh dilanggar.
+Kael serta Zireth menyerang fungsi penghukuman, bukan arsip kemungkinan.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan angka acak dari inti logam bintang Zireth untuk menghantam pusat kendali yang baru terlihat.
+Kubus retak.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: nubuat menjadi nyata karena Sistem menghukum semua pilihan lain. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Mesin menawarkan kepada Kael seluruh keuntungan melihat masa depan sekali lagi.
 
-Kael merasakan kemenangan kecil atas lapisan luar Mesin Nubuat, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh kubus prediksi di pusat Pabrik Jiwa menjawab dengan satu denyut yang membuat gigi mereka bergetar.
-
-“Kita membangunkan pusat Mesin Nubuat,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama jutaan masa depan yang menyerang sebagai senjata mulai bergerak dari kedalaman.
+Untuk menghancurkannya sepenuhnya, dia harus membakar bahkan kemungkinan memperoleh kemampuan tersebut kembali.

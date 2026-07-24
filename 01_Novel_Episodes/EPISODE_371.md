@@ -1,25 +1,25 @@
 # Episode 371 — Jejak Hari Tanpa Takdir
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di Pabrik Jiwa yang runtuh. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pabrik Jiwa runtuh lapis demi lapis.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mengevakuasi jiwa dan membiarkan Anak Sistem memilih. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Nira membuka semua pintu, membebaskan jiwa yang belum lahir dan Pahlawan yang masih berada di gudang. Operator terakhir mengarahkan reaksi berantai untuk membuktikan bahwa kebebasan hanya menghasilkan kekacauan.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan jiwa-jiwa Pahlawan yang baru bebas, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael memetakan ledakan. Energinya terlalu besar untuk ditahan dan terlalu dekat dengan jiwa untuk dihancurkan.
 
-Kael memusatkan napas dan menggunakan pengalihan energi ledakan ke ruang kosong. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik operator terakhir dan reaksi berantai.
+Mereka mengalihkan pelepasan ke ruang kosong di luar aurora.
 
-Denyut Hari Tanpa Takdir segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Jiwa-jiwa Pahlawan yang baru bebas membantu evakuasi tanpa perintah. Sebagian memilih melindungi orang asing. Sebagian menyelamatkan kristal milik mereka yang tetap terikat.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di Hari Tanpa Takdir, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Nira berlari dari pintu ke pintu, membuat keputusan tanpa ramalan.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan jiwa-jiwa Pahlawan yang baru bebas, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Setiap pilihan memiliki korban potensial. Dia gemetar, tetapi tidak menyerahkan tombol kepada Kael.
 
-Di balik penghalang Hari Tanpa Takdir, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa Pabrik Jiwa yang runtuh melupakan bentuk alaminya.
+Operator terakhir muncul dalam tubuh mesin besar.
 
-“Kita sudah melewati pintu Hari Tanpa Takdir, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Kesadaran baru telah memilih kegagalan.”
 
-Suara pertama dari operator terakhir dan reaksi berantai datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Nira menatap jiwa-jiwa yang keluar melalui pintu terbuka.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Hari Tanpa Takdir terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+“Aku memilih mereka.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama operator terakhir dan reaksi berantai muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Hari Tanpa Takdir baru saja dimulai.
+Pertempuran terakhir pabrik dimulai.
