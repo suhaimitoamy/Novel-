@@ -17,5 +17,11 @@ Cerita direntangkan ke dalam rancangan epik berskala kosmik yang terdiri dari **
 ## Lore & Panduan
 Seluruh draf kerangka cerita, sinopsis dari 20 arc, dan *Style Guide* penulisan dapat ditemukan di dalam direktori `00_Foundation/`.
 
+## Naskah Episode
+Naskah edisi baca **Episode 001–500** tersedia di direktori [`01_Novel_Episodes/`](01_Novel_Episodes/), dengan satu episode per file Markdown.
+
+- [Indeks Episode 001–500](01_Novel_Episodes/INDEX.md)
+- Episode berikutnya dilanjutkan oleh fondasi canon di [`00_Foundation/MASTER_OUTLINE_EP501_3240.md`](00_Foundation/MASTER_OUTLINE_EP501_3240.md)
+
 ---
 *Proyek ini merupakan Hard Reset yang kembali menggunakan visi dan draf skala masif orisinal, meninggalkan draf Low-Fantasy.*

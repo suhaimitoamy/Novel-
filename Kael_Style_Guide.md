@@ -10,7 +10,7 @@
 ## ✅ 2. Tense (Waktu Narasi)
 - Gunakan **past tense** (masa lalu) untuk konsistensi cerita.
 
-> Salah: *Kael membuka pintu dan melihat...*  
+> Salah: *Kael membuka pintu dan melihat...*
 > Benar: *Kael membuka pintu dan melihat...*
 
 ## ✅ 3. Struktur Tiap Episode
@@ -24,11 +24,17 @@
 | 🔚 **Cliffhanger** | Ending yang bikin pembaca penasaran untuk next episode |
 
 ## ✅ 4. Gaya Bahasa
-- Kalimat pendek saat adegan tegang.
-- Banyak narasi visual dan sensorik (bau, suara, warna, getaran).
-- Dialog alami, tidak terlalu formal.
+- Bahasa Indonesia yang natural, jernih, dan tidak kaku (seperti novel terjemahan profesional).
+- Jangan memakai slang modern (seperti "gue", "lo") atau terdengar seperti webtoon/skrip film.
+- Gunakan "aku", "kau", "dia", dan "tidak" sesuai suasana dunia fantasi.
+- Paragraf sepanjang 1–4 kalimat agar nyaman dibaca melalui HP.
+- Kalimat pendek digunakan saat pertarungan, ketegangan, ketakutan, kejutan, dan keputusan penting.
+- Kalimat panjang hanya untuk menggambarkan suasana, dunia, atau pemikiran.
+- Hindari pola kalimat AI yang berulang (contoh: "Tiba-tiba", "Seketika", "Matanya dipenuhi keterkejutan"). Tunjukkan emosi melalui gerakan, tindakan, dan dialog.
+- Jangan tulis SFX (contoh: SFX: BOOM!). Leburkan suara ke dalam narasi (contoh: "Ledakan keras mengguncang tanah.").
+- Dialog harus sesuai kepribadian, tidak terlalu panjang, dan tidak menjadi ceramah lore.
 
-> *“Terserah lo mau percaya atau nggak. Tapi gue nggak akan mati di tempat ini.”*
+> *"Terserah kau mau percaya atau tidak," ucapnya lirih. "Tapi aku tidak akan mati di tempat ini."*
 
 ## ✅ 5. Tone Cerita
 - **Dark-fantasy grounded**: dunia keras, penuh pengkhianatan, tetapi masih menyimpan harapan.
