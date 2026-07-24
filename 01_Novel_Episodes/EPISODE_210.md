@@ -1,27 +1,49 @@
 # Episode 210 — Gerbang Neraka Terbuka
 
-Bayangan-bayangan memanjang meski tak ada matahari di langit pecah di atas The Core. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Tubuh utama Voidmaker terlepas dari langit Zerath.
 
-Semua jalan di langit pecah di atas The Core berakhir pada satu pusat. Di sanalah tubuh antimateri sebesar kota menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat mengusir Voidmaker dari lapisan realitas Zerath mustahil dilakukan.
+Seluruh aliansi menyaksikan massa antimateri ditarik kembali ke ruang kosmik asalnya. Bintang-bintang yang sempat hilang muncul satu demi satu.
 
-“Kita mencapai pusat Manifestasi Utama bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada seluruh aliansi Zerath. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Tidak ada sorak.
 
-Mereka bergerak serempak. Sekutunya menggunakan seluruh aliansi Zerath untuk memecah lapisan luar, sedangkan Kael menyusupkan tiga Pulse: resonansi, entropi, dan keseimbangan ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+The Core berguncang dari bawah.
 
-Kael tidak melawan semua lapisan Manifestasi Utama. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Retakan hitam-merah membelah lantai benteng dan menyebar menuju horizon. Panas yang keluar bukan api biasa. Ia membawa bau belerang, darah tua, dan jiwa yang telah terbakar sejak zaman sebelum kekaisaran berdiri.
 
-Di pusat jaring Manifestasi Utama itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Zireth memeriksa pembacaan. “Recoil dari pengalihan energi menghantam segel bawah planet.”
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di pusat Manifestasi Utama, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Segel apa?” tanya Sylvara.
 
-Tubuh antimateri sebesar kota mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Model Zerath menampilkan lapisan yang tidak pernah tercatat oleh Nexus: ruang luas di bawah jaringan Leyline, dipisahkan dari dunia atas oleh rangkaian rune primordial.
 
-Tidak ada ledakan besar. Tubuh antimateri sebesar kota retak dalam keheningan langit pecah di atas The Core. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Zevaron memandang api yang muncul dari retakan. “Neraka Zerath.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: kemenangan hanya mungkin dengan mengarahkan energi keluar, bukan menghancurkannya. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Bukan tempat hukuman buatan dewa, melainkan dunia bawah tempat energi, jiwa, dan makhluk yang tidak dapat kembali ke siklus disegel setelah Perang Primordial.
 
-Kael memandangi sisa-sisa pusat kendali Manifestasi Utama. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Arus antimateri yang diarahkan keluar telah menekan sisi lain segel dan merobeknya dari dalam.
 
-Tak ada sorak setelah pusat Manifestasi Utama runtuh. Kael baru menarik napas ketika denyut lain menjawab dari kejauhan. Jalan menuju Neraka Zerath terbuka oleh recoil.
+Gerbang raksasa muncul di bawah The Core. Lengkungannya terbentuk dari tulang hitam serta logam cair. Rantai-rantai sebesar menara mulai putus satu demi satu.
 
-Di ambang keluar langit pecah di atas The Core, Kael berhenti satu tarikan napas. Ia menyimpan suara para korban, lalu berjalan sebelum dunia sempat memilihkan jalan untuknya.
+Dari baliknya terdengar raungan banyak makhluk.
+
+Sosok Berhelm mengirim perintah evakuasi. Pasukan Dwarf dan Celestial membentuk garis pertahanan baru meski baru saja menyelesaikan perang di langit.
+
+Kael mencoba berdiri. Tubuhnya hampir tidak merespons. Lengan kiri mati rasa, kaki kanan lemah, dan Frekuensi Penyangkal masih menggetarkan sarafnya.
+
+Sylvara menahannya. “Kau tidak masuk ke gerbang itu dalam keadaan seperti ini.”
+
+“Aku tidak akan memimpin serangan.” Kael melihat retakan yang terus melebar. “Tapi Ragnarok Pulse bereaksi pada sesuatu di bawah sana.”
+
+Detak dingin di dadanya berubah. Bukan rasa lapar Voidmaker.
+
+Sebuah denyut panas menjawab dari Neraka, akrab seperti Fragmen tetapi jauh lebih tua dan marah.
+
+Eira mendekat dengan tongkat, tubuhnya kini tanpa Fury. “Ada kekuatan yang tidak pernah masuk catatan dua belas Fragmen.”
+
+Gerbang terbuka penuh.
+
+Gelombang api hitam menyapu The Core. Dari dalamnya melangkah pasukan iblis dengan zirah yang telah membeku oleh usia. Di belakang mereka, sebuah bayangan bertanduk besar membuka mata merah.
+
+Voidmaker telah dipukul mundur.
+
+Namun jalan menuju Neraka Zerath kini terbuka, dan sesuatu di sana telah menunggu kesempatan tersebut selama ribuan tahun.
