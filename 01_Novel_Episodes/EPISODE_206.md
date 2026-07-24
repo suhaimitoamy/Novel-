@@ -1,25 +1,43 @@
 # Episode 206 — Jejak Manifestasi Utama
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di langit pecah di atas The Core. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Langit di atas The Core pecah seperti kaca.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mengusir Voidmaker dari lapisan realitas Zerath. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Di balik retakan itu, tubuh utama Voidmaker turun ke lapisan realitas Zerath. Ukurannya menutupi cakrawala. Ia tidak memiliki kepala atau anggota tubuh tetap—hanya massa antimateri sebesar kota yang terus membentuk rahang, tangan, dan mata kosong.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan seluruh aliansi Zerath, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Frekuensi Penyangkal berhasil mengusir satu manifestasi, tetapi kini Voidmaker menyerang melalui dua belas jalur menuju Fragmen.
 
-Kael memusatkan napas dan menggunakan tiga Pulse: resonansi, entropi, dan keseimbangan. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik tubuh antimateri sebesar kota.
+Untuk pertama kalinya, pasukan dari seluruh Zerath berkumpul pada satu medan.
 
-Denyut Manifestasi Utama segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Meriam Karag Thürm berdiri berdampingan dengan menara sihir Aelarion. Legiun Celestial Zevaron menutup udara. Kapal Nyrathis membentuk perisai air di atas The Core. Bahkan beberapa Warlock Xyphus datang membawa segel yang biasanya dilarang.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di Manifestasi Utama, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Tidak ada pihak yang saling percaya sepenuhnya.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan seluruh aliansi Zerath, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Mereka hanya sepakat bahwa dunia harus tetap ada sebelum dapat kembali bertengkar.
 
-Di balik penghalang Manifestasi Utama, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa langit pecah di atas The Core melupakan bentuk alaminya.
+Kael berdiri di pusat jaringan dengan tongkat pada tangan kanan. Lengan kiri menggantung tanpa rasa. Eira mengawasi dari ruang kontrol, sementara Sylvara dan Zireth berada di sisinya.
 
-“Kita sudah melewati pintu Manifestasi Utama, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Kau tidak bisa menghentikan tubuh sebesar itu dengan satu simpul,” kata Zireth.
 
-Suara pertama dari tubuh antimateri sebesar kota datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Karena itu simpulnya bukan hanya milikku.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Manifestasi Utama terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kael mengirim pola Frekuensi Penyangkal kepada seluruh aliansi. Setiap pasukan menerima satu bagian irama, bukan perintah tunggal. Meriam, sihir, badai, air, dan rune bergerak sebagai gelombang berdiri raksasa.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama tubuh antimateri sebesar kota muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Manifestasi Utama baru saja dimulai.
+Voidmaker menyerang.
+
+Gelombang annihilation menghantam jaringan. Beberapa lapisan runtuh, tetapi energi serangan tidak langsung memakan materi. Frekuensi Penyangkal menghentikan hubungan antara rasa lapar dan akibat.
+
+Sang Arsitek menyusupkan pola geometris untuk memecah sinkronisasi.
+
+Kael merasakan tiga jalur di dalam Ragnarok Pulse: resonansi yang menghubungkan, entropi yang mengurai, dan keseimbangan yang menjaga keduanya tidak saling menelan.
+
+“Jangan hancurkan energinya,” katanya melalui jaringan. “Arahkan keluar dari Zerath.”
+
+Aliansi membuka koridor menuju ruang kosong di atas atmosfer.
+
+Tubuh Voidmaker berguncang saat sebagian serangannya dipantulkan menjauh. Bukan terluka—hanya kehilangan tempat untuk menyalurkan rasa lapar.
+
+Namun massa utamanya terus turun.
+
+Retakan langit melebar.
+
+Pertempuran sebenarnya baru dimulai.
