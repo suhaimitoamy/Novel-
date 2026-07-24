@@ -1,25 +1,49 @@
 # Episode 173 — Benturan Tiga Mesin Takdir
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di Katedral Waktu, Menara Memori, dan Danau Jiwa. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Master Waktu menghentikan detik di sekitar Kael.
 
-Serangan Master Waktu, Penjaga Memori, dan Pendeta Jiwa datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Tubuhnya membeku, tetapi Ragnarok Pulse tetap bergerak karena Fragmennya berada di luar rantai sebab-akibat Zerath. Kael memakai denyut itu untuk menciptakan celah kecil dan menggerakkan satu jari.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Gema Pengetahuan dan kalkulasi jarak jauh Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Cukup untuk memberi sinyal kepada Zireth.
 
-Kael menerapkan denyut berantai pada tiga jangkar kausal. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Lengan bintang mengirim perhitungan menuju tiga pintu. Sylvara mengarahkan Gema Pengetahuan ke Menara Memori dan memaksa buku Penjaga menampilkan catatan asli, bukan versi yang telah disunting.
 
-“Sekarang, Kael! Simpul Tiga Mesin Takdir ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Waktu kembali mengalir.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Katedral Waktu, Menara Memori, dan Danau Jiwa sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael menyerang ketiga simpul melalui Pulse berantai. Master Waktu memundurkan dampaknya, Penjaga Memori menghapus pola serangan, dan Pendeta Jiwa memulihkan energi yang hilang.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Tiga Mesin Takdir, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Mereka saling memperbaiki,” kata Sylvara.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Tiga Mesin Takdir tetap memiliki batas yang tak boleh dilanggar.
+Kael mengubah strategi.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Gema Pengetahuan dan kalkulasi jarak jauh Zireth untuk menghantam pusat kendali yang baru terlihat.
+Dia tidak mencoba merusak mesin. Pulse diarahkan ke perintah bersama yang membuat ketiganya bertindak sebagai satu kehendak.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: ketiga mesin adalah satu failsafe yang tersebar. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Zireth menghitung jeda koreksi.
 
-Kael merasakan kemenangan kecil atas lapisan luar Tiga Mesin Takdir, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Katedral Waktu, Menara Memori, dan Danau Jiwa menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+“Setelah satu mesin diserang, dua lainnya menanggapi dalam tiga denyut.”
 
-“Kita membangunkan pusat Tiga Mesin Takdir,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Master Waktu, Penjaga Memori, dan Pendeta Jiwa mulai bergerak dari kedalaman.
+“Berarti kita masuk di antara denyut kedua dan ketiga.”
+
+Sylvara membuka catatan pemberontakan Rhythor dalam Gema Pengetahuan. Informasi tersebut membebani Penjaga Memori dengan kebenaran yang tidak dapat dihapus tanpa merusak arsipnya sendiri.
+
+Zireth mengacaukan jam Master Waktu menggunakan perbedaan gravitasi dari lengan bintang.
+
+Kael menyentuh permukaan Danau Jiwa dan memanggil nama Roh Es Agung.
+
+Tiga penjaga berhenti sepersekian detik.
+
+Pengorbanan yang hendak mereka hapus kini hadir sekaligus sebagai peristiwa, ingatan, dan jiwa.
+
+Kael melepaskan Pulse ke inti perintah.
+
+Jaringan Sang Arsitek terlihat sebagai benang putih yang menghubungkan ketiga mesin.
+
+Namun saat disentuh, benang itu membelah menjadi ribuan salinan dan mengambil alih dinding The Core.
+
+Seluruh fasilitas berubah menjadi tubuh tambahan bagi failsafe.
+
+Bilah waktu, tangan memori, dan rantai jiwa muncul dari segala arah.
+
+Mereka telah menemukan simpul yang benar.
+
+Sang Arsitek juga menyadari bahwa perlindungannya sedang dibuka.
