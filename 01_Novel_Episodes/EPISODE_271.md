@@ -1,25 +1,53 @@
 # Episode 271 — Jejak Kembaran Bayangan
 
-Suhu berubah setiap kali Kael menarik napas di medan cermin di atas Zona Nol. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Koordinat membawa mereka ke medan cermin yang menggantung di atas Zona Nol.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mengalahkan salinan Kael yang memilih menguasai perang. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Tidak ada tanah. Hanya lembaran-lembaran reflektif yang melayang di ruang, masing-masing menampilkan kehidupan Kael yang berbeda. Pada satu cermin dia tumbuh di Aranyel tanpa menyentuh Fragmen. Pada cermin lain dia menerima takhta dan memerintah Zerath. Yang lain memperlihatkan tubuh sempurna yang baru saja keluar dari altar.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan Sylvara yang mengenali Kael asli dari keraguannya, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael berjalan dengan tongkat Eira. Sylvara mengikuti beberapa langkah di belakang, sementara Zireth tetap di tepi Zona Nol menjaga jalur pulang melalui lengan bintang yang sudah kehilangan fungsi relay global.
 
-Kael memusatkan napas dan menggunakan runtuhnya fungsi gelombang melalui pilihan tak dapat dibalik. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Shadow Double dengan Pulse tanpa recoil.
+“Bagaimana kau membedakan salinan dari dirimu?” tanya Sylvara.
 
-Denyut Kembaran Bayangan segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Aku tidak yakin.”
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Di Kembaran Bayangan, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Bagus.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan Sylvara yang mengenali Kael asli dari keraguannya, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael menoleh.
 
-Di balik penghalang Kembaran Bayangan, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa medan cermin di atas Zona Nol melupakan bentuk alaminya.
+“Salinan itu tidak pernah ragu,” lanjut Sylvara. “Kalau ada dua Kael di depanku, aku menembak yang terlalu yakin.”
 
-“Kita sudah melewati pintu Kembaran Bayangan, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Medan cermin bereaksi terhadap ucapannya. Puluhan Kael muncul di setiap permukaan, semuanya membawa Zerath's Fang utuh dan Ragnarok Pulse tanpa recoil.
 
-Suara pertama dari Shadow Double dengan Pulse tanpa recoil datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Kembaran asli berjalan keluar dari salah satu cermin.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Kembaran Bayangan terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+“Aku memilih hasil yang tidak mampu kau terima,” katanya. “Perang berhenti ketika satu kehendak cukup kuat memaksa semua pihak diam.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Shadow Double dengan Pulse tanpa recoil muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Kembaran Bayangan baru saja dimulai.
+Kael membaca struktur lawannya. Tubuh tersebut bukan hanya salinan data. Ia adalah kemungkinan kausal yang dipelihara Umbral—lapisan realitas tempat jalan yang tidak dipilih tetap dapat tumbuh jika diberi energi.
+
+Sang Arsitek telah mengambil kemungkinan Kael menerima kekuasaan dan memberinya tubuh.
+
+Kembaran mengayunkan Zerath's Fang.
+
+Tidak ada recoil. Tidak ada saraf rusak, rasa sakit, atau energi yang harus diseimbangkan. Setiap teknik keluar dalam bentuk sempurna.
+
+Kael menghindar dengan susah payah. Tongkat Eira retak saat menahan tebasan kedua.
+
+Sylvara menembakkan panah biasa. Kembaran bergerak sebelum tali busur dilepas, karena seluruh pola bertarung mereka ada di dalam datanya.
+
+Kael berhenti mencoba menang lewat teknik.
+
+Dia mengambil satu keputusan yang tidak dapat dibalik: melangkah ke cermin yang memperlihatkan Aranyel utuh dan menghancurkan jalur pulang di belakangnya.
+
+Sylvara mengikutinya tanpa bertanya.
+
+Fungsi gelombang medan runtuh pada satu pilihan nyata. Puluhan kemungkinan lain padam, memaksa Kembaran mengejar melalui jalur yang tidak lagi dapat diulang.
+
+Untuk pertama kalinya, tubuh sempurna itu kehilangan keuntungan mengetahui semua hasil.
+
+Namun cermin Aranyel berubah menjadi perangkap.
+
+Di dalamnya, rumah Kael berdiri utuh dan suara ibunya memanggil dari pintu—suara yang sudah dia korbankan di Neraka.
+
+Kembaran tidak perlu mengalahkannya melalui kekuatan.
+
+Ia hanya perlu membuat Kael memilih tinggal.
