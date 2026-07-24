@@ -1,25 +1,53 @@
 # Episode 262 — Suara dari Vanguard Beastmen
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di Meat Forest Garundrax. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael membiarkan Vanguard mengejarnya ke dalam Hutan Daging.
 
-Sejak benturan sebelumnya, pola Ritual Bulan Darah dan panglima pemburu terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk mengubah serbuan Beastmen menjadi aliansi rakyat, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Raska memimpin jalur sempit di antara akar hidup. Sylvara menembakkan panah penenang kepada prajurit yang terlalu dekat, sementara Zireth mengirim gangguan kecil ke tanda Bulan Darah agar beberapa Beastmen memperoleh kendali selama beberapa detik.
 
-“Ada lapisan lain di bawah Vanguard Beastmen. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+“Jangan lukai mereka lebih dari perlu,” kata Raska. “Mereka akan mengingat apa yang dilakukan tubuhnya setelah pulsa padam.”
 
-Ia mengalirkan pembatalan frekuensi pada hormon perang melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael memahami beban tersebut. Para prajurit bukan boneka tanpa kesadaran. Mereka melihat tangan sendiri mengangkat senjata dan tidak mampu menghentikannya.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan pemimpin muda Beastmen dan panah penenang Sylvara. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Di bawah hutan, denyut Fragmen semakin keras.
 
-Kael menyentuh rekaman Vanguard Beastmen. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Setiap pulsa memicu hormon perang, mempercepat jantung, menumpulkan rasa takut, dan mengubah kecurigaan menjadi kebencian. Sistem Pahlawan telah menanam satu perintah pada mekanisme alami Beastmen: bangsa lain akan merebut hutan, maka serang sebelum diserang.
 
-Ia memutus kontak dengan rekaman Vanguard Beastmen sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Mereka mencapai gua daging yang menyimpan catatan ritual.
 
-“Ini bukan hanya jejak serangan di Vanguard Beastmen,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Raska membuka membran pintu menggunakan darahnya. Di dalam, dinding menampilkan sejarah Garundrax. Dahulu Fragmen digunakan untuk menyelaraskan kawanan saat berburu dan melindungi wilayah. Para pemimpin kemudian memperkuat pulsa agar seluruh bangsa dapat bergerak serentak dalam perang.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Ritual Bulan Darah dan panglima pemburu telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Beberapa generasi terakhir menambahkan lapisan dari Sistem Pahlawan.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—naluri mereka dipaksa oleh pulsa dari Fragmen Garundrax.
+“Panglima kami tidak menciptakan semuanya,” kata Raska. “Dia mewarisi alat yang sudah dianggap suci.”
 
-“Kalau petunjuk tentang Vanguard Beastmen ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Kael membaca rekaman terakhir.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Ritual Bulan Darah dan panglima pemburu berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Kharvok menerima nubuat bahwa Bulan Darah terakhir akan datang. Jika Beastmen tidak menguasai dua belas Fragmen, naluri ras mereka akan padam dan seluruh keturunan menjadi makhluk jinak di bawah bangsa lain.
+
+Kebohongan tersebut dipilih untuk menyentuh ketakutan paling dalam mereka: kehilangan kebebasan dan identitas liar.
+
+Dinding gua berdenyut.
+
+Kharvok berdiri pada pintu bersama pasukan pemburu elit. Matanya merah, tetapi suaranya masih miliknya.
+
+“Kau menyebut naluri kami rantai karena tidak memahami artinya menjadi Beastmen.”
+
+Kael menatapnya. “Naluri bukan rantai. Pulsa yang mencuri pilihanmu adalah rantai.”
+
+Panglima mengayunkan kapak.
+
+Raska berdiri di antara mereka.
+
+“Beri kami satu menit tanpa tanda Bulan Darah. Kalau kami tetap memilih perang, mereka akan pergi.”
+
+Kharvok tidak dapat menerima permintaan tersebut. Sistem di dalam tubuhnya meningkatkan pulsa sampai otot dan tulangnya mulai berubah.
+
+Kael membatalkan satu gelombang.
+
+Untuk sesaat, mata panglima kembali jernih.
+
+Ketakutan terlihat di sana sebelum pulsa berikutnya menelannya.
+
+Kharvok juga seorang tahanan.
+
+Namun untuk membebaskannya, Kael harus menghentikan ritual yang kini menggunakan tubuh sang panglima sebagai pusat penguat.
