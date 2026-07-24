@@ -1,25 +1,53 @@
 # Episode 247 — Suara dari Dua Belas Panji
 
-Suhu berubah setiap kali Kael menarik napas di Dataran Terbelah. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Fragmen mulai naik dari bawah Dataran Terbelah.
 
-Sejak benturan sebelumnya, pola dua belas pasukan dan para jenderal Celestial terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menghentikan mobilisasi kekaisaran sebelum Fragmen dicabut dari tanah, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Batu, tanah, dan udara di sekeliling cekungan kehilangan kestabilan. Sebagian prajurit merasa tubuhnya menjadi ringan, sedangkan yang lain terbenam sampai lutut seolah gravitasi berubah pada setiap langkah.
 
-“Ada lapisan lain di bawah Dua Belas Panji. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zevaron. Kael memandangi garis-garis pada permukaan. Ia tahu Zevaron benar. Kekuatan mentah hanya akan mempercepat bencana.
+Dua belas utusan kembali ke pasukan masing-masing. Perintah bertahan bercampur dengan perintah merebut Fragmen sebelum pihak lain bergerak.
 
-Ia mengalirkan pembacaan residu kausal pada nubuat melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Zevaron berdiri di tengah jalur komunikasi dan mengirim pesan kepada semua jenderal Celestial.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan upaya mediasi Zevaron yang rapuh. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Jika satu pasukan maju, seluruh dataran runtuh.”
 
-Kael menyentuh rekaman Dua Belas Panji. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Jawaban datang cepat.
 
-Ia memutus kontak dengan rekaman Dua Belas Panji sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+“Kalau kami mundur, bangsa lain mengambilnya.”
 
-“Ini bukan hanya jejak serangan di Dua Belas Panji,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zevaron. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Itulah perangkap nubuat tersebut. Setiap pihak memahami bahayanya, tetapi ketakutan terhadap pihak lain membuat keputusan aman terasa mustahil.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Dua belas pasukan dan para jenderal Celestial telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Kael membaca residu kausal nubuat melalui Gema Pengetahuan. Kata-kata yang diterima setiap bangsa berbeda, tetapi waktu kemunculannya sama persis—beberapa menit setelah Tiga Mesin Takdir dibebaskan.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—perang dipicu oleh nubuat palsu terakhir dari Sistem.
+Sistem Pahlawan telah mengeluarkan satu nubuat terakhir sebelum kehilangan kendali atas sejarah.
 
-“Kalau petunjuk tentang Dua Belas Panji ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zevaron. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Tujuannya bukan menentukan pemenang.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan dua belas pasukan dan para jenderal Celestial berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Ia ingin memaksa dua belas bangsa mencabut Fragmen dan menghancurkan jangkar dunia, sehingga para dewa dapat mengaktifkan mekanisme darurat dari luar Zerath.
+
+“Kalau Fragmen terlepas,” kata Kael, “Sistem mendapatkan alasan mengambil alih seluruh hukum dunia atas nama penyelamatan.”
+
+Zevaron membuka saluran kepada dua belas panji. “Kirim bukti sekarang.”
+
+Gema Pengetahuan menampilkan jejak kausal nubuat secara langsung. Beberapa pasukan berhenti bergerak. Sebagian jenderal justru menuduh Kael memalsukan aliran waktu.
+
+Satu panah ditembakkan dari garis manusia.
+
+Tak seorang pun tahu siapa yang melepasnya. Anak panah itu jatuh di dekat pasukan Beastmen.
+
+Teriakan perang meledak.
+
+Kael memakai resonansi untuk menahan perintah serangan agar tidak langsung menyebar, tetapi dia tidak dapat mengendalikan ribuan pikiran tanpa menjadi penguasa yang baru saja ditolaknya.
+
+Zevaron terbang ke atas medan dan melepaskan petir ke langit, bukan kepada pasukan.
+
+“Dengarkan!” suaranya mengguncang dataran. “Tak seorang pun maju sampai penembak ditemukan.”
+
+Beberapa jenderal Celestial mengikuti perintahnya. Itu memberi pasukan lain alasan menunggu.
+
+Mediasi rapuh bertahan satu menit lagi.
+
+Di bawah mereka, struktur Sistem Pahlawan muncul pada Fragmen dan mulai memutar nubuat palsu sebagai suara para leluhur setiap bangsa.
+
+Untuk menghentikan perang, Kael tidak cukup hanya menunjukkan kebohongan.
+
+Dia harus memutus suara yang terus membuat ketakutan terdengar suci.
