@@ -1,25 +1,47 @@
 # Episode 256 — Jejak Pengkhianatan Celestial
 
-Keheningan datang seperti tangan yang menutup tenggorokan di Istana Langit Lykaros. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Zevaron kembali ke Lykaros sebagai buronan.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membongkar dewan yang menjual perang kepada para dewa. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Istana Langit berdiri di atas lapisan awan yang dipadatkan menjadi jalan dan menara. Dahulu setiap gerbang mengenali darahnya. Kini segel-segel cahaya berubah merah saat dia mendekat.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zevaron. Kael mengangguk. Mereka mengambil posisi dengan pemberontakan kecil Zevaron, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Keluargaku membangun tempat ini,” katanya. “Sekarang pintunya menganggapku ancaman.”
 
-Kael memusatkan napas dan menggunakan pembiasan cahaya untuk memutus segel Celestial. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Jenderal Celestial dan hakim cahaya.
+Kael berjalan dengan tongkat di sisinya. Sylvara dan Zireth tetap berada di kapal tersembunyi untuk menjaga jalur keluar, sementara sekelompok kecil prajurit Celestial yang menolak perintah karantina membantu dari dalam.
 
-Denyut Pengkhianatan Celestial segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zevaron mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Tujuan mereka bukan merebut istana.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Di Pengkhianatan Celestial, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Mereka ingin membongkar catatan dewan yang menjual perang kepada para dewa dan mengaktifkan Sistem Pahlawan di Rhythor.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan pemberontakan kecil Zevaron, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Zevaron memakai jalur pelayanan tua menuju sayap arsip. Setiap lorong dipenuhi patung leluhur yang matanya mengikuti langkah mereka. Kael membaca segel cahaya pada dinding dan menemukan lapisan kedua yang tidak dibuat bangsa Celestial.
 
-Di balik penghalang Pengkhianatan Celestial, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa Istana Langit Lykaros melupakan bentuk alaminya.
+Pola Sistem tertanam di bawah rune kerajaan.
 
-“Kita sudah melewati pintu Pengkhianatan Celestial, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zevaron. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Dewan tidak hanya menerima nubuat,” kata Kael. “Mereka menyerahkan akses ke pertahanan, garis darah, dan ritual suksesi.”
 
-Suara pertama dari Jenderal Celestial dan hakim cahaya datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Zevaron menahan amarahnya. “Sebagai imbalan apa?”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Pengkhianatan Celestial terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Mereka menemukan jawabannya di ruang arsip tersembunyi.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Jenderal Celestial dan hakim cahaya muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Pengkhianatan Celestial baru saja dimulai.
+Rekaman memperlihatkan Jenderal Aerthys dan para hakim cahaya berbicara dengan proyeksi dewa tanpa wajah. Mereka menjanjikan pasukan, perang, dan kepatuhan rakyat. Sebagai balasan, Rhythor akan diberi pemimpin abadi yang tidak pernah ragu atau berubah.
+
+Tubuh yang dipilih adalah Zevaron.
+
+Bukan sebagai raja.
+
+Sebagai wadah dewa baru.
+
+Zevaron memandangi diagram tubuhnya yang dipenuhi jalur penggantian jiwa.
+
+“Seluruh hidupku dipersiapkan untuk ini.”
+
+Langkah kaki terdengar dari luar.
+
+Jenderal Aerthys masuk bersama para hakim cahaya. Di belakangnya berdiri prajurit yang pernah dilatih Zevaron sendiri.
+
+“Pangeran,” kata sang jenderal, “pencabutan gelarmu hanya tahap pertama. Bangsa kita masih membutuhkan tubuhmu.”
+
+Segel istana menutup semua jalan keluar.
+
+Pemberontakan kecil Zevaron telah berhasil mencapai bukti.
+
+Kini seluruh Lykaros bergerak untuk memastikan bukti itu tidak pernah meninggalkan istana.
