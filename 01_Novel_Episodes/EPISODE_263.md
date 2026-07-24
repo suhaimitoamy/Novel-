@@ -1,25 +1,57 @@
 # Episode 263 — Benturan Vanguard Beastmen
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di Meat Forest Garundrax. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Tubuh Kharvok berubah di depan mereka.
 
-Serangan Ritual Bulan Darah dan panglima pemburu datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Tulang bahunya membesar, taring memanjang, dan serat merah dari Hutan Daging masuk melalui celah zirah. Kapaknya menyatu dengan lengan, menjadikan panglima pusat hidup bagi Ritual Bulan Darah.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan pemimpin muda Beastmen dan panah penenang Sylvara, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Setiap denyut jantungnya memaksa ribuan Beastmen bergerak lebih cepat menuju dataran Fragmen.
 
-Kael menerapkan pembatalan frekuensi pada hormon perang. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Raska menyerang lebih dahulu. Dia tidak membidik leher atau dada, melainkan tanda ritual pada dahi panglima. Kharvok menangkis dan melemparkannya ke dinding.
 
-“Sekarang, Kael! Simpul Vanguard Beastmen ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sylvara menembakkan tiga panah penenang ke sambungan otot yang membesar. Racunnya bekerja sesaat sebelum pulsa hutan membakarnya keluar.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Meat Forest Garundrax sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Zireth memetakan frekuensi hormon perang. “Pusatnya tidak hanya di Kharvok. Seluruh hutan menjadi penguat.”
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Vanguard Beastmen, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael menggunakan pembatalan frekuensi. Gelombang merah dan biru menyentuh pulsa hutan dengan fase berlawanan, mengurangi dorongan pada pasukan tanpa menghapus naluri alaminya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Vanguard Beastmen tetap memiliki batas yang tak boleh dilanggar.
+Kharvok meraung.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan pemimpin muda Beastmen dan panah penenang Sylvara untuk menghantam pusat kendali yang baru terlihat.
+Akar, dinding daging, dan tanah bergerak menjadi anggota tubuh baru. Gua menutup jalur keluar dan menyerang semua orang yang tidak mengikuti irama ritual.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: naluri mereka dipaksa oleh pulsa dari Fragmen Garundrax. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael tidak lagi memiliki entropi untuk memotong seluruh hutan. Dia harus menemukan titik yang membuat pulsa buatan menumpang pada jantung alami Garundrax.
 
-Kael merasakan kemenangan kecil atas lapisan luar Vanguard Beastmen, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Meat Forest Garundrax menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Raska bangkit dengan wajah berlumur darah.
 
-“Kita membangunkan pusat Vanguard Beastmen,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Ritual Bulan Darah dan panglima pemburu mulai bergerak dari kedalaman.
+“Nyanyian kawanan,” katanya. “Sebelum ritual perang, kami menyatukan napas saat berburu. Kharvok mengubahnya menjadi perintah.”
+
+Dia mulai mengeluarkan nada rendah dari tenggorokan. Beastmen pemburu yang sempat memperoleh kendali ikut menyahut dari lorong lain.
+
+Irama tersebut tidak memaksa. Setiap suara boleh masuk atau berhenti sendiri.
+
+Kael menyelaraskan pembatalan pada nyanyian kawanan. Sylvara menembakkan panah sesuai ketukan Raska. Zireth memisahkan lapisan Sistem dari jaringan biologis hutan.
+
+Kharvok menyerang Kael, tetapi gerakannya terlambat ketika sebagian pasukan memilih mengikuti nyanyian lama.
+
+Tongkat Eira menyentuh dada panglima.
+
+Kael tidak menghentikan jantungnya. Dia menempatkan simpul nol pada hubungan antara detak Kharvok dan perintah ritual.
+
+Satu denyut lewat tanpa memaksa siapa pun.
+
+Lalu denyut kedua.
+
+Mata merah para Beastmen mulai jernih.
+
+Sistem meningkatkan daya dan mencoba memakai Fragmen Garundrax secara langsung. Seluruh hutan menggeliat, mengangkat altar Bulan Darah dari kedalaman.
+
+Kharvok jatuh pada satu lutut. Kesadarannya kembali cukup lama untuk menunjuk pusat altar.
+
+“Hancurkan benda itu.”
+
+Kael menggeleng. “Fragmennya ada di dalam. Kita pisahkan ritualnya.”
+
+Panglima tertawa getir. “Jalan sulit lagi.”
+
+“Sudah menjadi kebiasaan buruk.”
+
+Mereka bergerak menuju altar bersama, sementara hutan yang dipaksa berperang mencoba menelan anak-anaknya sendiri.
