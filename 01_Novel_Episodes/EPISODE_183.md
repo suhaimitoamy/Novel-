@@ -1,25 +1,47 @@
 # Episode 183 — Benturan Abu Antimateri
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di kota perbatasan Valerium. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Manifestasi Voidmaker menyerang koridor evakuasi.
 
-Serangan manifestasi kecil Voidmaker datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Tubuhnya memanjang menjadi gelombang hitam yang menghapus jalan di bawahnya. Kael membangun perisai Lorentz dan membelokkan partikel bermuatan ke arah kosong di luar kota.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan panah medan Sylvara dan evakuasi Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Benturan membuat detak dingin di dadanya semakin kuat.
 
-Kael menerapkan perisai Lorentz untuk membelokkan partikel bermuatan. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sylvara menembakkan panah medan ke bangunan yang masih dihuni. Zireth mengarahkan warga melalui jalur sempit sambil mengoperasikan drone evakuasi.
 
-“Sekarang, Kael! Simpul Abu Antimateri ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Kael, pusat geometrinya muncul saat ia berubah bentuk,” teriak Zireth.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh kota perbatasan Valerium sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael menunggu.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Abu Antimateri, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Manifestasi menyerang lagi, kali ini memakai sosok keluarga yang telah dihapus sebagai umpan. Wajah-wajah mereka muncul pada permukaan gelap dan memohon pertolongan.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Abu Antimateri tetap memiliki batas yang tak boleh dilanggar.
+Kael tidak menebas.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan panah medan Sylvara dan evakuasi Zireth untuk menghantam pusat kendali yang baru terlihat.
+Dia mengikuti jejak emosional melalui Gema Pengetahuan dan memisahkan gambaran korban dari tubuh antimateri. Sylvara menahan nama-nama mereka dalam cahaya agar tidak ikut terhapus.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: korban annihilation ikut hilang dari ingatan orang terdekat. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Pusat geometris terbuka.
 
-Kael merasakan kemenangan kecil atas lapisan luar Abu Antimateri, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh kota perbatasan Valerium menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael mengirim Pulse tiga warna dalam amplitudo sangat rendah. Merah memisahkan pola Sang Arsitek. Biru menjaga jejak korban tetap terhubung. Ungu mengurai koordinat yang mengikat manifestasi pada kota.
 
-“Kita membangunkan pusat Abu Antimateri,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama manifestasi kecil Voidmaker mulai bergerak dari kedalaman.
+Makhluk itu pecah menjadi abu.
+
+Namun abunya berpindah ke dinding, jalan, dan bangunan. Seluruh Valerium berubah menjadi tubuh baru bagi manifestasi.
+
+Pintu-pintu menjadi rahang. Jendela berubah menjadi mata kosong. Jalan berusaha menelan warga yang belum keluar.
+
+Kael dapat menghapus seluruh blok dengan entropi penuh, tetapi ratusan orang masih berada di dalamnya.
+
+Dia memilih sasaran terkecil.
+
+Sylvara menandai simpul medan satu demi satu. Zireth menghitung jalur evakuasi dan waktu runtuh. Kael memutus koneksi antara simpul tanpa menyentuh struktur yang menopang warga.
+
+Setiap pemutusan mengirim rasa dingin ke jantungnya.
+
+Manifestasi kehilangan wilayah sedikit demi sedikit.
+
+Ketika pusat terakhir terlihat di bawah alun-alun, Kael berdiri di hadapannya dengan napas berat.
+
+Di balik pola Sang Arsitek, suara Voidmaker yang asli mulai terbentuk.
+
+Bukan kata.
+
+Sebuah rasa lapar yang mengenali Kael sebagai suar utama.
