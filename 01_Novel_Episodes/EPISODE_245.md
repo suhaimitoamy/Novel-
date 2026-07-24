@@ -1,27 +1,57 @@
 # Episode 245 — Dunia Menunggu Perang
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di inti arsip Neraka Zerath. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael dan Sylvara keluar dari Gerbang Neraka ke tengah benteng The Core yang porak-poranda.
 
-Semua jalan di inti arsip Neraka Zerath berakhir pada satu pusat. Di sanalah protokol penghapus Neraka menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat membawa bukti eksperimen para dewa kembali ke dunia mustahil dilakukan.
+Zireth menunggu di sisi luar bersama Zevaron dan Sosok Berhelm. Wajah mereka menunjukkan bahwa keadaan dunia atas tidak membaik selama perjalanan ke Neraka.
 
-“Kita mencapai pusat Kebenaran Furyborn bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada Gema Pengetahuan dan sisa denyut Eira. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Berapa lama kami pergi?” tanya Kael.
 
-Mereka bergerak serempak. Sekutunya menggunakan Gema Pengetahuan dan sisa denyut Eira untuk memecah lapisan luar, sedangkan Kael menyusupkan kompresi data jiwa ke dalam Gema Pengetahuan ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Dua minggu,” jawab Zireth. “Cukup untuk seluruh kekaisaran mengetahui bahwa dua belas Fragmen menjaga hukum dasar Zerath.”
 
-Kael tidak melawan semua lapisan Kebenaran Furyborn. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Peta dunia terbuka.
 
-Di pusat jaring Kebenaran Furyborn itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Pasukan Aelarion bergerak mengamankan Fragmen yang berada di wilayah Elf. Karag Thürm menutup perbatasan dan mengaktifkan semua forge perang. Rhythor mengumpulkan legiun Celestial di sekitar Gerbang Es. Nyrathis mengangkat armada dari dasar laut. Xyphus memanggil perjanjian gelap untuk menjaga wilayahnya.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di pusat Kebenaran Furyborn, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Semua mengaku ingin melindungi Fragmen.
 
-Protokol penghapus Neraka mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Semua takut pihak lain akan menguasainya lebih dahulu.
 
-Tidak ada ledakan besar. Protokol penghapus Neraka retak dalam keheningan inti arsip Neraka Zerath. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+“Dua belas kekaisaran sedang bergerak menuju perang,” kata Zireth. “Sistem Pahlawan memperburuk keadaan dengan memilih juara baru dan memberi mereka misi merebut jangkar dari bangsa lain.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Kael adalah Furyborn pertama yang lahir di luar rancangan Sistem. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kael menyerahkan Gema Pengetahuan. Bukti eksperimen para dewa, asal Furyborn, fungsi Neraka, dan kelahiran Kael di luar rancangan Sistem tersimpan dalam jaringan terpisah.
 
-Kael memandangi sisa-sisa pusat kendali Kebenaran Furyborn. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Sosok Berhelm memeriksa perubahan Pulse-nya. “Energi entropi ofensif tidak terdeteksi.”
 
-Kael mengira pusat Kebenaran Furyborn akhirnya sunyi. Ia keliru. Di balik sunyi itu, sebuah peristiwa baru bergerak mendekat. Dua belas kekaisaran sudah bergerak menuju perang Fragmen.
+“Aku meninggalkannya di Neraka.”
 
-Mereka keluar dari inti arsip Neraka Zerath dalam diam. Tak ada jaminan bahwa pilihan mereka benar, hanya kepastian bahwa pilihan itu dibuat tanpa rantai.
+Zevaron menatapnya seolah mendengar lelucon buruk. “Kau membuang kemampuan terkuatmu saat dunia bersiap berperang?”
+
+“Aku meninggalkan senjata yang paling mudah membuatku menerima takhta.”
+
+“Pasukan di luar tidak akan menjadi lebih lembut karena keputusan moralmu.”
+
+“Benar. Karena itu kita membutuhkan lebih dari kekuatanku.”
+
+Kael meminta Nexus membuka seluruh bukti kepada para penguasa dan masyarakat, bukan hanya dewan rahasia. Sosok Berhelm menolak pada awalnya. Data tersebut dapat menghancurkan iman, pemerintahan, dan tatanan sosial banyak kekaisaran.
+
+“Menyembunyikannya membawa kita sampai di sini,” kata Sylvara. “Biarkan dunia memutuskan dengan mengetahui harga sebenarnya.”
+
+Transmisi dimulai.
+
+Di seluruh Zerath, layar, kristal, rune, dan pohon ingatan menampilkan kesaksian jiwa-jiwa Furyborn. Nama-nama yang memilih dikenal dibacakan. Kesaksian anonim tetap dilindungi. Catatan para dewa diperlihatkan tanpa penyuntingan Nexus.
+
+Reaksi datang seketika.
+
+Sebagian pasukan menurunkan senjata. Sebagian pemimpin menyebut bukti itu palsu. Beberapa pahlawan terpilih menolak misi Sistem, sedangkan yang lain menganggap Kael telah merusak tatanan suci.
+
+Perang tidak berhenti.
+
+Namun untuk pertama kalinya, kebohongan yang mendasarinya tidak lagi aman dalam kegelapan.
+
+Pada peta, dua belas pasukan terus bergerak menuju Fragmen.
+
+Kael mengambil tongkat Eira dan berdiri dengan tubuh yang semakin terbatas.
+
+Dia tidak lagi memiliki entropi untuk mengakhiri perang melalui satu kehancuran besar.
+
+Dunia harus diselamatkan oleh pilihan banyak orang—atau jatuh bersama kebebasan yang baru mereka peroleh.
