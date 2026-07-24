@@ -1,27 +1,53 @@
 # Episode 214 — Harga yang Dituntut Lembah Neraka
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di wilayah terkutuk di bawah bayangan dunia. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pusat Lembah Neraka berbentuk sumur tanpa dasar.
 
-Mereka telah kehilangan ruang untuk bergerak. Hujan tulang dan tanah yang mengulang jeritan menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Ribuan jalur jiwa masuk dari dinding dan berakhir pada mesin pembersihan di atasnya. Setiap denyut mesin menghapus satu bagian identitas dari para penghuni lembah.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Setiap langkah membuat Kael merasakan kematian orang lain. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Kael berdiri di tepi sumur.
 
-“Kita mundur dari Lembah Neraka. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Eira. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Untuk membebaskan jiwa-jiwa tersebut, dia harus menyelaraskan resonansinya dengan seluruh jaringan kematian. Tidak ada cara memilih hanya bagian yang nyaman.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan pengetahuan Eira tentang para Furyborn. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Eira menahan bahunya. “Kalau kau masuk terlalu dalam, kau tidak akan tahu kematian mana yang milikmu.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan resonansi jiwa pada gema kematian untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Kalau tidak, mesin menghapus semuanya.”
 
-Hujan tulang dan tanah yang mengulang jeritan bereaksi liar di pusat Lembah Neraka. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Eira berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kael menurunkan Frekuensi Penyangkal ke dalam sumur.
 
-Kael menemukan benang kendali milik hujan tulang dan tanah yang mengulang jeritan. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh wilayah terkutuk di bawah bayangan dunia.
+Jeritan masuk sekaligus.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Lembah Neraka akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Tubuhnya mengalami kematian demi kematian tanpa benar-benar mati. Paru-parunya terasa terisi air. Kulitnya terbakar. Tulangnya remuk. Jantungnya berhenti lalu kembali berdetak karena jiwa berikutnya mengambil tempat.
 
-“Tidak,” kata Kael di hadapan Lembah Neraka, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Setiap langkah menuju pusat mesin membawa akhir hidup orang lain.
 
-Serangan mereka melalui pengetahuan Eira tentang para Furyborn tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Eira; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Kael mulai kehilangan batas antara belas kasih dan tenggelam dalam penderitaan. Ragnarok Pulse menawarkan entropi penuh—satu ledakan untuk menghapus mesin, sumur, dan semua rasa sakit di dalamnya.
 
-Saat debu Lembah Neraka turun, mereka sadar kemenangan kecil itu menuntut harga permanen: setiap langkah membuat Kael merasakan kematian orang lain. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Dia menolak.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Lembah Neraka terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Eira memanggil nama-nama Furyborn dari atas. Para roh yang masih sadar ikut menyebut nama, keluarga, dan pilihan terakhir mereka. Suara tersebut memberi Kael titik-titik untuk berpijak di antara lautan kematian.
+
+Dia menemukan simpul perintah pembersihan.
+
+Bukan benang Sang Arsitek, melainkan hukum yang ditanam para dewa: segala jiwa yang tidak dapat dipakai Sistem dianggap limbah dan harus dilenyapkan.
+
+Kael memisahkan hukum itu dari mesin penyimpanan tanpa merusak jalur jiwa.
+
+Simpul mulai retak.
+
+Mesin membalas dengan mengirim seluruh kematian lembah langsung ke tubuhnya. Kael jatuh pada satu lutut, merasakan ribuan akhir dalam satu detik.
+
+Eira turun ke dalam sumur dan mengikatkan rantai rune pada dirinya.
+
+“Aku tidak punya Fury lagi,” katanya. “Tapi aku masih punya nama dan tubuh. Pakai keduanya untuk kembali.”
+
+Kael mengikuti resonansinya.
+
+Mereka memutus perintah pembersihan.
+
+Mesin berhenti.
+
+Namun gema kematian tidak meninggalkan Kael. Mulai saat itu, setiap tanah yang menyimpan korban akan berbicara kepadanya saat disentuh.
+
+Dia telah membebaskan Lembah Neraka dari penghapusan.
+
+Harga yang dibawa keluar adalah kemampuan merasakan akhir hidup orang lain pada setiap langkah di tanah yang terluka.
