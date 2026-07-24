@@ -1,25 +1,55 @@
 # Episode 276 — Jejak Titik Nol
 
-Udara bergetar sebelum suara apa pun sempat lahir di singularitas di pusat Dataran Terbelah. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Zona Nol tidak lagi memiliki arah bawah.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menyatukan kekaisaran untuk menutup keruntuhan massa. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Kael, Sylvara, dan Zireth berdiri pada pecahan tanah yang mengambang di atas Dataran Terbelah. Di sekeliling mereka, batu, senjata, dan mayat perang berputar mengitari titik hitam yang terbentuk setelah medan cermin runtuh.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zevaron. Kael mengangguk. Mereka mengambil posisi dengan seluruh komandan yang semula bermusuhan, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Setiap beberapa detik, gravitasi berubah. Langit menarik mereka ke atas, lalu tanah kembali merebut tubuh mereka dengan kekuatan berlipat.
 
-Kael memusatkan napas dan menggunakan sinkronisasi dua belas jangkar massa. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik gravitasi ekstrem dan sisa Shadow Double.
+Zireth menancapkan lengan bintangnya ke batu. “Singularitas ini memakan jangkar massa di bawah dua belas wilayah.”
 
-Denyut Titik Nol segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zevaron mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Berapa lama?” tanya Sylvara.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di Titik Nol, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Tidak cukup untuk berdebat seperti kerajaan.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan seluruh komandan yang semula bermusuhan, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael merasakan dua belas denyut di balik pusaran. Fragmen-fragmen yang selama ini diperebutkan kekaisaran sedang ditarik menuju satu pusat. Bila salah satunya tercabut lebih dulu, keseimbangan massa Zerath akan runtuh berantai.
 
-Di balik penghalang Titik Nol, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa singularitas di pusat Dataran Terbelah melupakan bentuk alaminya.
+Zevaron datang bersama para komandan dari empat pasukan terdekat. Mereka mendarat pada platform cahaya yang segera retak.
 
-“Kita sudah melewati pintu Titik Nol, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zevaron. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Setiap kekaisaran menolak menghubungkan Fragmennya,” katanya. “Mereka mengira pihak lain akan mengambil kendali.”
 
-Suara pertama dari gravitasi ekstrem dan sisa Shadow Double datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Kael menatap pusaran yang terus membesar. “Kalau mereka mempertahankan klaimnya, tidak akan ada wilayah untuk dikuasai.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Titik Nol terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Salah satu komandan manusia mengangkat pedang. “Kau meminta kami menyerahkan pertahanan inti kepada musuh.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama gravitasi ekstrem dan sisa Shadow Double muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Titik Nol baru saja dimulai.
+“Tidak.” Kael menunjuk ke singularitas. “Aku meminta kalian berhenti menganggap pasak dunia sebagai milik kerajaan.”
+
+Tekanan mendadak berubah. Sebuah pecahan benteng terlepas dari orbit dan meluncur ke arah mereka. Kael membuka telapak tangan, tetapi tanpa Zerath's Fang aliran Pulse-nya tidak memiliki jalur yang biasa digunakan.
+
+Dia memakai tongkat Eira untuk membelokkan gravitasi beberapa derajat. Pecahan benteng lewat di atas kepala mereka dan menabrak batu lain.
+
+Recoil menghantam pinggang Kael. Kakinya hampir lepas dari pijakan.
+
+Zevaron menangkap lengannya. “Kau tak bisa menjadi jangkar bagi semuanya.”
+
+“Karena itu kita butuh dua belas.”
+
+Kael memetakan tarikan singularitas. Di balik kekacauan, dia menemukan pola: sisa Kembaran Bayangan bergerak dari satu jangkar ke jangkar lain, memperbesar perbedaan massa agar setiap Fragmen menarik diri sendiri.
+
+Ia tidak sedang mencoba menghancurkan Zerath secara langsung.
+
+Ia membuat setiap kerajaan menyelamatkan wilayahnya sendiri sampai seluruh dunia pecah.
+
+Sylvara memandang para komandan. “Pilih sekarang. Hubungkan pasukan kalian, atau pulang dan tunggu tanah kalian jatuh ke langit.”
+
+Tak seorang pun menjawab.
+
+Lalu satu menara di kejauhan terangkat dari fondasinya bersama ribuan orang yang masih berada di dalamnya.
+
+Komandan pertama menurunkan pedang.
+
+“Beri tahu kami apa yang harus dilakukan.”
+
+Kael menatap dua belas denyut yang tak pernah mau bergerak sebagai satu tubuh.
+
+“Bukan perintah dariku,” katanya. “Kalian harus memilih saling memegang.”

@@ -1,25 +1,65 @@
 # Episode 277 — Suara dari Titik Nol
 
-Debu bergerak melawan arah angin di singularitas di pusat Dataran Terbelah. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Dua belas jalur komunikasi dibuka, tetapi tidak ada satu pun yang percaya pada jalur lainnya.
 
-Sejak benturan sebelumnya, pola gravitasi ekstrem dan sisa Shadow Double terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menyatukan kekaisaran untuk menutup keruntuhan massa, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Suara raja, pendeta, jenderal, dan penjaga Fragmen saling menimpa di lengan bintang Zireth. Masing-masing menuntut jaminan bahwa wilayahnya tidak akan kehilangan kendali setelah sinkronisasi.
 
-“Ada lapisan lain di bawah Titik Nol. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zevaron. Kael memandangi garis-garis pada permukaan. Ia tahu Zevaron benar. Kekuatan mentah hanya akan mempercepat bencana.
+Zireth mematikan suara mereka sekaligus.
 
-Ia mengalirkan sinkronisasi dua belas jangkar massa melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Jaminan kalian adalah gravitasi masih bekerja besok pagi.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan seluruh komandan yang semula bermusuhan. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Keheningan singkat terasa lebih berguna daripada seluruh sidang.
 
-Kael menyentuh rekaman Titik Nol. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Kael berlutut di tepi pecahan tanah. Dia menempelkan tangan kanan pada permukaan dan mengirim denyut rendah menuju dua belas jangkar massa. Gema kembali dalam waktu berbeda. Sebagian Fragmen menahan gunung, sebagian mengikat lautan, dan sebagian menjaga lapisan atmosfer agar tidak terlepas.
 
-Ia memutus kontak dengan rekaman Titik Nol sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Selama ini kerajaan mengira Fragmen adalah sumber kekuatan wilayah mereka.
 
-“Ini bukan hanya jejak serangan di Titik Nol,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zevaron. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Mereka salah.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Gravitasi ekstrem dan sisa Shadow Double telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Fragmen adalah alasan wilayah itu masih mempunyai berat.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—hanya kerja sama dua belas Fragmen dapat menahan keruntuhan.
+Kael membuka peta resonansi. Dua belas garis muncul di udara, tetapi masing-masing berhenti sebelum menyentuh garis lain.
 
-“Kalau petunjuk tentang Titik Nol ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zevaron. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+“Sistem sengaja membuatnya tampak terpisah,” katanya. “Supaya setiap kekaisaran merasa menjadi pemilik tunggal.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan gravitasi ekstrem dan sisa Shadow Double berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Zevaron mengamati pola tersebut. “Padahal semuanya satu jaringan.”
+
+“Jaringan yang dipotong menjadi dua belas klaim.”
+
+Sisa Kembaran Bayangan muncul di pusat pusaran, tidak lagi memiliki tubuh utuh. Ia menyerupai bayangan Kael yang dibentuk dari serpihan gravitasi.
+
+“Kalian akan gagal,” suaranya terdengar melalui setiap kanal. “Kerja sama hanya bertahan sampai rasa takut menemukan keuntungan.”
+
+Salah satu raja langsung memutus jalur.
+
+Singularitas membesar.
+
+Sebuah kota di sisi timur kehilangan berat. Bangunan, manusia, dan tanah terangkat menjadi aliran panjang menuju langit.
+
+Kael menahan napas. Dia dapat memaksa kanal itu terbuka dengan Pulse, tetapi tindakan tersebut akan membuktikan perkataan Kembaran: dunia hanya bersatu ketika satu kehendak menguasainya.
+
+Dia tidak melakukannya.
+
+Sebaliknya, Kael membuka kanal publik dan memperlihatkan peta tanpa menyembunyikan apa pun. Semua kerajaan dapat melihat letak Fragmen, kelemahan wilayah, dan jumlah waktu yang tersisa.
+
+“Mulai sekarang tidak ada rahasia eksklusif,” katanya. “Siapa pun yang menutup jalur akan terlihat oleh seluruh Zerath.”
+
+Para penguasa marah. Para penjaga lapangan tidak menunggu izin.
+
+Satu per satu, komandan di Dataran Terbelah menghubungkan pasukan mereka. Dwarf membuka data jangkar batu. Celestial membagikan matriks atmosfer. Beastmen menyerahkan pola massa hutan hidup. Manusia memperlihatkan jaringan kota yang bergantung pada leyline.
+
+Garis pertama menyentuh garis kedua.
+
+Gravitasi di sekitar Kael stabil selama satu detik.
+
+Kemudian garis ketiga bergabung.
+
+Kebenaran yang selama ini disembunyikan menjadi jelas: tidak ada Fragmen yang mampu mempertahankan dunia sendirian. Setiap jangkar menanggung bagian hukum fisika yang hanya lengkap ketika dua belasnya bekerja bersama.
+
+Kembaran Bayangan menjerit melalui pusaran.
+
+“Ketergantungan adalah kelemahan.”
+
+Kael berdiri dengan tongkat Eira. “Hanya bagi seseorang yang ingin menjadi satu-satunya pusat.”
+
+Dua belas garis belum menyatu sepenuhnya, tetapi untuk pertama kalinya mereka bergerak menuju titik yang sama.

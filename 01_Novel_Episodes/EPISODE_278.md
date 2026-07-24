@@ -1,25 +1,65 @@
 # Episode 278 — Benturan Titik Nol
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di singularitas di pusat Dataran Terbelah. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sinkronisasi mencapai enam Fragmen ketika sisa Kembaran menyerang.
 
-Serangan gravitasi ekstrem dan sisa Shadow Double datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Gravitasi membalik tanpa peringatan. Para komandan terlempar dari pijakan, lalu jatuh ke arah singularitas yang menggantung di langit. Zevaron membuka satu sayapnya yang tersisa dan menahan tiga orang dengan medan cahaya.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan seluruh komandan yang semula bermusuhan, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael menancapkan tongkat Eira. Kayu tua itu melengkung, tetapi tetap menahan tubuhnya.
 
-Kael menerapkan sinkronisasi dua belas jangkar massa. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Jangkar ketujuh putus!” teriak Zireth.
 
-“Sekarang, Kael! Simpul Titik Nol ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael menemukan jalurnya. Sisa Kembaran bergerak di dalam jaringan seperti penyakit, meniru tanda resonansi Kael untuk membuat setiap Fragmen menganggap yang lain sebagai ancaman.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh singularitas di pusat Dataran Terbelah sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Dia tidak dapat membersihkannya dengan pola lama. Kembaran mengetahui semuanya.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Dalam benturan Titik Nol, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael memandang para komandan yang semula datang sebagai musuh. “Ubah urutan sesuka kalian. Jangan tunggu aba-aba.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Titik Nol tetap memiliki batas yang tak boleh dilanggar.
+“Tanpa urutan, jaringan bisa bentrok,” kata seorang pendeta.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan seluruh komandan yang semula bermusuhan untuk menghantam pusat kendali yang baru terlihat.
+“Urutan tetap akan dibaca.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: hanya kerja sama dua belas Fragmen dapat menahan keruntuhan. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Mereka memilih risiko yang tidak dapat diprediksi.
 
-Kael merasakan kemenangan kecil atas lapisan luar Titik Nol, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh singularitas di pusat Dataran Terbelah menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Dwarf mengirim massa lebih dulu. Beastmen menahan tarikan dengan akar hidup. Celestial menurunkan tekanan atmosfer, sementara pasukan manusia membuka leyline kota sebagai saluran sementara.
 
-“Kita membangunkan pusat Titik Nol,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama gravitasi ekstrem dan sisa Shadow Double mulai bergerak dari kedalaman.
+Tidak ada satu pusat yang mengatur semuanya.
+
+Kembaran terlambat menyesuaikan diri.
+
+Kael memasukkan Frekuensi Penyangkal ke celah tersebut. Dia tidak menyerang bayangan, melainkan memutus haknya memakai tanda resonansi Kael.
+
+Sisa Kembaran membentuk tubuh di depan singularitas. Wajahnya retak, tetapi senyumnya masih sama.
+
+“Kau mengganti kepastian dengan kekacauan.”
+
+“Aku mengganti kepatuhan dengan keputusan.”
+
+Bayangan mengangkat tangan. Seluruh massa Dataran Terbelah menekan Kael dari dua arah. Tulangnya berderak. Recoil dari teknik sebelumnya membuat tangan kanannya gemetar.
+
+Sylvara melompat dari pecahan batu dan menembakkan panah ke jalur gravitasi, bukan ke tubuh lawan. Anak panah berputar mengikuti medan, menandai kurva yang tak terlihat.
+
+“Di sana!”
+
+Kael mengikuti lintasan panah dan menemukan pusat palsu tempat Kembaran mengalihkan massa. Dia menggeser fase sinkronisasi dua belas jangkar tepat ketika jalur itu terbuka.
+
+Enam Fragmen yang sudah terhubung menarik enam lainnya.
+
+Pusaran tersentak.
+
+Sisa Kembaran kehilangan kaki, lalu separuh tubuh. Namun sebelum menghilang, ia memindahkan seluruh tekanan ke satu komandan Celestial.
+
+Zevaron mendorong orang itu keluar dan menerima benturan pada sayap yang tersisa. Cahaya pecah. Tubuhnya jatuh, tetapi Sylvara menangkap tali zirahnya.
+
+Kael dapat mengejar Kembaran atau menahan jaringan.
+
+Dia memilih jaringan.
+
+Bayangan melarikan diri lebih dalam ke singularitas.
+
+Pilihan itu memberi waktu bagi dua belas Fragmen untuk mencapai resonansi yang sama. Gravitasi berhenti berubah arah. Kota-kota yang melayang tertahan di udara sebelum tersedot lebih jauh.
+
+Namun sinkronisasi belum stabil.
+
+Di pusat peta muncul satu syarat yang tidak dapat dipenuhi dengan kekuatan: setiap kerajaan harus melepaskan kunci eksklusif atas Fragmennya.
+
+Tanpa itu, jaringan akan pecah lagi dalam beberapa menit.

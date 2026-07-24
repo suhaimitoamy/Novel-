@@ -1,27 +1,73 @@
 # Episode 279 — Harga yang Dituntut Titik Nol
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di singularitas di pusat Dataran Terbelah. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pesan itu muncul pada seluruh kanal dalam bahasa masing-masing kerajaan.
 
-Mereka telah kehilangan ruang untuk bergerak. Gravitasi ekstrem dan sisa Shadow Double menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+**Lepaskan kepemilikan tunggal.**
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Setiap kekaisaran harus melepaskan klaim eksklusifnya. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Tak ada penguasa yang menjawab.
 
-“Kita mundur dari Titik Nol. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zevaron. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Dua belas Fragmen telah selaras, tetapi setiap jangkar masih dikunci oleh segel kerajaan. Mereka bekerja bersama hanya sejauh kepentingan pemiliknya mengizinkan. Singularitas memanfaatkan batas itu dan mulai menarik jaringan dari sela-selanya.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan seluruh komandan yang semula bermusuhan. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Kael menahan aliran dengan tubuhnya. Tekanan membuat darah merembes dari gusi. Tanpa Zerath's Fang, setiap perubahan fase harus melewati saraf yang telah rusak.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan sinkronisasi dua belas jangkar massa untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Berapa lama kau bisa bertahan?” tanya Zevaron.
 
-Gravitasi ekstrem dan sisa Shadow Double bereaksi liar di pusat Titik Nol. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zevaron berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Tidak cukup lama untuk menunggu mereka merasa mulia.”
 
-Kael menemukan benang kendali milik gravitasi ekstrem dan sisa Shadow Double. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh singularitas di pusat Dataran Terbelah.
+Kael membuka kanal menuju dua belas takhta. Wajah para penguasa muncul sebagai proyeksi yang berkedip.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Titik Nol akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+“Segel kalian harus dihapus.”
 
-“Tidak,” kata Kael di hadapan Titik Nol, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Seorang raja manusia menolak lebih dulu. “Itu sama dengan menyerahkan inti pertahanan kepada semua bangsa.”
 
-Serangan mereka melalui seluruh komandan yang semula bermusuhan tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zevaron; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+“Benar.”
 
-Saat debu Titik Nol turun, mereka sadar kemenangan kecil itu menuntut harga permanen: setiap kekaisaran harus melepaskan klaim eksklusifnya. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Jawaban langsung itu membuat ruangan virtual sunyi.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Titik Nol terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Pendeta Celestial menyipitkan mata. “Setelah krisis selesai, siapa yang menjamin Fragmen kami tidak digunakan melawan kami?”
+
+“Tidak ada.”
+
+Sylvara menatap Kael, tetapi tidak memotong.
+
+Kael melanjutkan, “Kalian meminta jaminan dari dunia yang sedang pecah karena semua pihak menuntut kendali sendiri. Tidak ada cara mempertahankan Zerath tanpa menerima bahwa bangsa lain juga memegang nasib kalian.”
+
+Singularitas menarik lebih keras. Salah satu kota yang melayang mulai terbelah. Teriakan warga masuk melalui kanal publik.
+
+Penguasa Beastmen melepas segelnya lebih dulu.
+
+Satu garis pada peta berubah dari merah menjadi putih.
+
+Dwarf menyusul setelah melihat fondasi gunungnya retak. Lalu dua kerajaan manusia membuka kunci hampir bersamaan.
+
+Celestial bertahan paling lama.
+
+Zevaron berdiri di depan proyeksi dewannya dengan sayap rusak. “Kalian memotong sayapku karena aku menolak menjadi wadah. Jangan paksa rakyat membayar ketakutan yang sama.”
+
+Dewan tetap diam.
+
+Zevaron mengangkat tangannya dan menyerahkan kode darahnya sendiri. Sebagai pewaris sah, dia mampu mencabut kunci tanpa persetujuan penuh.
+
+Segel Celestial padam.
+
+Tindakan itu menjadikannya pengkhianat permanen bagi takhtanya.
+
+Satu demi satu, segel terakhir dilepas. Peta dua belas Fragmen berubah menjadi jaringan terbuka. Tidak ada satu kerajaan pun yang lagi mampu memerintah jangkar sendirian.
+
+Kembaran Bayangan muncul di pusat pusaran dan mencoba merebut jaringan yang kini tak bertuan.
+
+Ia gagal.
+
+Jaringan itu bukan tanpa pemilik. Ia dimiliki bersama, sehingga tidak menyediakan satu takhta yang dapat direbut.
+
+Kael menurunkan amplitudo Pulse. Para komandan mengambil alih beban sedikit demi sedikit. Untuk pertama kalinya sejak singularitas terbentuk, dia tidak menjadi pusat penahan.
+
+Gravitasi mulai kembali ke arah alami.
+
+Namun harga keputusan tersebut langsung terlihat. Peta rahasia, benteng, dan kelemahan setiap wilayah kini terbuka bagi bangsa lain. Kepercayaan belum lahir; hanya ketergantungan yang tak dapat dibatalkan.
+
+Kael memandang dua belas garis putih.
+
+Mereka berhasil mempertahankan dunia.
+
+Sekarang mereka harus belajar hidup tanpa hak eksklusif untuk mengancamnya.

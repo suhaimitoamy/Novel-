@@ -1,27 +1,67 @@
 # Episode 280 — Dunia Pecah Menjadi Banyak
 
-Keheningan datang seperti tangan yang menutup tenggorokan di singularitas di pusat Dataran Terbelah. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Dengan segel terakhir terlepas, dua belas Fragmen menarik singularitas dari semua arah.
 
-Semua jalan di singularitas di pusat Dataran Terbelah berakhir pada satu pusat. Di sanalah gravitasi ekstrem dan sisa Shadow Double menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menyatukan kekaisaran untuk menutup keruntuhan massa mustahil dilakukan.
+Kael berdiri di pusat Dataran Terbelah bersama Zevaron dan para komandan. Tidak ada formasi yang pernah dirancang untuk keadaan tersebut. Setiap bangsa mengirim sebagian daya, menerima sebagian beban, lalu menyesuaikan diri ketika jaringan berubah.
 
-“Kita mencapai pusat Titik Nol bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zevaron. Kael menatap Zevaron, lalu pada seluruh komandan yang semula bermusuhan. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Sisa Kembaran Bayangan terperangkap di tengah pusaran.
 
-Mereka bergerak serempak. Sekutunya menggunakan seluruh komandan yang semula bermusuhan untuk memecah lapisan luar, sedangkan Kael menyusupkan sinkronisasi dua belas jangkar massa ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Kalian menyebut ini kebebasan?” katanya. “Dua belas kehendak akan saling mengkhianati.”
 
-Kael tidak melawan semua lapisan Titik Nol. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Mungkin,” jawab Kael. “Tetapi pengkhianatan mereka juga harus melewati sebelas kehendak lain.”
 
-Di pusat jaring Titik Nol itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Zireth mengaktifkan pemetaan massa. “Inti singularitas terbuka. Kita hanya punya satu kesempatan.”
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Di pusat Titik Nol, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zevaron tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Kael menyelaraskan denyutnya dengan jaringan, bukan sebagai pemimpin, melainkan sebagai salah satu simpul. Pulse merah mengurangi materi yang berlebih, biru menahan pelepasan energi, dan violet mengurai pola Kembaran dari medan gravitasi.
 
-Gravitasi ekstrem dan sisa Shadow Double mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Dua belas jangkar membalas serempak.
 
-Tidak ada ledakan besar. Gravitasi ekstrem dan sisa Shadow Double retak dalam keheningan singularitas di pusat Dataran Terbelah. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zevaron menahannya sebelum kepalanya membentur tanah.
+Sisa Kembaran mencoba berpindah ke tubuh Kael. Frekuensi Penyangkal menghentikannya pada batas kulit.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: hanya kerja sama dua belas Fragmen dapat menahan keruntuhan. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+“Tanpa aku, semua kemungkinan akan saling menghancurkan.”
 
-Kael memandangi sisa-sisa pusat kendali Titik Nol. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+“Bukan tugasku membuat semuanya aman dari pilihan.”
 
-“Apakah Titik Nol benar-benar berakhir?” tanya Zevaron. Kael mendengarkan gema terakhir sebelum menjawab, “Benturannya berakhir. Akibatnya baru dimulai.” Realitas pecah menjadi dunia-dunia paralel.
+Kael melepaskan denyut terakhir.
 
-Kael meninggalkan medan Titik Nol tanpa menoleh. Pintu di depan belum memiliki nama, tetapi setidaknya arah langkahnya tidak ditentukan nubuat.
+Tubuh bayangan terurai. Tidak ada ledakan. Ia terpecah menjadi kemungkinan-kemungkinan kecil yang diserap kembali oleh Umbral, tanpa satu bentuk yang cukup kuat untuk memerintah yang lain.
+
+Singularitas menyusut.
+
+Kota-kota yang melayang turun perlahan. Gunung kembali memiliki berat. Laut yang sempat naik ke langit jatuh sebagai hujan luas di perbatasan.
+
+Para komandan mulai bersorak, tetapi suara Zireth memotong mereka.
+
+“Jangan bergerak.”
+
+Pusat Titik Nol belum tertutup. Di tempat singularitas berada, ruang tampak seperti kaca yang dipukul dari sisi lain.
+
+Retakan pertama membuka pemandangan Aranyel yang masih utuh.
+
+Retakan kedua memperlihatkan Zerath di bawah pemerintahan Kembaran.
+
+Yang ketiga menunjukkan dunia tanpa Fragmen. Yang keempat menampilkan langit penuh kapal dari peradaban yang tidak pernah dikenal mereka.
+
+Kael merasakan denyut dari masing-masing celah. Semuanya nyata. Keruntuhan massa telah memaksa kemungkinan paralel menyentuh satu koordinat yang sama.
+
+Sylvara berdiri di sampingnya. “Bisakah kita menutupnya?”
+
+“Bukan dengan menghancurkan pusatnya.”
+
+“Karena?”
+
+“Karena mungkin ada orang hidup di sisi lain.”
+
+Salah satu retakan melebar. Seorang lelaki dengan wajah Kael berdiri di baliknya, jauh lebih tua dan mengenakan zirah yang tidak pernah dibuat di Zerath.
+
+Dia menatap mereka seolah telah menunggu bertahun-tahun.
+
+Kemudian puluhan suara lain masuk melalui celah. Ada yang memanggil Kael sebagai penyelamat. Ada yang menyebutnya pembunuh. Ada yang memohon agar dia tidak membuka pintu.
+
+Jaringan dua belas Fragmen menahan Zerath tetap utuh, tetapi realitas di sekelilingnya telah pecah menjadi banyak dunia.
+
+Kael menggenggam tongkat Eira.
+
+Titik Nol berhasil ditutup sebagai singularitas.
+
+Sebagai gantinya, ia menjadi persimpangan.
