@@ -1,25 +1,55 @@
 # Episode 223 — Benturan Gerbang Arwah
 
-Suhu berubah setiap kali Kael menarik napas di jembatan tulang menuju lapisan terdalam. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Api entropi menyala di bawah jembatan.
 
-Serangan Penjaga Gerbang yang memakai wajah ibu Kael datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Kael melihat dirinya dalam setiap pertempuran besar. Di balik ketakutan dan tanggung jawab, ada satu perasaan lain yang selalu muncul ketika Ragnarok Pulse menghancurkan penghalang: kepuasan.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan kejujuran Sylvara yang menolak menghibur dengan kebohongan, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Dia menikmati saat kekuatannya membuat sesuatu yang tampak mutlak menjadi retak.
 
-Kael menerapkan resonansi emosional tanpa pelepasan energi. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Penjaga Gerbang memakai wajah ibunya dan mengangkat tangan.
 
-“Sekarang, Kael! Simpul Gerbang Arwah ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Akui bahwa sebagian dirimu mencintai kehancuran.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh jembatan tulang menuju lapisan terdalam sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael ingin menyangkal. Sylvara tidak memberinya jalan mudah.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Gerbang Arwah, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Aku pernah melihatmu tersenyum saat lawan yang lebih kuat akhirnya jatuh,” katanya. “Itu tidak membuatmu jahat. Berbohong tentangnya justru membuat bagian itu lebih berbahaya.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Gerbang Arwah tetap memiliki batas yang tak boleh dilanggar.
+Roh-roh korban menyerang kembali. Kali ini mereka memakai wujud bangunan, mesin, dan musuh yang pernah Kael hancurkan. Setiap benturan memberi Ragnarok Pulse alasan untuk melepaskan entropi penuh.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan kejujuran Sylvara yang menolak menghibur dengan kebohongan untuk menghantam pusat kendali yang baru terlihat.
+Kael menahan diri sampai rasa sakit hampir membuatnya pingsan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Gerbang tidak menguji kekuatan, melainkan alasan untuk tetap hidup. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Lalu dia berhenti berpura-pura.
 
-Kael merasakan kemenangan kecil atas lapisan luar Gerbang Arwah, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh jembatan tulang menuju lapisan terdalam menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+“Ya.”
 
-“Kita membangunkan pusat Gerbang Arwah,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Penjaga Gerbang yang memakai wajah ibu Kael mulai bergerak dari kedalaman.
+Satu kata tersebut mengguncang jembatan.
+
+“Aku menikmati kehancuran. Aku menikmati ketika sesuatu yang menindas dapat kuhancurkan dengan tanganku.”
+
+Api entropi membesar.
+
+“Tapi rasa itu bukan penguasa pilihanku.”
+
+Kael tidak memadamkan api. Dia menempatkannya bersama resonansi dan keseimbangan, mengakui bahwa Jalan Keempat juga membawa naluri destruktif yang harus diawasi.
+
+Penjaga menyerang dengan wajah sang ibu yang menangis.
+
+“Kau akan menghancurkan orang-orang yang kau cintai.”
+
+“Mungkin aku mampu.” Kael berdiri dengan tongkat. “Karena itu aku tidak akan berjalan sendiri atau menyembunyikan bagian ini dari mereka.”
+
+Sylvara menembakkan panah melewati bahunya dan memecahkan satu lapisan ilusi.
+
+“Akhirnya jawaban yang tidak membuatku ingin menamparmu.”
+
+Mereka bertarung bersama di atas jembatan. Kael menggunakan resonansi emosional untuk memisahkan suara korban dari kekuatan Penjaga yang memakainya. Sylvara menahan wajah-wajah palsu dengan Gema Pengetahuan. Eira menjaga belakang dan memanggil para roh Furyborn yang telah memilih tetap bebas.
+
+Setiap korban yang mendapatkan kembali suaranya berhenti menjadi senjata Gerbang.
+
+Penjaga kehilangan banyak tubuh pinjaman.
+
+Di bawah wajah sang ibu, bentuk aslinya mulai terlihat: mesin pengadilan yang dibangun untuk memastikan hanya jiwa patuh yang boleh keluar dari Neraka.
+
+Pengujian alasan hidup hanyalah fungsi awal.
+
+Para dewa kemudian mengubahnya menjadi alat untuk menjaga kebenaran tetap terkubur.
