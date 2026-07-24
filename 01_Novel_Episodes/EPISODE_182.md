@@ -1,25 +1,49 @@
 # Episode 182 — Suara dari Abu Antimateri
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di kota perbatasan Valerium. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Manifestasi Voidmaker berdiri di tengah jalan yang terus menghilang.
 
-Sejak benturan sebelumnya, pola manifestasi kecil Voidmaker terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menyelamatkan warga tanpa menyentuhkan materi pada abu, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Ia tidak berbicara dengan suara. Tekanan di udara berubah, dan pikiran Kael dipenuhi gambaran ruang kosong tempat kota seharusnya berada.
 
-“Ada lapisan lain di bawah Abu Antimateri. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sylvara menjaga koridor evakuasi. Panah medannya membelokkan abu tanpa menyentuh partikel secara langsung. Zireth mencari pola pada tubuh makhluk menggunakan sensor lengan bintang.
 
-Ia mengalirkan perisai Lorentz untuk membelokkan partikel bermuatan melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Tidak ada inti,” katanya. “Ia hanya simpul kepadatan antimateri yang meniru bentuk manusia.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan panah medan Sylvara dan evakuasi Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Kael menahan residu dingin dalam dadanya. Setiap denyut menarik manifestasi semakin dekat.
 
-Kael menyentuh rekaman Abu Antimateri. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Dia membuat perisai Lorentz berlapis dan mengubah arah partikel di sekitar makhluk. Tubuh gelap itu kehilangan keseimbangan, tetapi langsung menyusun ulang bentuknya.
 
-Ia memutus kontak dengan rekaman Abu Antimateri sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Di balik tekanan, Kael mendengar gema lain.
 
-“Ini bukan hanya jejak serangan di Abu Antimateri,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Nama-nama.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Manifestasi kecil Voidmaker telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Sangat lemah, seperti suara orang yang tenggelam.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—korban annihilation ikut hilang dari ingatan orang terdekat.
+Korban yang dihapus masih meninggalkan jejak di luar materi—hubungan emosional yang belum sepenuhnya lenyap.
 
-“Kalau petunjuk tentang Abu Antimateri ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+“Sylvara, Gema Pengetahuan.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan manifestasi kecil Voidmaker berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Dia mengangkat artefak tersebut. Cahaya lembut menyapu jalan dan memperlihatkan bayangan keluarga yang hilang: seorang ayah, ibu, dan dua anak yang sempat berlari menuju gerbang sebelum abu menyentuh mereka.
+
+Warga di sekitar mulai menangis tanpa memahami alasan.
+
+“Korban annihilation ikut hilang dari ingatan orang terdekat,” kata Sylvara. “Tapi perasaan kehilangan tetap ada.”
+
+Kael menggunakan suara-suara tersebut sebagai jangkar. Dia memisahkan manifestasi dari jejak korbannya, menjaga hubungan manusia tetap tercatat sementara tubuh antimateri dipaksa menjauh.
+
+Makhluk itu bereaksi liar.
+
+Jalan di sekeliling mereka terhapus lebih cepat. Sebuah bangunan runtuh tanpa puing, menyisakan warga yang terjebak pada lantai atas yang menggantung di udara.
+
+Zireth mengirim drone evakuasi. Sylvara mempertahankan medan. Kael menahan manifestasi tanpa melepaskan Pulse besar.
+
+Di pusat tubuhnya, pola geometris kecil kembali terlihat.
+
+Sang Arsitek menanamkan perintah pada abu agar bukan hanya membunuh, tetapi menghapus bukti bahwa korban pernah hidup.
+
+Kael mengepalkan tangan.
+
+“Dia ingin dunia kehilangan alasan untuk melawan.”
+
+Manifestasi membuka bentuk seperti rahang.
+
+Pertarungan berikutnya akan menentukan apakah nama-nama yang telah dihapus masih dapat dikembalikan kepada mereka yang mengingat dengan hati.
