@@ -1,25 +1,67 @@
 # Episode 258 — Benturan Pengkhianatan Celestial
 
-Bayangan-bayangan memanjang meski tak ada matahari di Istana Langit Lykaros. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Ritual Wadah Dewa dimulai.
 
-Serangan Jenderal Celestial dan hakim cahaya datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Cahaya membelit kedua sayap Zevaron dan menariknya ke tengah ruang. Para hakim melantunkan sumpah suksesi, sementara bayangan kesadaran asing turun dari langit-langit istana.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan pemberontakan kecil Zevaron, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Zevaron menahan badai di dalam tubuh agar ritual tidak langsung mengambil alih jalur elemennya.
 
-Kael menerapkan pembiasan cahaya untuk memutus segel Celestial. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Kael!”
 
-“Sekarang, Kael! Simpul Pengkhianatan Celestial ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael bergerak menuju pusat arsip, tetapi Jenderal Aerthys menghadang. Tombaknya memecah cahaya menjadi puluhan salinan yang menyerang dari segala arah.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Istana Langit Lykaros sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Tanpa entropi, Kael tidak dapat menghapus ilusi sekaligus. Dia membaca pembiasan pada setiap salinan dan mencari satu bayangan yang tidak mengikuti hukum cahaya istana.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Dalam benturan Pengkhianatan Celestial, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Tongkat Eira menangkis tombak asli.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Pengkhianatan Celestial tetap memiliki batas yang tak boleh dilanggar.
+Aerthys terkejut melihat tubuh Kael yang rusak masih mampu menemukan celah.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan pemberontakan kecil Zevaron untuk menghantam pusat kendali yang baru terlihat.
+“Kau meninggalkan kekuatan terbesarmu dan masih menganggap diri layak menentang dewa?”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: dewan ingin menjadikan Zevaron wadah dewa baru. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Aku tidak perlu layak. Aku hanya perlu menolak.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Pengkhianatan Celestial, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Istana Langit Lykaros menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael membentuk Frekuensi Penyangkal di antara tombak dan perintah ritual. Serangan tetap memiliki energi, tetapi kehilangan hubungan dengan niat Aerthys selama beberapa detik.
 
-“Kita membangunkan pusat Pengkhianatan Celestial,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Jenderal Celestial dan hakim cahaya mulai bergerak dari kedalaman.
+Dia melewati jenderal dan mencapai pusat arsip.
+
+Segel dewan memakai pola yang sama dengan dua sayap Zevaron: satu jalur menahan data, satu jalur menghapus kehendak siapa pun yang mencoba membukanya.
+
+Kael membiaskan cahaya segel, memisahkan fungsi penyimpanan dari perintah kepatuhan. Arsip terbuka ke seluruh jaringan Lykaros.
+
+Rakyat melihat daftar perjanjian dewan, korban eksperimen, dan rencana menjadikan Zevaron wadah dewa.
+
+Di luar ruangan, pasukan mulai berbalik melawan para hakim.
+
+Ritual mempercepat diri.
+
+Kesadaran dewa menyentuh tubuh Zevaron. Mata emasnya berubah putih, dan suara lain keluar dari mulutnya.
+
+“Wadah diterima.”
+
+Kael menghubungkan resonansi langsung ke jiwa Zevaron. Di dalamnya, pangeran tersebut masih melawan, tetapi kedua sayap menjadi jalur yang memberi dewa pijakan.
+
+“Putus salah satunya,” kata Zevaron melalui hubungan. “Sekarang.”
+
+Kael menolak selama sepersekian detik.
+
+Aerthys menyerang dari belakang. Kael menghindar, lalu mengarahkan pembiasan tombak jenderal menuju rantai ritual pada sayap kiri.
+
+Cahaya memotong pangkal sayap.
+
+Zevaron menjerit.
+
+Sayap kirinya jatuh ke lantai dan berubah menjadi bulu-bulu emas yang segera padam. Jalur kesadaran dewa terputus setengah, membuat ritual kehilangan keseimbangan.
+
+Zevaron mengambil kembali satu mata.
+
+“Yang kanan masih milikku.”
+
+Dia melepaskan seluruh badai yang ditahan. Ruang ritual pecah, para hakim terpental, dan kesadaran dewa ditolak keluar dari tubuh.
+
+Namun sayap kiri tidak tumbuh kembali.
+
+Di tengah arsip yang runtuh, Zevaron berdiri miring dengan darah emas mengalir dari punggungnya.
+
+Aerthys masih hidup. Dewan belum sepenuhnya jatuh.
+
+Tapi seluruh Lykaros kini mengetahui bentuk pengkhianatan mereka.
