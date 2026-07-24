@@ -1,27 +1,55 @@
 # Episode 254 — Harga yang Dituntut Dataran Terbelah
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di zona nol antara empat kekaisaran. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael menjadi jangkar di tepi jurang.
 
-Mereka telah kehilangan ruang untuk bergerak. Artileri Fragmen dan tanah bergravitasi liar menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Medan gravitasinya menangkap ribuan orang yang tersedot ke dalam celah, tetapi setiap tubuh bergerak pada arah jatuh berbeda. Ada yang tertarik ke bawah, ke samping, bahkan ke langit.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Ribuan prajurit terperangkap dalam celah tanpa bawah. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Zireth menyalurkan perhitungan melalui lengan bintang. Sylvara dan Zevaron mengatur pasukan agar menarik korban satu demi satu sesuai vektor masing-masing.
 
-“Kita mundur dari Dataran Terbelah. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Jangan mencoba menahan semuanya sendiri,” kata Sylvara.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan jaringan pengungsi Sylvara dan Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Kalau medan pusat terlepas, mereka tidak punya waktu.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan penyeimbangan medan gravitasi lokal untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael menjaga ritme.
 
-Artileri Fragmen dan tanah bergravitasi liar bereaksi liar di pusat Dataran Terbelah. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Tekanan menggerus tulang dan saraf. Kaki kanannya kehilangan rasa sepenuhnya. Tongkat Eira menancap ke tanah sebagai penopang, tetapi permukaan di bawahnya mulai retak.
 
-Kael menemukan benang kendali milik artileri Fragmen dan tanah bergravitasi liar. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh zona nol antara empat kekaisaran.
+Dari jurang terdengar suara orang-orang yang terus jatuh. Kael dapat merasakan ketakutan dan kematian yang mungkin terjadi melalui kemampuan yang dibawanya dari Neraka.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Dataran Terbelah akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Ragnarok Pulse mencari jalan cepat. Dulu entropi murni dapat menghapus sumber kerusakan dalam satu serangan. Sekarang kekuatan itu tidak lagi ada.
 
-“Tidak,” kata Kael di hadapan Dataran Terbelah, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Dia harus bertahan melalui kerja banyak orang.
 
-Serangan mereka melalui jaringan pengungsi Sylvara dan Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Regu Elf menjaga jalur atas. Dwarf menanam jangkar. Celestial mengubah arah angin. Prajurit manusia dan Beastmen menarik tali bersama meski beberapa jam sebelumnya berdiri sebagai musuh.
 
-Saat debu Dataran Terbelah turun, mereka sadar kemenangan kecil itu menuntut harga permanen: ribuan prajurit terperangkap dalam celah tanpa bawah. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Satu demi satu korban keluar.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Dataran Terbelah terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Sumber tersembunyi di bawah tanah kembali mengirim gelombang. Kael menemukan pola Sistem Pahlawan pada pusatnya. Jika hubungan itu tidak diputus, jurang terus terbuka.
+
+Dia tidak dapat meninggalkan medan penahan.
+
+Zevaron menawarkan mengambil tempatnya.
+
+“Tubuhmu belum selaras dengan semua vektor,” kata Kael. “Medannya akan menolakmu.”
+
+“Lalu bagi pola tersebut.”
+
+Kael menghubungkan resonansi kepada Zevaron, Zireth, Sylvara, dan para pemimpin regu. Beban pusat menyebar ke puluhan orang.
+
+Tidak seorang pun memegang kendali penuh.
+
+Dengan ruang yang tercipta, Kael menelusuri hubungan Sistem ke sumber tersembunyi dan memakai Frekuensi Penyangkal. Perintah untuk merusak gravitasi berhenti sebelum menjadi tindakan.
+
+Jurang mulai menutup.
+
+Namun tidak semua orang berhasil ditarik. Ribuan prajurit telah jatuh terlalu jauh, melewati lapisan yang dapat dijangkau jaringan.
+
+Kael mendengar suara mereka memudar satu demi satu.
+
+Dia mempertahankan medan sampai korban terakhir yang masih terjangkau keluar, lalu tubuhnya roboh.
+
+Dataran kembali stabil.
+
+Di bawah tanah, celah tanpa dasar tetap menyimpan mereka yang tidak sempat diselamatkan.
+
+Tidak ada pihak dapat menyebut peristiwa itu kemenangan.
