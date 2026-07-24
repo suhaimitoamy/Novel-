@@ -1,27 +1,67 @@
 # Episode 264 — Harga yang Dituntut Vanguard Beastmen
 
-Udara bergetar sebelum suara apa pun sempat lahir di Meat Forest Garundrax. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Altar Bulan Darah tumbuh dari pusat Hutan Daging seperti jantung kedua.
 
-Mereka telah kehilangan ruang untuk bergerak. Ritual Bulan Darah dan panglima pemburu menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Fragmen Garundrax melayang di dalam lapisan tulang dan serat merah. Di sekelilingnya, ribuan saluran menghubungkan tanda pada setiap Beastmen dengan tubuh Kharvok.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael membiarkan dirinya diburu untuk mencapai altar. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Ritual telah menjadikan seluruh bangsa satu kawanan tanpa hak menolak.
 
-“Kita mundur dari Vanguard Beastmen. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael membiarkan dirinya menjadi sasaran utama. Dia mengirim Pulse terbuka agar Sistem menganggap tubuhnya ancaman terbesar dan mengalihkan semua pemburu dari jalur Raska, Sylvara, serta Zireth.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan pemimpin muda Beastmen dan panah penenang Sylvara. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Tanda Bulan Darah di seluruh hutan berubah arah.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pembatalan frekuensi pada hormon perang untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Buru Kael Drayven.”
 
-Ritual Bulan Darah dan panglima pemburu bereaksi liar di pusat Vanguard Beastmen. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Ribuan langkah mengejar melalui akar dan lorong daging.
 
-Kael menemukan benang kendali milik Ritual Bulan Darah dan panglima pemburu. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Meat Forest Garundrax.
+Kael bergerak lambat karena kaki kanannya, tetapi setiap tikungan telah ditandai Sylvara. Panah penenang menutup jalur di belakang tanpa melukai prajurit lebih dari perlu. Zireth menyeimbangkan perubahan massa agar akar tidak menangkap tongkat Kael.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Vanguard Beastmen akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Raska dan Kharvok mencapai altar dari sisi lain.
 
-“Tidak,” kata Kael di hadapan Vanguard Beastmen, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Panglima masih terhubung dengan ritual. Setiap kali mencoba memutus saluran, tubuhnya robek dari dalam.
 
-Serangan mereka melalui pemimpin muda Beastmen dan panah penenang Sylvara tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+“Pakai aku untuk membuka pusat,” katanya.
 
-Saat debu Vanguard Beastmen turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael membiarkan dirinya diburu untuk mencapai altar. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Raska menolak. “Kita tidak mengganti satu perintah dengan pengorbanan panglima.”
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Vanguard Beastmen terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Kael tiba bersama gelombang pemburu.
+
+Dia menempatkan Frekuensi Penyangkal pada saluran utama. Dorongan berburu berhenti selama beberapa detik, membuat ribuan Beastmen terdiam di tengah gerakan.
+
+Kesempatan tersebut cukup bagi mereka untuk mendengar nyanyian kawanan yang dipimpin Raska.
+
+Satu suara menyahut. Lalu puluhan. Ratusan.
+
+Setiap Beastmen yang memilih ikut bernyanyi melepaskan salurannya dari altar. Ritual kehilangan bagian tubuhnya satu demi satu.
+
+Sistem mencoba memaksa Kharvok membunuh Kael. Kapak yang menyatu dengan lengannya terangkat.
+
+Panglima menahannya menggunakan tangan lain sampai tulang bahunya retak.
+
+“Sekarang,” geramnya.
+
+Kael dan Zireth memisahkan lapisan Sistem dari Fragmen. Sylvara menembakkan panah ke sambungan yang dibuka Raska. Resonansi merah menjaga jaringan biologis tetap hidup, biru menahan pelepasan energi, dan ungu mengurai perintah tanpa menjadi annihilation.
+
+Altar retak.
+
+Fragmen Garundrax turun kembali ke akar hutan. Pulsa perang padam, menyisakan detak alami ribuan jantung yang tidak lagi bergerak serempak.
+
+Kharvok jatuh.
+
+Tubuhnya selamat, tetapi saluran ritual telah membakar sistem saraf serta bagian otaknya yang mengatur naluri berburu. Dia menatap hutan tanpa mengenali aroma, jejak, atau suara kawanan yang dahulu menjadi bagian hidupnya.
+
+“Aku masih Beastmen?” tanyanya.
+
+Raska berlutut di sisinya. “Itu bukan keputusan ritual.”
+
+Kael telah membiarkan dirinya diburu untuk mencapai altar. Tubuhnya penuh luka baru, dan nama pembawa Neraka kini menyebar lebih jauh di antara pasukan yang tidak memahami rencana tersebut.
+
+Namun Vanguard berhenti bergerak menuju perang.
+
+Mereka tidak langsung menjadi sekutu. Sebagian menyalahkan Kael karena merusak ritual suci. Sebagian mengikuti Raska dan menuntut hak memilih pemimpin serta perang sendiri.
+
+Bangsa Beastmen pecah menjadi perdebatan, bukan kawanan paksa.
+
+Kebebasan itu lebih kacau daripada satu perintah.
+
+Kael tetap memilihnya.
