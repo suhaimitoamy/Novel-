@@ -1,25 +1,49 @@
 # Episode 222 — Suara dari Gerbang Arwah
 
-Bayangan-bayangan memanjang meski tak ada matahari di jembatan tulang menuju lapisan terdalam. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Roh-roh korban bergerak di atas jembatan.
 
-Sejak benturan sebelumnya, pola Penjaga Gerbang yang memakai wajah ibu Kael terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk melewati pengadilan para korban Sistem, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Mereka tidak menyerang tubuh Kael. Setiap senjata menembus kesadarannya dan memaksanya melihat peristiwa dari sisi orang yang terluka oleh keputusan para pahlawan.
 
-“Ada lapisan lain di bawah Gerbang Arwah. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Dia merasakan desa yang dijadikan medan perang, keluarga yang dikorbankan demi kemenangan besar, dan jiwa-jiwa yang dipanen Sistem atas nama keselamatan dunia.
 
-Ia mengalirkan resonansi emosional tanpa pelepasan energi melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Penjaga dengan wajah ibunya berjalan di antara mereka.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan kejujuran Sylvara yang menolak menghibur dengan kebohongan. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Kau juga akan menjadi seperti pahlawan sebelum dirimu. Semua orang mengaku melindungi dunia sampai dunia harus tunduk kepada cara mereka.”
 
-Kael menyentuh rekaman Gerbang Arwah. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Kael tidak dapat menjawab dengan penyangkalan. Sebagian dirinya memang percaya hanya dia yang mampu memahami ancaman Fragmen, Voidmaker, dan Sang Arsitek.
 
-Ia memutus kontak dengan rekaman Gerbang Arwah sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Sylvara memotong satu serangan yang hampir menenggelamkan kesadarannya.
 
-“Ini bukan hanya jejak serangan di Gerbang Arwah,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+“Aku tidak akan mengatakan kau selalu benar,” katanya. “Kau sering mengambil keputusan tanpa memberi kami pilihan. Kau memakai dirimu sebagai korban agar tidak perlu menerima bahwa orang lain juga berhak mengambil risiko.”
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Penjaga Gerbang yang memakai wajah ibu Kael telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Kael menatapnya.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Gerbang tidak menguji kekuatan, melainkan alasan untuk tetap hidup.
+Kalimat tersebut bukan dukungan yang nyaman. Justru itu yang membuatnya dapat dipercaya.
 
-“Kalau petunjuk tentang Gerbang Arwah ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Gerbang menampilkan ruang tersembunyi di bawah jembatan. Di sana tersimpan catatan pengadilan para korban Sistem. Setiap pahlawan yang ingin melewati Neraka harus menjawab satu pertanyaan:
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Penjaga Gerbang yang memakai wajah ibu Kael berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+**Mengapa kau tetap ingin hidup setelah mengetahui akibat kekuatanmu?**
+
+Jawaban palsu langsung ditolak. Keinginan menjadi penyelamat, membalas dendam, atau membuktikan diri hanya membuat Gerbang semakin kuat.
+
+Kael menyentuh rekaman dan merasakan semua alasan tersebut pernah hidup dalam dirinya.
+
+Dia tidak mencari kalimat mulia.
+
+“Aku ingin hidup karena masih takut mati,” katanya. “Karena aku masih ingin melihat apa yang terjadi pada orang-orang yang berjalan bersamaku. Karena aku belum siap menyerahkan semua rasa sakit sebagai alasan untuk berhenti.”
+
+Jembatan berhenti berguncang.
+
+Penjaga memandangnya dengan wajah sang ibu.
+
+“Bukan jawaban seorang pahlawan.”
+
+“Memang bukan.”
+
+Sebagian roh menurunkan senjata.
+
+Namun Penjaga Gerbang belum selesai. Wajah ibunya berubah menjadi senyum sedih.
+
+“Kalau begitu akui juga bagian dirimu yang tidak hidup demi orang lain.”
+
+Di bawah tulang jembatan, api entropi Kael mulai menyala dengan kegembiraan yang selama ini dia sembunyikan.
