@@ -1,25 +1,49 @@
 # Episode 187 — Suara dari Benteng The Core
 
-Suhu berubah setiap kali Kael menarik napas di cincin pertahanan Inti Planet. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pertempuran memenuhi cincin pertahanan.
 
-Sejak benturan sebelumnya, pola gelombang antimateri dan pasukan tanpa bayangan terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk mendirikan garis pertahanan terakhir, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Meriam Dwarf menahan gelombang depan. Legiun Celestial Zevaron memotong pasukan tanpa bayangan menjadi kelompok kecil. Kael menjaga lapisan isolasi agar antimateri tidak menyentuh dinding benteng.
 
-“Ada lapisan lain di bawah Benteng The Core. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zevaron. Kael memandangi garis-garis pada permukaan. Ia tahu Zevaron benar. Kekuatan mentah hanya akan mempercepat bencana.
+Zireth menemukan ruang kontrol tersembunyi di bawah jalur utama.
 
-Ia mengalirkan isolasi vakum elektromagnetik bertingkat melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Catatan tentang hubungan Fragmen dan konstanta materi disimpan di sana.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan legiun Celestial Zevaron dan meriam Dwarf. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Kael serta Zevaron mengikutinya masuk sementara pasukan mempertahankan permukaan.
 
-Kael menyentuh rekaman Benteng The Core. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Ruang tersebut dipenuhi model Zerath. Dua belas titik cahaya menjaga jaringan yang menghubungkan materi, energi, waktu, ingatan, dan jiwa.
 
-Ia memutus kontak dengan rekaman Benteng The Core sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Satu titik padam sesaat.
 
-“Ini bukan hanya jejak serangan di Benteng The Core,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zevaron. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Pada model, gunung berubah menjadi kabut sebelum cahaya kembali dan bentuknya pulih.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Gelombang antimateri dan pasukan tanpa bayangan telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+“Fragmen-fragmen bukan hanya sumber kekuatan,” kata Zireth. “Mereka jangkar hukum dunia.”
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Fragmen-fragmen mempertahankan konstanta materi Zerath.
+Rekaman lama terbuka.
 
-“Kalau petunjuk tentang Benteng The Core ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zevaron. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Para pencipta Zerath menyebarkan dua belas Fragmen agar tidak ada satu penguasa mampu mengubah seluruh realitas. Setiap Fragmen mempertahankan bagian berbeda dari konstanta dunia.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan gelombang antimateri dan pasukan tanpa bayangan berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Zevaron memandang Kael. “Dan tubuhmu dapat beresonansi dengan semuanya.”
+
+“Itulah sebabnya Arsitek menginginkanku sebagai kunci.”
+
+Suara lain masuk melalui ruang kosong di antara model atom.
+
+*Jangkar akan dikonsumsi. Materi akan kembali menjadi kesunyian.*
+
+Voidmaker.
+
+Bukan lagi rasa lapar tanpa bahasa. Setelah menyentuh jejak Kael, makhluk itu telah belajar membentuk maksud.
+
+Kael merasakan detak dingin di dadanya menjawab.
+
+“Residu di dalamku menjadi jalur komunikasi.”
+
+Zireth mencoba menutup saluran, tetapi gelombang antimateri menghantam ruang kontrol. Dinding kehilangan lapisan satu demi satu.
+
+Zevaron membangun badai pelindung. “Kalau benda itu bisa berbicara melalui dirimu, ia mungkin juga dapat masuk melaluimu.”
+
+Kael tidak menyangkal kemungkinan tersebut.
+
+Mereka kembali ke permukaan membawa kebenaran baru: menjaga Fragmen berarti menjaga hukum dasar Zerath.
+
+Di luar, pasukan tanpa bayangan telah menembus lapisan pertama benteng.
