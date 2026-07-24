@@ -1,27 +1,73 @@
 # Episode 270 — Bayangan Keluar dari Altar
 
-Bayangan-bayangan memanjang meski tak ada matahari di dua belas altar kekaisaran. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Relay Zireth padam, tetapi satu bayangan tidak ikut menghilang.
 
-Semua jalan di dua belas altar kekaisaran berakhir pada satu pusat. Di sanalah pasukan kerajaan dan avatar pendeta menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat mencegah pencabutan Fragmen secara bersamaan mustahil dilakukan.
+Ia keluar dari sisa altar pusat The Core dengan tubuh Kael yang utuh: dua tangan berfungsi, langkah seimbang, rambut gelap tanpa uban, dan Ragnarok Pulse lengkap dengan entropi murni yang telah ditinggalkan di Neraka.
 
-“Kita mencapai pusat Pengepungan Fragmen bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zireth. Kael menatap Zireth, lalu pada relay terakhir Zireth dan sekutu tiap ras. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Sylvara langsung mengangkat busur.
 
-Mereka bergerak serempak. Sekutunya menggunakan relay terakhir Zireth dan sekutu tiap ras untuk memecah lapisan luar, sedangkan Kael menyusupkan jaringan resonansi lintas benua ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Bukan Kael.”
 
-Kael tidak melawan semua lapisan Pengepungan Fragmen. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Bayangan itu tersenyum. “Lebih tepatnya, Kael tanpa kehilangan yang tidak perlu.”
 
-Di pusat jaring Pengepungan Fragmen itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Zireth memindai bentuknya. “Ia dibangun dari data relay, pola Nexus, rekaman Sistem, dan salinan yang dibuat Sang Arsitek.”
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di pusat Pengepungan Fragmen, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zireth tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Tambahkan jejak entropi yang kau tinggalkan di Neraka,” kata bayangan kepada Kael. “Jaringan dua belas altar membuka jalan untuk mengambil salinannya.”
 
-Pasukan kerajaan dan avatar pendeta mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Kael berdiri dengan tongkat Eira. Di hadapannya ada tubuh yang pernah dia inginkan kembali dan kekuatan yang sengaja dilepaskan.
 
-Tidak ada ledakan besar. Pasukan kerajaan dan avatar pendeta retak dalam keheningan dua belas altar kekaisaran. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zireth menahannya sebelum kepalanya membentur tanah.
+“Apa tujuanmu?”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Fragmen adalah pasak ruang-waktu, bukan harta kerajaan. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+“Menyelesaikan konvergensi tanpa ketidakefisienan pilihan banyak orang.”
 
-Kael memandangi sisa-sisa pusat kendali Pengepungan Fragmen. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Bayangan mengangkat tangan. Peta dua belas Fragmen muncul meski relay Zireth telah mati. Ia membawa salinan hubungan seluruh jangkar di dalam tubuhnya.
 
-Zireth menyentuh bahu Kael, memastikan ia masih sadar. Tepat saat Kael berdiri, kembaran bayangan Kael keluar dari salah satu altar. Kemenangan mereka langsung berubah menjadi awal pengejaran berikutnya.
+“Dunia hampir hancur karena para penjaga ragu, kerajaan berdebat, dan kau terus meminta persetujuan. Aku akan menjadi pusat yang mereka butuhkan.”
 
-Jalan di depan Pengepungan Fragmen terbuka selebar satu langkah. Kael mengambilnya, diikuti yang lain, sementara dunia menunggu keputusan berikutnya tanpa berani memberi perintah.
+Sang Arsitek tidak lagi mencoba memakai tubuh Kael asli.
+
+Ia telah membangun Kael yang setuju menjadi pusat.
+
+Bayangan menyerang.
+
+Entropi murni menghapus lantai di antara mereka. Kael tidak mampu membalas dengan kekuatan yang sama. Dia memakai Frekuensi Penyangkal agar hubungan antara kehancuran dan sasaran terputus, tetapi salinan tersebut memahami teknik itu dan mengubah fase sebelum simpul terbentuk.
+
+Sylvara menembakkan panah biasa ke wajahnya. Bayangan menangkap anak panah tanpa melihat.
+
+“Semua pola kalian berada di dalamku.”
+
+Zireth mencoba mengaktifkan relay yang sudah hangus. Tidak ada daya tersisa.
+
+Kael memahami kelemahan lawan tersebut.
+
+Bayangan memiliki seluruh data, teknik, dan keputusan yang pernah direkam. Namun ia lahir setelah jaringan padam. Ia tidak mengetahui hubungan baru yang terbentuk ketika para penjaga memilih tanpa relay pusat.
+
+Kael tidak memberi perintah kepada Sylvara atau Zireth.
+
+Dia bergerak tanpa rencana bersama yang pernah digunakan. Sylvara menembak berdasarkan instingnya sendiri. Zireth menggeser gravitasi dari sudut yang tidak dikomunikasikan.
+
+Kael mengikuti pilihan mereka, bukan sebaliknya.
+
+Bayangan terlambat sepersekian detik.
+
+Tongkat Eira menghantam dadanya dan membuat peta Fragmen berkedip.
+
+Untuk pertama kalinya, wajah sempurna itu menunjukkan kemarahan.
+
+“Ketidakteraturan tidak dapat menjaga dunia.”
+
+“Bukan ketidakteraturan,” jawab Kael. “Kehendak yang tidak bergantung padaku.”
+
+Bayangan mundur ke dalam altar sebelum mereka dapat menahannya. Peta dua belas Fragmen ikut menghilang.
+
+Ia belum kalah.
+
+Salinan tersebut kini membawa entropi, data seluruh perjalanan, dan tujuan menjadi pusat tunggal Zerath.
+
+Di sisa altar tertinggal satu pesan:
+
+**TEMUKAN AKU DI TEMPAT KAEL DRAYVEN SEHARUSNYA LAHIR.**
+
+Kael tidak memiliki ingatan tentang tempat tersebut.
+
+Namun Gema Pengetahuan menampilkan satu koordinat lama di luar peta kekaisaran—sebuah wilayah yang dihapus dari sejarah sebelum Aranyel berdiri.
