@@ -1,25 +1,45 @@
 # Episode 221 — Jejak Gerbang Arwah
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di jembatan tulang menuju lapisan terdalam. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Gerbang yang dibuka oleh nama Furyborn tidak langsung membawa mereka ke dunia atas.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: melewati pengadilan para korban Sistem. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Kael, Sylvara, dan Eira muncul di sebuah jembatan tulang yang membentang di atas jurang tanpa dasar. Di kejauhan terlihat cahaya Zerath, tetapi jalan tersebut dijaga oleh ribuan bayangan korban Sistem.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan kejujuran Sylvara yang menolak menghibur dengan kebohongan, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Mereka belum mengizinkan kita pulang,” kata Sylvara.
 
-Kael memusatkan napas dan menggunakan resonansi emosional tanpa pelepasan energi. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Penjaga Gerbang yang memakai wajah ibu Kael.
+Setiap langkah membangunkan satu kesaksian. Roh-roh berdiri di sepanjang jembatan dan menuduh Kael atas kehancuran yang mengikuti perjalanannya: Aranyel, Puncak Beku, Kuil Lykaros, Valerium, dan korban-korban yang bahkan tidak lagi memiliki nama.
 
-Denyut Gerbang Arwah segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Kael tidak membantah semuanya.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di Gerbang Arwah, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Sebagian kematian bukan kesalahannya. Sebagian lain lahir dari pilihan yang dia ambil meski tidak ada jalan tanpa korban.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan kejujuran Sylvara yang menolak menghibur dengan kebohongan, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Di tengah jembatan, kabut membentuk seorang perempuan.
 
-Di balik penghalang Gerbang Arwah, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa jembatan tulang menuju lapisan terdalam melupakan bentuk alaminya.
+Wajahnya adalah wajah ibu Kael—atau gambaran yang masih mampu dibentuk dari ingatan yang tersisa.
 
-“Kita sudah melewati pintu Gerbang Arwah, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Pulanglah,” katanya lembut. “Semua ini terlalu berat. Berikan Pulse-mu kepada Gerbang dan istirahat bersamaku.”
 
-Suara pertama dari Penjaga Gerbang yang memakai wajah ibu Kael datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Kael berhenti.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Gerbang Arwah terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Suara, senyum, dan gerakan tangan itu terasa benar. Dia sangat ingin mempercayainya.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Penjaga Gerbang yang memakai wajah ibu Kael muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Gerbang Arwah baru saja dimulai.
+Sylvara berdiri di sampingnya. “Aku tidak akan mengatakan bahwa itu bukan ibumu. Aku tidak tahu. Tapi dia sedang meminta kau menyerahkan alasanmu untuk hidup.”
+
+Kejujuran tersebut lebih menyakitkan daripada penghiburan.
+
+Penjaga Gerbang mendekat dengan wajah sang ibu.
+
+“Apa alasanmu terus hidup, Kael? Dunia terus terluka karena keberadaanmu.”
+
+Kael tidak menjawab dengan kekuatan. Dia memakai resonansi emosional tanpa melepaskan energi dan membiarkan Gerbang membaca rasa takut, rasa bersalah, serta keinginan untuk berhenti.
+
+Di bawah semuanya, masih ada hubungan yang tidak dapat digantikan: Sylvara, Zireth, Eira, orang-orang yang diselamatkan, dan janji untuk memutus Sistem tanpa menjadi penguasa baru.
+
+“Aku tidak hidup karena yakin akan menang,” katanya. “Aku hidup karena pilihanku belum selesai.”
+
+Wajah ibunya retak sesaat.
+
+Di baliknya muncul bentuk Penjaga Gerbang yang tersusun dari tulang serta jiwa korban.
+
+Pengadilan belum menerima jawaban tersebut.
+
+Jembatan mulai bergerak, dan seluruh kesaksian korban mengangkat senjata.
