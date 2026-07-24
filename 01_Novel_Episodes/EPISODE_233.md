@@ -1,25 +1,43 @@
 # Episode 233 — Benturan Nama yang Terkikis
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di koridor kenangan Neraka. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Ruang berikut dipenuhi versi Kael yang memilih jalan mudah.
 
-Serangan versi-versi Kael yang menawarkan jalan mudah datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Satu memiliki tubuh sehat dan menyerahkan kebebasan kepada Nexus. Satu mendapatkan kembali ibunya dengan menerima takhta Malgorath. Yang lain mengalahkan Sang Arsitek dengan menghapus kehendak seluruh Zerath.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Eira. Yang lain membalas dari sudut berbeda dengan Eira yang menyerahkan kenangan terakhirnya, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Mereka tidak menyerang langsung. Masing-masing menjalani kehidupan yang tampak lebih damai di hadapan Kael.
 
-Kael menerapkan denyut ritmis sebagai jangkar autobiografis. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Kau terus memilih jalan yang paling menyakitkan,” kata versi bertubuh sehat. “Apa itu keberanian atau kecanduan menjadi korban?”
 
-“Sekarang, Kael! Simpul Nama yang Terkikis ini hanya bisa kutahan beberapa detik,” seru Eira. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Pertanyaan tersebut menembus lebih dalam daripada senjata.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh koridor kenangan Neraka sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael sering menolak solusi mudah karena takut kemudahan tersebut menyembunyikan rantai. Namun kadang dia juga memilih penderitaan karena merasa hanya rasa sakit yang membuktikan ketulusannya.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Dalam benturan Nama yang Terkikis, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Eira mendengar keraguannya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Nama yang Terkikis tetap memiliki batas yang tak boleh dilanggar.
+“Jangan sombong pada lukamu. Tubuh rusak tidak membuat keputusanmu otomatis benar.”
 
-Eira hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Eira yang menyerahkan kenangan terakhirnya untuk menghantam pusat kendali yang baru terlihat.
+Versi-versi itu menyerang ketika Kael kehilangan ritme.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: identitas bertahan karena pilihan berulang, bukan karena ingatan sempurna. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Denyut autobiografisnya dipantulkan kembali, membuat beberapa pilihan nyata terasa palsu. Kael lupa mengapa dia pernah meninggalkan Fragmen kelima dan hampir mempercayai bahwa keputusan tersebut hanya ketakutan mengambil kekuatan.
 
-Kael merasakan kemenangan kecil atas lapisan luar Nama yang Terkikis, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh koridor kenangan Neraka menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Eira menyerahkan sisa kenangan dalam liontinnya—bukan wajah atau suara, hanya rasa bahwa dia pernah mencintai seseorang sebelum menjadi Furyborn.
 
-“Kita membangunkan pusat Nama yang Terkikis,” kata Eira pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama versi-versi Kael yang menawarkan jalan mudah mulai bergerak dari kedalaman.
+“Pakai ini. Bukan untuk membuktikan masa lalumu, tetapi mengingat bahwa pilihan dapat bertahan setelah detailnya hilang.”
+
+Kael memasukkan rasa tersebut ke denyutnya.
+
+Dia berhenti mempertahankan setiap keputusan sebagai benar. Sebagian mungkin salah. Identitasnya tidak membutuhkan riwayat kemenangan sempurna, hanya kesediaan mengakui akibat dan memilih kembali.
+
+Versi-versi jalan mudah kehilangan kekuatan.
+
+Kael menerima bahwa tubuh sehat, keluarga kembali, dan dunia damai adalah keinginan yang wajar. Dia menolak harga yang diminta, bukan keinginannya sendiri.
+
+Dengan pengakuan tersebut, ilusi tidak lagi mampu memerintah.
+
+Kael dan Eira bergerak melewati mereka tanpa menyerang. Versi-versi itu memudar karena tidak lagi diperlakukan sebagai musuh atau takdir.
+
+Di pusat koridor, denyut Kael menemukan simpul yang terus mengikis namanya.
+
+Dia dapat menutupnya, tetapi suara ibunya terikat pada simpul yang sama.
+
+Memutus pengikisan berarti kehilangan suara tersebut selamanya.
