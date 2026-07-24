@@ -1,25 +1,51 @@
 # Episode 208 — Benturan Manifestasi Utama
 
-Keheningan datang seperti tangan yang menutup tenggorokan di langit pecah di atas The Core. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael memasuki tubuh Voidmaker melalui koridor yang dibuka seluruh aliansi.
 
-Serangan tubuh antimateri sebesar kota datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Sylvara dan Zireth ikut bersamanya. Zevaron menjaga pintu dari luar, menahan massa antimateri agar tidak menutup jalur pulang.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan seluruh aliansi Zerath, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Di dalam manifestasi tidak ada daging atau organ. Mereka berdiri pada ruang hitam yang dipenuhi jejak dunia-dunia mati. Kota, gunung, dan wajah korban muncul sebagai bayangan sebelum kembali larut menjadi kesunyian.
 
-Kael menerapkan tiga Pulse: resonansi, entropi, dan keseimbangan. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Pola Sang Arsitek membentang di tengah seperti jaring putih raksasa.
 
-“Sekarang, Kael! Simpul Manifestasi Utama ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Penandanya bukan satu simpul,” kata Zireth. “Ia tersebar pada setiap energi yang pernah dimakan.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh langit pecah di atas The Core sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael memakai tiga Pulse.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Dalam benturan Manifestasi Utama, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Resonansi menghubungkan jejak-jejak dunia yang tercerai. Entropi mengurai pola geometris tanpa meledakkan energi. Keseimbangan menjaga hasilnya tidak jatuh kembali ke Zerath.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Manifestasi Utama tetap memiliki batas yang tak boleh dilanggar.
+Voidmaker menciptakan pasukan dari bayangan korban. Mereka menyerang tanpa suara, masing-masing membawa teknik dunia asalnya.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan seluruh aliansi Zerath untuk menghantam pusat kendali yang baru terlihat.
+Sylvara menandai jalur aman. Zireth menghitung arus antimateri dan menggeser mereka di antara serangan. Kael hanya memakai Frekuensi Penyangkal pada saat perintah musuh berubah menjadi tindakan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: kemenangan hanya mungkin dengan mengarahkan energi keluar, bukan menghancurkannya. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Setiap simpul yang diputus membuat tubuh utama bergetar.
 
-Kael merasakan kemenangan kecil atas lapisan luar Manifestasi Utama, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh langit pecah di atas The Core menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Di luar, aliansi mengarahkan energi yang terlepas melalui koridor menuju ruang kosmik asal Voidmaker.
 
-“Kita membangunkan pusat Manifestasi Utama,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama tubuh antimateri sebesar kota mulai bergerak dari kedalaman.
+Sang Arsitek mengubah strategi.
+
+Jaring putih meniru hubungan mereka. Salinan Sylvara dan Zireth muncul, bergerak berdasarkan semua data yang pernah dicuri.
+
+Kael tidak mencoba membedakan lewat gerakan. Dia memanggil kenangan yang hanya mereka bertiga pahami—ketakutan di Gurun Bisikan, tangan yang menangkapnya di Puncak Beku, dan saat lengan bintang Zireth ditempa dari kehilangan.
+
+Salinan tidak mampu menjawab.
+
+Sylvara menghancurkan bayangannya sendiri. Zireth memutus salinan lengan bintang. Kael membuka jalur ke pusat penanda.
+
+Di sana terdapat pintu kecil yang sama dengan Pintu Entropi dalam dadanya, tetapi ukurannya sebesar kota.
+
+Voidmaker memakainya untuk menerima arah dari Sang Arsitek.
+
+Kael menempelkan tangan kanan pada permukaannya.
+
+Rasa lapar seluruh makhluk masuk ke pikirannya sekaligus.
+
+Dia hampir kehilangan namanya.
+
+Suara Sylvara dan perhitungan Zireth menariknya kembali.
+
+Kael membentuk simpul nol pada pusat pintu.
+
+Pola putih berhenti bergerak.
+
+Namun untuk menutupnya, Frekuensi Penyangkal harus dipertahankan jauh lebih lama daripada batas tubuhnya.
