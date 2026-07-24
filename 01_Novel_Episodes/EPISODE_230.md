@@ -1,27 +1,59 @@
 # Episode 230 — Takhta yang Memakai Wajah Kael
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di reruntuhan Kegelapan Pertama. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Takhta Kegelapan membentuk tubuh Kael yang sempurna.
 
-Semua jalan di reruntuhan Kegelapan Pertama berakhir pada satu pusat. Di sanalah Malgorath versi arwah dan pasukan ketakutan menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat merebut catatan asal Fragmen dari bayangan dewa mustahil dilakukan.
+Tidak ada rambut putih, saraf rusak, atau lengan lumpuh. Wajahnya tenang, tubuhnya kuat, dan Ragnarok Pulse berputar tanpa konflik.
 
-“Kita mencapai pusat Bayangan Malgorath bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada panah tanpa cahaya Sylvara dan pedang Kael. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Sosok itu duduk dengan mahkota dari dua belas Fragmen.
 
-Mereka bergerak serempak. Sekutunya menggunakan panah tanpa cahaya Sylvara dan pedang Kael untuk memecah lapisan luar, sedangkan Kael menyusupkan superposisi bayangan dan cahaya ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Aku adalah akhir yang paling logis,” katanya. “Dunia terus meminta keputusanmu. Suatu hari kau akan berhenti meminta persetujuan dan mulai memerintah.”
 
-Kael tidak melawan semua lapisan Bayangan Malgorath. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Kael berdiri dengan tongkat, satu kaki lemah, dan tubuh yang telah membayar terlalu banyak harga.
 
-Di pusat jaring Bayangan Malgorath itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+“Dunia yang tunduk bukan dunia yang selamat.”
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di pusat Bayangan Malgorath, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Kalimat indah. Namun berapa banyak orang mati karena kau membiarkan mereka memilih salah?”
 
-Malgorath versi arwah dan pasukan ketakutan mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Takhta memperlihatkan masa depan yang teratur. Tidak ada perang antar-kekaisaran. Fragmen aman. Voidmaker dan Sang Arsitek dikunci. Sistem Pahlawan dihentikan.
 
-Tidak ada ledakan besar. Malgorath versi arwah dan pasukan ketakutan retak dalam keheningan reruntuhan Kegelapan Pertama. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Semua itu dicapai karena Kael mengambil kendali mutlak atas energi, pemerintahan, dan ingatan Zerath.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Kegelapan tidak menciptakan Furyborn; para dewa memelintir luka primordialnya. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Orang-orang hidup damai, tetapi wajah mereka kosong saat menyebut namanya.
 
-Kael memandangi sisa-sisa pusat kendali Bayangan Malgorath. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Sylvara berdiri di samping Kael tanpa cahaya.
 
-Sylvara menyentuh bahu Kael, memastikan ia masih sadar. Tepat saat Kael berdiri, Malgorath menunjukkan masa depan Kael sebagai dewa tiran. Kemenangan mereka langsung berubah menjadi awal pengejaran berikutnya.
+“Ada bagian dirimu yang menginginkan ini,” katanya. “Bukan karena kau haus pujian. Karena lelah melihat pilihan orang lain menciptakan korban.”
 
-Jalan di depan Bayangan Malgorath terbuka selebar satu langkah. Kael mengambilnya, diikuti yang lain, sementara dunia menunggu keputusan berikutnya tanpa berani memberi perintah.
+Kael tidak menyangkalnya.
+
+Versi tiran berdiri dari takhta dan menyerang. Tekniknya sama, tetapi tanpa keterbatasan tubuh atau keraguan moral. Setiap benturan menunjukkan betapa mudahnya menang jika Kael menerima hak untuk menentukan segalanya.
+
+Sylvara menembakkan panah biasa ke lantai, mengubah pijakan lawan. Eira menyerang dari sisi gelap dengan tongkat. Kael memakai ketidaksempurnaan tubuhnya untuk menciptakan ritme yang tidak dimiliki versi ideal.
+
+Takhta mencoba mengambil alih kedua belas jalur Fragmen.
+
+Kael tidak merebut kendali lebih kuat. Dia membuka hubungannya dan memanggil kehendak masing-masing Fragmen. Setiap jangkar menolak menjadi bagian mahkota satu penguasa.
+
+Mahkota retak.
+
+Versi tiran kehilangan keseimbangan.
+
+“Tanpa penguasa tunggal, mereka akan terus membuat kesalahan.”
+
+“Benar,” jawab Kael. “Dan kesalahan itu tetap milik mereka. Tugasku bukan menghapus hak hidup demi hasil sempurna.”
+
+Dia tidak menghancurkan sosok tersebut. Frekuensi Penyangkal memisahkan keinginan memerintah dari bayangan Malgorath yang memperbesarnya.
+
+Takhta kehilangan wajah Kael dan kembali kosong.
+
+Malgorath mundur ke kedalaman sambil tertawa.
+
+“Kau menolak mahkota hari ini. Lihat berapa lama sebelum dunia menaruhnya sendiri di kepalamu.”
+
+Reruntuhan Kegelapan Pertama terbuka menuju jalan pulang. Catatan asal Fragmen tersimpan dalam Gema Pengetahuan, tetapi jiwa ibu Kael belum ditemukan.
+
+Di atas mereka, pasukan Neraka telah mencapai Zerath.
+
+Kael membantu Sylvara berjalan tanpa cahaya.
+
+Keduanya kembali bukan sebagai pahlawan yang lebih kuat, melainkan orang-orang yang telah kehilangan bagian lain dan masih menolak menyerahkan pilihan.
