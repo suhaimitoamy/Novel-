@@ -1,25 +1,73 @@
 # Episode 273 — Benturan Kembaran Bayangan
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di medan cermin di atas Zona Nol. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Puluhan Kael bergerak pada saat yang sama.
 
-Serangan Shadow Double dengan Pulse tanpa recoil datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Sebagian mengangkat Zerath's Fang. Sebagian membuka telapak tangan. Yang lain hanya berdiri diam, tetapi tekanan dari tubuh mereka membuat rumah Aranyel berderit seperti hendak roboh.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Sylvara yang mengenali Kael asli dari keraguannya, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Sylvara melepaskan tiga panah. Dua menembus bayangan palsu. Panah ketiga dibelah sebelum mencapai dada Kembaran utama.
 
-Kael menerapkan runtuhnya fungsi gelombang melalui pilihan tak dapat dibalik. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Semua pola kita ada di dalam dirinya,” kata Sylvara.
 
-“Sekarang, Kael! Simpul Kembaran Bayangan ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Pola lama,” jawab Kael.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh medan cermin di atas Zona Nol sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Dia menghantam tanah dengan tongkat Eira. Frekuensi Penyangkal menyebar melalui halaman dan memutus hubungan antara tiga bayangan dengan simpul Umbral. Tubuh mereka pecah menjadi serpihan kaca, tetapi tujuh sosok baru segera keluar dari jendela rumah.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Dalam benturan Kembaran Bayangan, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kembaran Bayangan mengayunkan pedangnya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Kembaran Bayangan tetap memiliki batas yang tak boleh dilanggar.
+Entropi murni melintas tanpa suara. Pagar, tanah, dan udara di jalurnya tidak hancur—semuanya lenyap seolah tidak pernah ada. Kael menarik Sylvara ke samping. Ujung serangan menyentuh lengan kirinya, tetapi saraf yang telah rusak membuat rasa sakit datang terlambat.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Sylvara yang mengenali Kael asli dari keraguannya untuk menghantam pusat kendali yang baru terlihat.
+“Tubuhmu sudah tidak layak membawa Pulse,” kata Kembaran.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: salinan itu adalah kemungkinan yang dipelihara Umbral. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Karena itu aku masih tahu batas.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Kembaran Bayangan, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh medan cermin di atas Zona Nol menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael membalas dengan denyut pendek. Kembaran membaca perubahan fase sebelum dilepaskan dan memiringkan tubuh. Serangan itu melewati bahunya.
 
-“Kita membangunkan pusat Kembaran Bayangan,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Shadow Double dengan Pulse tanpa recoil mulai bergerak dari kedalaman.
+Setiap teknik yang pernah digunakan Kael sudah diketahui lawannya. Resonansi, Keseimbangan, penguncian identitas, bahkan cara dia menahan napas sebelum menggeser fase—semuanya tersimpan di dalam data salinan.
+
+Sylvara menurunkan busurnya.
+
+“Kenapa berhenti?” tanya Kael.
+
+“Karena dia menunggu aku menembak.”
+
+Dia mengambil batu dari tanah dan melemparkannya ke cermin.
+
+Kembaran tidak bereaksi.
+
+Batu itu memantul, mengenai kaki meja di dalam rumah, lalu menjatuhkan lampu minyak. Api menyebar pada tirai. Medan cermin mencoba mempertahankan dua kemungkinan sekaligus: rumah Aranyel tetap utuh dan rumah Aranyel terbakar.
+
+Permukaannya berkedip.
+
+Kael memahami maksud Sylvara. Lawan mereka mampu membaca keputusan yang memiliki tujuan jelas. Dia jauh lebih lemah terhadap tindakan sederhana yang akibatnya tidak direncanakan siapa pun.
+
+Kael menyerang tanpa memberi aba-aba. Sylvara bergerak ke arah berbeda. Tidak ada formasi, tidak ada urutan, dan tidak ada pusat komando.
+
+Kembaran menangkis tongkat Eira, tetapi terlambat melihat anak panah yang dilepaskan Sylvara ke langit. Panah itu menghantam pecahan atap, mengubah sudut jatuhnya, lalu menembus salah satu benang Umbral di belakang Kembaran.
+
+Seluruh medan menjerit.
+
+Kael menggunakan celah itu untuk menyentuh dada lawannya. Dia tidak melepaskan ledakan. Dia memaksa satu pilihan tak dapat dibalik masuk ke dalam simpul: Kembaran harus mempertahankan tubuhnya atau seluruh kemungkinan lain.
+
+Untuk pertama kalinya, wajah sempurna itu menunjukkan keraguan.
+
+Cermin-cermin di sekeliling mereka mulai padam.
+
+Lalu Zerath's Fang menembus sisi tubuh Kael.
+
+Kembaran telah memilih tubuhnya sendiri.
+
+Kael mencengkeram bilah yang masuk di antara tulang rusuk. Darah mengalir sepanjang logam hitam, tetapi dia tidak mundur. Dengan tangan kanan, dia menarik lawannya lebih dekat.
+
+“Sekarang kau membuat pilihan seperti kami.”
+
+Kembaran mencoba mencabut pedang. Kael menahan bilah itu dengan sisa kekuatan.
+
+Sylvara melepaskan panah dari jarak beberapa langkah. Anak panah menghantam simpul di dada Kembaran. Cahaya Umbral menyembur keluar dan seluruh rumah kehilangan warna.
+
+Namun Kembaran belum runtuh. Ia menekan entropi ke dalam Zerath's Fang, berniat menghapus Kael bersama bilah tersebut.
+
+Kael merasakan pedang itu beresonansi dengan dirinya. Senjata tersebut mengenali pemilik asli, tetapi juga mengenali tubuh sempurna yang membawa seluruh datanya.
+
+Dua kehendak menarik satu pedang.
+
+Dan Zerath's Fang mulai retak di tengah.

@@ -1,25 +1,75 @@
 # Episode 272 — Suara dari Kembaran Bayangan
 
-Butiran cahaya melayang seperti abu dari bintang mati di medan cermin di atas Zona Nol. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Suara itu datang dari rumah yang tak pernah lagi berani Kael bayangkan secara utuh.
 
-Sejak benturan sebelumnya, pola Shadow Double dengan Pulse tanpa recoil terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk mengalahkan salinan Kael yang memilih menguasai perang, mereka harus masuk lebih dalam ke sumber napas tersebut.
+“Kael, masuklah. Makanannya akan dingin.”
 
-“Ada lapisan lain di bawah Kembaran Bayangan. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Dia berhenti di halaman Aranyel yang seharusnya sudah menjadi abu. Pagar kayu, batu pijakan, bahkan bekas goresan di ambang pintu berdiri persis seperti yang dia ingat. Hanya suaranya yang terasa asing—bukan karena salah, melainkan karena terlalu sempurna.
 
-Ia mengalirkan runtuhnya fungsi gelombang melalui pilihan tak dapat dibalik melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Sylvara berdiri di sampingnya dengan busur terangkat. “Jangan mendekat.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Sylvara yang mengenali Kael asli dari keraguannya. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Dia memanggil namaku.”
 
-Kael menyentuh rekaman Kembaran Bayangan. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Karena tempat ini tahu bagian mana yang masih bisa membuatmu berlutut.”
 
-Ia memutus kontak dengan rekaman Kembaran Bayangan sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Pintu terbuka. Sosok perempuan muncul di dalam cahaya hangat, tetapi wajahnya tertutup bayangan. Kael tidak mampu mengingat suara ibunya; kini medan cermin mengembalikannya tanpa meminta izin.
 
-“Ini bukan hanya jejak serangan di Kembaran Bayangan,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Kembaran Bayangan melangkah keluar dari refleksi jendela. Zerath's Fang berada di tangannya, utuh dan tanpa retakan.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Shadow Double dengan Pulse tanpa recoil telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+“Aku tidak menciptakan rumah ini,” katanya. “Kau yang membawanya. Umbral hanya menjaga kemungkinan yang kau buang.”
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—salinan itu adalah kemungkinan yang dipelihara Umbral.
+Kael menekan tongkat Eira ke tanah agar kakinya tidak bergerak sendiri. “Kemungkinan bukan kehidupan.”
 
-“Kalau petunjuk tentang Kembaran Bayangan ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+“Bagi seseorang yang kehilangan segalanya, perbedaannya hanya kata.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Shadow Double dengan Pulse tanpa recoil berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Cermin-cermin di sekitar rumah menyala. Setiap permukaan memperlihatkan Kael yang membuat pilihan berbeda: Kael yang menerima takhta, Kael yang membunuh Rowan lebih awal, Kael yang meninggalkan Sylvara, dan Kael yang menyelamatkan Aranyel dengan menyerahkan kehendaknya kepada Sistem.
+
+Tidak satu pun tampak seperti ilusi. Mereka memiliki masa lalu, luka, dan orang-orang yang mempercayai mereka.
+
+Sylvara menembakkan panah ke cermin terdekat. Anak panah menembus permukaan, tetapi refleksi di dalamnya terus bergerak.
+
+“Ini bukan rekaman,” katanya.
+
+Kael merasakan hal yang sama. Di balik kaca terdapat tekanan kausal, tipis namun nyata. Umbral bukan gudang bayangan. Ia adalah lapisan tempat jalan yang tidak dipilih tetap bertahan sebagai kemungkinan, menunggu energi yang cukup untuk memperoleh bentuk.
+
+Sang Arsitek tidak membangun Kembaran dari nol. Ia memelihara satu Kael yang bersedia menjadi pusat tunggal Zerath, lalu memberinya data, tubuh, dan entropi tanpa recoil.
+
+Kebenaran itu membuat dada Kael lebih dingin daripada ancaman apa pun.
+
+“Aku adalah dirimu yang tidak membuang kekuatan demi orang-orang yang terus mengulang kesalahan,” ujar Kembaran. “Aku menyelamatkan lebih banyak kehidupan karena aku tidak meminta persetujuan.”
+
+“Dengan menghapus pilihan mereka.”
+
+“Pilihan adalah kemewahan bagi dunia yang sedang runtuh.”
+
+Rumah di belakangnya kembali memanggil. Kali ini suara ibu Kael menyebut nama kecil yang tidak pernah diketahui siapa pun di Zerath.
+
+Kaki Kael bergeser setengah langkah.
+
+Sylvara menarik kerahnya dengan kasar. “Dengarkan aku, bukan rumah itu.”
+
+Kembaran mengangkat Zerath's Fang. “Dia akan selalu menarikmu menjauh dari hasil yang perlu.”
+
+“Dia menarikku menjauh dari kebohongan yang nyaman,” jawab Kael.
+
+Kael menanam Frekuensi Penyangkal ke tanah cermin. Alih-alih menghancurkan rumah, dia memutus hubungan antara suara dan kenangannya. Nada panggilan itu pecah. Sosok di ambang pintu kehilangan bentuk, lalu berubah menjadi ribuan serpihan cahaya.
+
+Namun rumah tidak lenyap. Di bawah ilusi terdapat simpul Umbral yang terus memberi tubuh pada kemungkinan tersebut.
+
+Sylvara melihat pola itu lebih dulu. “Simpulnya bukan berada di rumah.”
+
+Kael mengikuti arah tatapannya.
+
+Benang-benang gelap keluar dari semua cermin dan berakhir di dada Kembaran Bayangan.
+
+Seluruh medan hidup karena keberadaannya.
+
+Kembaran tersenyum ketika Kael memahami hal tersebut. “Sekarang kau tahu. Selama satu kemungkinan masih memilihku, aku tidak dapat benar-benar mati.”
+
+Cermin-cermin terbuka serempak. Puluhan Kael melangkah keluar, masing-masing membawa alasan berbeda untuk membenarkan kekuasaan.
+
+Kael menggenggam tongkat Eira dengan tangan yang masih dapat merasakan tekanan.
+
+Untuk melawan Kembaran, dia bukan hanya harus mengalahkan tubuh sempurna di hadapannya.
+
+Dia harus menolak setiap kehidupan yang menawarkan kemenangan tanpa harga.

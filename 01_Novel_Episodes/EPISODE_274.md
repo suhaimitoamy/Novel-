@@ -1,27 +1,81 @@
 # Episode 274 — Harga yang Dituntut Kembaran Bayangan
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di medan cermin di atas Zona Nol. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Retakan pada Zerath's Fang menjalar dari ujung sampai gagang.
 
-Mereka telah kehilangan ruang untuk bergerak. Shadow Double dengan Pulse tanpa recoil menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Kael merasakan setiap garis patah itu seperti luka di tulangnya sendiri. Pedang tersebut telah menemaninya sejak sebelum dia memahami Ragnarok Pulse, sebelum perang, sebelum dirinya menjadi simbol bagi orang-orang yang bahkan tidak mengenal namanya.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael harus mematahkan Zerath's Fang untuk menolak kekuatan sempurna. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Kembaran Bayangan memperkuat genggamannya. “Lepaskan. Pedang ini lebih berguna di tanganku.”
 
-“Kita mundur dari Kembaran Bayangan. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Karena kau tidak pernah membayar untuk memakainya.”
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Sylvara yang mengenali Kael asli dari keraguannya. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Entropi dari lawannya masuk melalui bilah. Kael menahan aliran itu dengan Keseimbangan, tetapi tubuhnya tidak lagi mampu menjadi saluran sempurna. Darah keluar dari hidung dan telinganya. Saraf pada bahu kanan mulai mati satu demi satu.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan runtuhnya fungsi gelombang melalui pilihan tak dapat dibalik untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Sylvara menarik busur, tetapi Kael menggeleng.
 
-Shadow Double dengan Pulse tanpa recoil bereaksi liar di pusat Kembaran Bayangan. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Panah apa pun yang mengenai pedang akan memindahkan entropi ke seluruh medan cermin.
 
-Kael menemukan benang kendali milik Shadow Double dengan Pulse tanpa recoil. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh medan cermin di atas Zona Nol.
+Di sekeliling mereka, kemungkinan-kemungkinan lain kembali menyala. Kael melihat Aranyel utuh. Eira masih hidup. Rowan berdiri di pihak mereka. Tidak ada perang antar-kekaisaran. Semua kehidupan itu bergantung pada simpul yang sama dengan Kembaran.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Kembaran Bayangan akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Satu tarikan yang salah dapat memusnahkan semuanya.
 
-“Tidak,” kata Kael di hadapan Kembaran Bayangan, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Lihat apa yang kau korbankan,” bisik Kembaran. “Aku dapat membuat semua jalan itu nyata.”
 
-Serangan mereka melalui Sylvara yang mengenali Kael asli dari keraguannya tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+“Dengan menjadikan dirimu pusatnya.”
 
-Saat debu Kembaran Bayangan turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael harus mematahkan Zerath's Fang untuk menolak kekuatan sempurna. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+“Dengan memastikan tidak ada lagi pilihan bodoh.”
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Kembaran Bayangan terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Kael menatap rumahnya. Sosok ibunya berdiri di ambang pintu, masih tanpa wajah. Meski suara itu palsu, keinginan untuk mempercayainya tidak palsu.
+
+Dia hampir melepaskan pedang.
+
+Sylvara tidak memanggil namanya. Dia hanya berdiri di dekatnya, memberi ruang agar keputusan itu benar-benar menjadi milik Kael.
+
+Kembaran tersenyum, mengira keheningan tersebut sebagai kemenangan.
+
+Kael memutar Zerath's Fang.
+
+Bukan ke arah lawannya, melainkan melawan struktur pedang sendiri.
+
+“Tidak ada senjata yang berhak menentukan siapa pemilik kehendak.”
+
+Dia mengirim satu Pulse pendek tepat ke retakan tengah.
+
+Zerath's Fang patah.
+
+Suara pecahannya tidak keras. Hanya bunyi kecil, hampir biasa, tetapi seluruh medan cermin berhenti bergerak.
+
+Separuh bilah tertinggal di tubuh Kael. Separuh lainnya berada di tangan Kembaran. Hubungan yang membuat salinan mengakses seluruh teknik Kael ikut terbelah.
+
+Kembaran mundur. Untuk pertama kalinya, Pulse-nya menghasilkan recoil. Retakan merah muncul di lengannya.
+
+“Apa yang kau lakukan?”
+
+“Memberimu harga.”
+
+Kael mencabut potongan bilah dari tubuhnya. Rasa sakit membuat penglihatannya menyempit, tetapi dia menancapkan pecahan tersebut ke simpul Umbral di tanah.
+
+Sylvara menembak pada saat yang sama.
+
+Panahnya menghantam pecahan di tangan Kembaran. Kedua bagian pedang beresonansi satu kali, lalu melepaskan gelombang yang bukan milik Kael maupun salinannya.
+
+Semua cermin runtuh ke dalam.
+
+Rumah Aranyel lenyap. Suara ibunya terputus di tengah kata. Puluhan kehidupan yang mungkin terjadi padam satu demi satu, bukan karena Kael menganggapnya tidak berharga, melainkan karena tak satu pun boleh dipaksa hidup di bawah kehendak Kembaran.
+
+Gelombang balik menyapu medan.
+
+Kael terlempar. Sylvara menangkap bahunya sebelum dia jatuh ke ruang kosong di bawah cermin.
+
+Kembaran Bayangan kehilangan bentuk sempurnanya. Wajahnya dipenuhi retakan, tetapi dia masih berdiri.
+
+“Tanpa pedang itu, kau tidak akan mampu menghadapi para dewa.”
+
+Kael melihat dua pecahan Zerath's Fang yang tenggelam ke dalam kegelapan.
+
+Mungkin lawannya benar.
+
+Namun untuk pertama kalinya, Kembaran juga berdarah.
+
+Harga kemenangan bukan hanya hilangnya senjata.
+
+Kael telah mematahkan bagian terakhir dari dirinya yang masih percaya bahwa kekuatan lama akan selalu datang menyelamatkan.

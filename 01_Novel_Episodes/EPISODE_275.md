@@ -1,27 +1,85 @@
 # Episode 275 — Pedang yang Dipatahkan
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di medan cermin di atas Zona Nol. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kembaran Bayangan berdiri di antara pecahan cermin dengan tubuh yang terus kehilangan bentuk.
 
-Semua jalan di medan cermin di atas Zona Nol berakhir pada satu pusat. Di sanalah Shadow Double dengan Pulse tanpa recoil menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat mengalahkan salinan Kael yang memilih menguasai perang mustahil dilakukan.
+Setiap retakan memperlihatkan kehidupan berbeda di balik kulitnya. Seorang raja. Seorang pembunuh. Seorang penyelamat. Seorang anak yang tidak pernah meninggalkan Aranyel.
 
-“Kita mencapai pusat Kembaran Bayangan bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada Sylvara yang mengenali Kael asli dari keraguannya. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Kael tidak lagi membawa Zerath's Fang. Hanya tongkat Eira yang retak dan satu tangan yang masih mampu merasakan tekanan.
 
-Mereka bergerak serempak. Sekutunya menggunakan Sylvara yang mengenali Kael asli dari keraguannya untuk memecah lapisan luar, sedangkan Kael menyusupkan runtuhnya fungsi gelombang melalui pilihan tak dapat dibalik ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Aku adalah semua hasil yang kau buang,” kata Kembaran.
 
-Kael tidak melawan semua lapisan Kembaran Bayangan. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Tidak. Kau adalah satu hasil yang memaksa hasil lain tunduk.”
 
-Di pusat jaring Kembaran Bayangan itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Medan cermin mulai runtuh. Tanpa pedang sebagai jembatan data, Kembaran tidak dapat mempertahankan semua kemungkinan sekaligus. Dia memilih bentuk penguasa—Kael yang duduk di atas takhta Zerath—dan membiarkan tubuh lainnya padam.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di pusat Kembaran Bayangan, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Keputusan itu membuatnya lebih lemah, tetapi juga lebih stabil.
 
-Shadow Double dengan Pulse tanpa recoil mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Kembaran mengangkat telapak tangan. Pulse tanpa recoil berubah menjadi singularitas kecil di antara jarinya.
 
-Tidak ada ledakan besar. Shadow Double dengan Pulse tanpa recoil retak dalam keheningan medan cermin di atas Zona Nol. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Sylvara menyiapkan panah terakhir. “Kita tidak punya ruang untuk menghindar.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: salinan itu adalah kemungkinan yang dipelihara Umbral. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kael memandang pecahan cermin yang masih melayang. Masing-masing terhubung pada kemungkinan berbeda, tetapi semua permukaan kini tertarik menuju singularitas lawan.
 
-Kael memandangi sisa-sisa pusat kendali Kembaran Bayangan. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Dia tidak mencoba melawannya dengan tenaga.
 
-“Kita menang?” suara Sylvara terdengar letih. “Kita bertahan,” jawab Kael. Sebelum ia sempat berkata lebih jauh, Zona Nol mulai berubah menjadi singularitas.
+Kael menyentuhkan tongkat Eira pada satu cermin yang memperlihatkan dirinya menyerah kepada Sistem. Dia membuka hubungan itu sesaat, lalu melakukan hal yang sama pada cermin tempat dirinya menjadi dewa tiran dan cermin tempat dirinya meninggalkan semua orang.
 
-Medan Kembaran Bayangan menyusut di belakang mereka. Kael melangkah menuju akibat berikut dengan tubuh yang lebih rapuh dan kehendak yang tetap menjadi miliknya.
+Tiga kemungkinan yang saling bertentangan masuk ke dalam medan Kembaran.
+
+Singularitas kehilangan pusat yang pasti.
+
+“Pilih,” kata Kael. “Kau tidak bisa menjadi semuanya.”
+
+Kembaran mencoba mempertahankan ketiga bentuk. Tubuhnya membesar, pecah, lalu menyusut lagi. Entropi di tangannya berbalik memakan lapisan Umbral yang menopangnya.
+
+Sylvara melepaskan panah.
+
+Anak panah tidak diarahkan ke dada atau kepala. Ia menghantam bayangan Kembaran pada permukaan cermin terakhir.
+
+Hubungan antara tubuh dan kemungkinan terputus.
+
+Kembaran menatap Kael dengan kemarahan yang hampir manusiawi. “Dunia akan meminta seorang penguasa ketika ketakutan menjadi cukup besar.”
+
+“Mungkin.”
+
+“Dan saat itu mereka akan memilihku.”
+
+“Kalau mereka memilihmu dengan bebas, aku tidak dapat melarangnya.”
+
+Jawaban itu menghentikannya lebih efektif daripada serangan.
+
+Kembaran dibangun untuk melawan penolakan, pemberontakan, dan kekuatan. Ia tidak memahami seseorang yang tetap membela pilihan bahkan ketika pilihan itu dapat menghasilkan musuhnya sendiri.
+
+Simpul Umbral di dadanya runtuh.
+
+Tubuh sempurna itu pecah menjadi cahaya gelap. Sebagian besar tersedot ke dalam cermin, tetapi satu serpihan melarikan diri menuju Zona Nol.
+
+Kael tidak mengejarnya. Medan di bawah mereka sudah berubah.
+
+Pecahan-pecahan cermin berputar mengelilingi satu titik yang semakin hitam. Gravitasi menarik debu, cahaya, dan sisa Pulse ke pusat yang sama.
+
+Zireth berteriak dari tepi jalur, “Keluar sekarang! Zona Nol kehilangan konstanta ruangnya!”
+
+Sylvara menopang Kael. Mereka berlari di atas cermin yang patah, sementara setiap langkah di belakang mereka jatuh menuju pusat.
+
+Kael menoleh sekali.
+
+Dua pecahan Zerath's Fang berputar di dalam singularitas. Dia dapat mencoba mengambilnya, tetapi jarak itu akan menelan waktu yang tidak mereka miliki.
+
+Dia membiarkan pedang tersebut pergi.
+
+Mereka mencapai tepi tepat ketika medan cermin runtuh seluruhnya.
+
+Tidak terjadi ledakan. Zona Nol hanya melipat dirinya ke dalam, lalu membuka banyak celah menuju tempat-tempat yang seharusnya tidak dapat bersentuhan.
+
+Melalui satu retakan, Kael melihat Aranyel sebelum kehancuran. Melalui yang lain, dia melihat Zerath tanpa dirinya. Puluhan dunia paralel berkedip di sekeliling singularitas.
+
+Zireth memindai perubahan itu dengan lengan bintangnya yang rusak. Wajahnya kehilangan warna.
+
+“Kembaran bukan tujuan akhir,” katanya. “Ia memaksa semua kemungkinan mendekati satu titik.”
+
+Kael merasakan denyut dari balik retakan.
+
+Bukan satu dunia yang menjawab.
+
+Banyak dunia memanggil namanya pada saat bersamaan.
