@@ -1,25 +1,33 @@
 # Episode 481 — Jejak Pengepungan Langit Terakhir
 
-Debu bergerak melawan arah angin di benteng orbit para dewa kecil. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pintu di atas jejak resonansi Orin membawa mereka ke benteng orbit yang mengelilingi Langit Terakhir.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membuka jalan menuju Singgasana Cahaya. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Di bawah sana, kota-kota Zerath tampak seperti titik cahaya. Di atas, armada para dewa kecil membentuk cincin berlapis. Kapalnya tidak memakai awak biasa. Setiap lambung ditambatkan pada kehidupan di kota tertentu.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zireth. Kael mengangguk. Mereka mengambil posisi dengan armada magitek terakhir Zireth, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Zireth mengangkat lengan bintangnya. Armada magitek terakhir yang masih tersisa menyebar di belakang mereka.
 
-Kael memusatkan napas dan menggunakan pemutusan jangkar hidup tanpa membunuh wadah. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik armada ilahi dan hujan Fragmen perusak.
+“Jangan tembak sebelum aku mengenali jangkar hidupnya,” katanya. “Satu kapal jatuh dapat menarik satu distrik bersama.”
 
-Denyut Pengepungan Langit Terakhir segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Kael mendengarkan medan dengan Ragnarok Pulse. Di balik logam dan energi ilahi, dia mendengar detak orang-orang yang bahkan tidak tahu dirinya dijadikan pemberat perang.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di Pengepungan Langit Terakhir, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Hujan Fragmen perusak turun dari orbit. Setiap serpihan mencari tubuh yang sudah pernah menyentuh energi ilahi.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan armada magitek terakhir Zireth, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Para Terbuang membentuk pertahanan, tetapi Kael melarang serangan balasan besar. Mereka harus memutus jangkar hidup tanpa membunuh wadah yang mengikatnya.
 
-Di balik penghalang Pengepungan Langit Terakhir, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa benteng orbit para dewa kecil melupakan bentuk alaminya.
+Seorang kapten musuh muncul melalui proyeksi.
 
-“Kita sudah melewati pintu Pengepungan Langit Terakhir, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zireth. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Serahkan bukti dan Fragmen. Kami akan membiarkan kota-kota tetap berada di tanah.”
 
-Suara pertama dari armada ilahi dan hujan Fragmen perusak datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Kael melihat salah satu jalur jangkar menuju Tujuh Jembatan.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Pengepungan Langit Terakhir terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Ancaman itu nyata.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama armada ilahi dan hujan Fragmen perusak muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Pengepungan Langit Terakhir baru saja dimulai.
+“Bukan kalian yang menahan kota tetap hidup,” katanya. “Kalian hanya mengikat lehernya pada kapal.”
+
+Proyeksi padam. Seluruh armada mulai bergerak.
+
+Zireth membuka peta pertempuran, tetapi Kael tidak mencari titik yang paling mudah dihancurkan. Dia mencari simpul yang dapat dilepas tanpa menjatuhkan satu kehidupan pun.
+
+Di kejauhan, kapal pertama menyalakan senjata.
+
+Pada permukaannya, ribuan nama warga mulai muncul seperti daftar korban yang belum terjadi.

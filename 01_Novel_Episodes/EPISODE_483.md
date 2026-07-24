@@ -1,25 +1,37 @@
 # Episode 483 — Benturan Pengepungan Langit Terakhir
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di benteng orbit para dewa kecil. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Armada ilahi menembak serempak.
 
-Serangan armada ilahi dan hujan Fragmen perusak datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Hujan Fragmen perusak membelah ruang. Zireth memerintahkan kapal magitek menyebar, tetapi satu formasi terlambat dan kehilangan sayap kirinya.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan armada magitek terakhir Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael tidak membalas ke pusat armada. Dia memetakan jangkar hidup pada setiap kapal, lalu menandai jalur yang dapat diputus tanpa merusak pemilik jiwa.
 
-Kael menerapkan pemutusan jangkar hidup tanpa membunuh wadah. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Dua belas detik untuk kapal pertama,” kata Zireth. “Kita tidak punya waktu memproses semuanya satu per satu.”
 
-“Sekarang, Kael! Simpul Pengepungan Langit Terakhir ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Kalau kita mempercepat dengan cara lama, kota-kota yang jatuh.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh benteng orbit para dewa kecil sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael membuka jaringan kepada para sekutu. Para Terbuang masing-masing mengambil satu frekuensi. Armada magitek menahan lambung yang kehilangan daya. Sylvara memimpin pasukan penahan agar prajurit musuh tidak dibunuh setelah kapalnya dilucuti.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Dalam benturan Pengepungan Langit Terakhir, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Pemutusan pertama berhasil.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Pengepungan Langit Terakhir tetap memiliki batas yang tak boleh dilanggar.
+Lalu kedua.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan armada magitek terakhir Zireth untuk menghantam pusat kendali yang baru terlihat.
+Pada kapal ketiga, para dewa mengaktifkan jebakan. Jangkar hidup berubah menjadi tali penarik yang menyeret satu distrik dari permukaan Zerath. Bangunan mulai terangkat ke langit.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: para dewa telah menambatkan hidup mereka pada kota-kota di bawah. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael dapat menghancurkan kapal dan menghentikan tarikan, tetapi semua prajurit di dalamnya akan mati.
 
-Kael merasakan kemenangan kecil atas lapisan luar Pengepungan Langit Terakhir, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh benteng orbit para dewa kecil menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Dia memilih jalan lebih lambat.
 
-“Kita membangunkan pusat Pengepungan Langit Terakhir,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama armada ilahi dan hujan Fragmen perusak mulai bergerak dari kedalaman.
+Pulse masuk melalui lambung, memisahkan kendali dewa dari mesin sambil Zireth menahan distrik dengan seluruh tenaga armada terakhirnya. Kapal-kapal magitek retak satu per satu.
+
+Kapten musuh menyerang Kael saat proses berlangsung.
+
+Kael menangkis tanpa membunuh. Dia menerima tiga luka hanya untuk menjaga medan tetap stabil.
+
+Ketika simpul terakhir lepas, distrik turun kembali ke fondasinya. Kapal musuh kehilangan tenaga dan mengambang tanpa kendali.
+
+Para prajurit masih hidup.
+
+Namun armada magitek Zireth tinggal separuh, dan Singgasana Cahaya mulai menyalakan senjata yang tidak menargetkan tubuh.
+
+Senjata itu mengunci nama.

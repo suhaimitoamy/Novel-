@@ -1,25 +1,33 @@
 # Episode 488 — Benturan Singgasana Cahaya
 
-Butiran cahaya melayang seperti abu dari bintang mati di ruang putih di puncak Langit Terakhir. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Cahaya absolut menelan seluruh ruang.
 
-Serangan entitas cahaya tanpa wajah datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Kael tidak dapat melihat Sylvara atau Zireth. Bahkan batas tubuhnya mulai hilang. Singgasana menghapus perbedaan antara kulit, udara, dan pikiran.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Sylvara yang menulis nama Kael dengan darah, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Ragnarok Pulse tetap bergerak.
 
-Kael menerapkan modulasi amplitudo pada medan foton absolut. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael memodulasi amplitudonya pada medan foton, menciptakan lembah dan puncak kecil. Perbedaan itu melahirkan bentuk. Bentuk melahirkan bayangan. Bayangan memberi tempat bagi nama.
 
-“Sekarang, Kael! Simpul Singgasana Cahaya ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sylvara muncul lebih dulu sebagai garis gelap. Dia menekan telapak berdarah ke dada Kael.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh ruang putih di puncak Langit Terakhir sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Kael.”
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Dalam benturan Singgasana Cahaya, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Zireth mengunci frekuensi tersebut. Para sekutu lain mengulang hubungan yang mereka ingat meski nama mulai kabur.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Singgasana Cahaya tetap memiliki batas yang tak boleh dilanggar.
+Entitas cahaya menyerang melalui senjata penghapus. Setiap tembakan mencabut satu saksi dari sejarah.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Sylvara yang menulis nama Kael dengan darah untuk menghantam pusat kendali yang baru terlihat.
+Kael tidak menghantam tubuhnya. Dia memisahkan kehendak entitas dari cahaya yang dipakainya. Foton tetap bergerak; singgasana kehilangan hak memerintahnya.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: cahaya absolut adalah kegelapan yang tak memberi ruang bagi perbedaan. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Nama-nama mengalir keluar dari lantai putih.
 
-Kael merasakan kemenangan kecil atas lapisan luar Singgasana Cahaya, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh ruang putih di puncak Langit Terakhir menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Sebagian kembali pada tubuh. Sebagian hanya menjadi catatan bagi mereka yang sudah mati.
 
-“Kita membangunkan pusat Singgasana Cahaya,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama entitas cahaya tanpa wajah mulai bergerak dari kedalaman.
+Entitas tanpa wajah mulai memperoleh kontur—bukti bahwa ia sendiri memiliki perbedaan yang selama ini disangkal.
+
+Ia menjerit ketika bayangan pertama muncul di bawah singgasana.
+
+Kael menurunkan amplitudo tepat sebelum cahaya meledak.
+
+Dia memilih memisahkan, bukan memusnahkan.
+
+Ruang putih retak dan memperlihatkan inti tempat nama Kael ditahan paling dalam.

@@ -1,27 +1,35 @@
 # Episode 484 — Harga yang Dituntut Pengepungan Langit Terakhir
 
-Keheningan datang seperti tangan yang menutup tenggorokan di benteng orbit para dewa kecil. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pertempuran berakhir tanpa kemenangan yang bersih.
 
-Mereka telah kehilangan ruang untuk bergerak. Armada ilahi dan hujan Fragmen perusak menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Sebagian besar kapal ilahi dilucuti, tetapi ribuan prajurit musuh masih hidup di lambung yang ditahan armada Zireth. Para komandan sekutu menuntut mereka dihancurkan sebelum dapat menyerang lagi.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael harus membiarkan pasukan musuh hidup agar kota selamat. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Kael menolak.
 
-“Kita mundur dari Pengepungan Langit Terakhir. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zireth. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Kalau kapal itu meledak, jangkar yang belum sepenuhnya pulih akan menarik kota bersama mereka.”
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan armada magitek terakhir Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Mereka akan mencoba membunuh kita lagi.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pemutusan jangkar hidup tanpa membunuh wadah untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Mungkin.”
 
-Armada ilahi dan hujan Fragmen perusak bereaksi liar di pusat Pengepungan Langit Terakhir. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zireth berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kael tidak menyebut belas kasih sebagai jaminan perubahan. Para prajurit telah memilih pihak dan sebagian tetap memegang senjata. Namun membunuh mereka sekarang berarti menjadikan warga di bawah sebagai harga kenyamanan militer.
 
-Kael menemukan benang kendali milik armada ilahi dan hujan Fragmen perusak. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh benteng orbit para dewa kecil.
+Zireth memindahkan semua kapal ke orbit penahanan. Armada magitek terakhirnya habis untuk menjaga mereka tetap stabil.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Pengepungan Langit Terakhir akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Harga pengepungan menjadi permanen: Kael harus membiarkan pasukan musuh hidup agar kota-kota selamat.
 
-“Tidak,” kata Kael di hadapan Pengepungan Langit Terakhir, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Sebagian sekutu menyebutnya lemah. Keluarga korban perang menuduhnya melindungi pembunuh. Kael menerima kemarahan tersebut tanpa mengubah tahanan menjadi mayat untuk memudahkan keputusan.
 
-Serangan mereka melalui armada magitek terakhir Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zireth; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Para prajurit diberi jalur menyerah dan pengadilan, bukan pengampunan otomatis.
 
-Saat debu Pengepungan Langit Terakhir turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael harus membiarkan pasukan musuh hidup agar kota selamat. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Di bawah mereka, distrik yang hampir tercabut kembali menyentuh tanah.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Pengepungan Langit Terakhir terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Zireth menatap kapal-kapal magiteknya yang mati satu per satu. “Jalan ke pusat terbuka. Tapi kita tidak punya armada untuk pulang.”
+
+Kael memandang gerbang putih di depan.
+
+Dia tidak tahu apakah mereka akan pulang.
+
+Di balik gerbang, senjata Singgasana Cahaya mengucapkan nama pertama.
+
+Satu prajurit di samping Kael mendadak lupa siapa dirinya.

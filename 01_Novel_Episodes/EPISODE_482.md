@@ -1,25 +1,35 @@
 # Episode 482 — Suara dari Pengepungan Langit Terakhir
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di benteng orbit para dewa kecil. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Nama-nama pada lambung kapal bukan hiasan.
 
-Sejak benturan sebelumnya, pola armada ilahi dan hujan Fragmen perusak terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membuka jalan menuju Singgasana Cahaya, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Setiap nama adalah alamat jiwa. Armada ilahi menyerap sebagian massa hidup warga dan memakainya untuk menjaga kapal tetap berada di orbit. Bila lambung dihancurkan, tarikan balik akan merobek orang yang terhubung.
 
-“Ada lapisan lain di bawah Pengepungan Langit Terakhir. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zireth. Kael memandangi garis-garis pada permukaan. Ia tahu Zireth benar. Kekuatan mentah hanya akan mempercepat bencana.
+Zireth mengirim pemindai melalui jaringan magitek. “Ada jutaan sambungan. Mereka dibuat saat orang berdoa, menerima penyembuhan, atau menandatangani kontrak perlindungan.”
 
-Ia mengalirkan pemutusan jangkar hidup tanpa membunuh wadah melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Sebagian hubungan dibangun tanpa pengetahuan pemiliknya. Sebagian lain diberikan secara sadar ketika dunia masih percaya para dewa satu-satunya pelindung.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan armada magitek terakhir Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Kael tidak dapat memutus semuanya dengan satu denyut.
 
-Kael menyentuh rekaman Pengepungan Langit Terakhir. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Dia memilih satu kapal kecil dan menyentuh medan fotonnya. Pulse menyusup di antara jangkar serta tubuh, memisahkan hubungan tanpa mencabut ingatan atau keyakinan.
 
-Ia memutus kontak dengan rekaman Pengepungan Langit Terakhir sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Kapal itu kehilangan daya, tetapi tidak jatuh. Zireth menangkapnya dengan jaring gravitasi.
 
-“Ini bukan hanya jejak serangan di Pengepungan Langit Terakhir,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zireth. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Dari dalam, para prajurit musuh keluar dengan senjata terangkat.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Armada ilahi dan hujan Fragmen perusak telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+“Kenapa tidak membunuh kami?” tanya salah satu dari mereka.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—para dewa telah menambatkan hidup mereka pada kota-kota di bawah.
+“Karena kota di bawah tidak harus membayar kesetiaan kalian.”
 
-“Kalau petunjuk tentang Pengepungan Langit Terakhir ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zireth. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Prajurit itu tidak menyerah. Dia menembak Kael dari jarak dekat.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan armada ilahi dan hujan Fragmen perusak berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Sylvara mematahkan tembakannya dan menahan pasukan tanpa membantai. Tindakan itu menghabiskan waktu yang dibutuhkan armada lain untuk mengunci sasaran.
+
+Zireth mengumpat ketika ribuan titik merah menyala di peta.
+
+Kael mendengar suara dari jangkar hidup: warga yang tidur, berdoa, bertengkar, dan bekerja, semuanya dipaksa menjadi bagian perang tanpa pernah melihat langit.
+
+Kebenarannya menjadi jelas.
+
+Para dewa kecil tidak sekadar bersembunyi di balik kota.
+
+Mereka telah menambatkan hidupnya pada kota-kota tersebut, sehingga setiap serangan terhadap takhta akan berubah menjadi pembantaian di bawah.
