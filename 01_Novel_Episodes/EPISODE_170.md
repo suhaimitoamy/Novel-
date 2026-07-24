@@ -1,27 +1,71 @@
 # Episode 170 — Tiga Melawan Struktur
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di gua Jantung Es Rhythor. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Benih Struktur jatuh ke dasar Jantung Es sebagai bola geometris putih.
 
-Semua jalan di gua Jantung Es Rhythor berakhir pada satu pusat. Di sanalah Elemental Lord yang dibungkus kristal Void menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat membebaskan Roh Es Agung dan menghancurkan benih Struktur mustahil dilakukan.
+Ia belum mati.
 
-“Kita mencapai pusat Wadah Sekunder bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Begitu menyentuh lantai, akar cahaya menyebar dan mencoba membangun tubuh baru dari es, batu, serta sisa energi Roh Es Agung.
 
-Mereka bergerak serempak. Sekutunya menggunakan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali untuk memecah lapisan luar, sedangkan Kael menyusupkan pemutusan benang kendali lewat resonansi seimbang ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Pasukan Iskali kelelahan. Shaman Agung berlutut di antara salju yang merupakan jasad penjaga mereka.
 
-Kael tidak melawan semua lapisan Wadah Sekunder. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Kael, Sylvara, dan Zireth berdiri di depan Benih.
 
-Di pusat jaring Wadah Sekunder itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Zevaron hendak ikut maju, tetapi tubuhnya kehilangan terlalu banyak energi setelah terbebas dari kristal.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di pusat Wadah Sekunder, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Ini pertarungan kami,” kata Kael. “Lindungi rakyatmu.”
 
-Elemental Lord yang dibungkus kristal Void mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Benih membentuk tiga lawan.
 
-Tidak ada ledakan besar. Elemental Lord yang dibungkus kristal Void retak dalam keheningan gua Jantung Es Rhythor. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Satu meniru Ragnarok Pulse Kael. Satu memakai pola panah Sylvara. Yang terakhir memiliki lengan bintang seperti Zireth.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Arsitek sedang membangun tubuh pengganti dari roh-roh penjaga Zerath. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Sang Arsitek telah membangun salinan berdasarkan seluruh data yang dicuri Nexus.
 
-Kael memandangi sisa-sisa pusat kendali Wadah Sekunder. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+“Dia mengenal teknik kita,” kata Zireth.
 
-Tak ada sorak setelah pusat Wadah Sekunder runtuh. Kael baru menarik napas ketika denyut lain menjawab dari kejauhan. Tiga Mesin Takdir aktif serempak di kejauhan.
+“Bukan alasan kita memilihnya,” jawab Sylvara.
 
-Di ambang keluar gua Jantung Es Rhythor, Kael berhenti satu tarikan napas. Ia menyimpan suara para korban, lalu berjalan sebelum dunia sempat memilihkan jalan untuknya.
+Mereka menyerang tanpa formasi tetap.
+
+Kael tidak memerintah. Sylvara mengubah sasaran berdasarkan insting. Zireth mengacak medan gravitasi. Kael mengikuti keduanya dan menjaga hubungan energi tetap terbuka.
+
+Salinan mereka mampu meniru gerakan, tetapi tidak memahami kepercayaan yang membuat satu orang menanggung risiko bagi yang lain.
+
+Sylvara sengaja membuka celah. Salinan Kael bergerak menyerangnya, tepat seperti perhitungan data. Zireth menggeser gravitasi dan memindahkan tubuh Sylvara sesaat sebelum serangan mengenai.
+
+Kael masuk melalui ruang kosong tersebut.
+
+Pulse merah memisahkan cangkang Benih. Biru menahan energi agar tidak meledak ke Leyline. Ungu mengurai pola Sang Arsitek dari pusatnya.
+
+Benih mencoba mengaktifkan seluruh data Pulse yang disimpan.
+
+Zireth menancapkan lengan bintang ke tanah dan membalik koneksi. Sylvara menembakkan panah pemurnian ke jalur yang terbuka.
+
+Kael melepaskan satu denyut pendek.
+
+Tidak ada ledakan besar.
+
+Benih Struktur retak dan berubah menjadi debu putih. Pola asing terlepas dari Jantung Es, sementara arus musim Rhythor tetap hidup.
+
+Ketiganya jatuh hampir bersamaan.
+
+Zevaron dan prajurit Iskali membantu mereka keluar dari gua.
+
+Di luar, salju turun ke bawah untuk pertama kalinya sejak musim terkunci. Matahari tenggelam, memperlihatkan langit malam yang telah lama hilang.
+
+Namun kedamaian hanya bertahan beberapa menit.
+
+Lengan bintang Zireth menerima tiga sinyal dari penjuru berbeda Zerath.
+
+Tiga Mesin Takdir aktif serempak.
+
+Sang Arsitek kehilangan Wadah Sekunder, tetapi rencana lain telah dimulai.
+
+Kael memandang tiga titik pada peta.
+
+“Dia tidak lagi bertaruh pada satu tubuh.”
+
+Sylvara berdiri di sisinya. “Kalau begitu kita hentikan ketiganya.”
+
+Kael mengangguk.
+
+Rhythor telah selamat, tetapi perang terhadap Struktur baru saja berubah bentuk.
