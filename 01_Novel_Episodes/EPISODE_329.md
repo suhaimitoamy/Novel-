@@ -1,27 +1,27 @@
 # Episode 329 — Harga yang Dituntut Luka Pertama
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di ruang tanpa konstanta. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Dua pecahan Zerath's Fang muncul melalui resonansi.
 
-Mereka telah kehilangan ruang untuk bergerak. Entitas Cahaya, Materi, dan Bayangan tanpa kehendak menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Kael dapat menariknya kembali, menempa ulang pedang, dan memperoleh senjata yang selama ini menjadi jalur utama Ragnarok Pulse.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Zerath's Fang yang patah larut menjadi jangkar. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Sebaliknya, dia menempatkan kedua pecahan pada jangkar yang runtuh.
 
-“Kita mundur dari Luka Pertama. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zireth. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Pedang itu bagian dari dirimu,” kata Zireth.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan jangkar logam bintang Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Karena itu ia dapat menjadi batas yang mengenal harganya.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pembentukan konstanta melalui batas energi untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael melepaskan hubungan kepemilikan.
 
-Entitas Cahaya, Materi, dan Bayangan tanpa kehendak bereaksi liar di pusat Luka Pertama. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zireth berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Logam Zerath's Fang larut menjadi jaringan konstanta. Satu pecahan menahan cahaya agar tidak memenuhi segala ruang. Pecahan lain menjaga bayangan agar tidak menelan bentuk. Materi stabil di antara keduanya.
 
-Kael menemukan benang kendali milik entitas Cahaya, Materi, dan Bayangan tanpa kehendak. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh ruang tanpa konstanta.
+Senjata itu tidak pecah lagi. Ia berhenti menjadi senjata.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Luka Pertama akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Kael merasakan kekosongan pada tangan yang biasa menggenggamnya. Tidak ada cara memanggil kembali bilah tersebut tanpa meruntuhkan hukum yang baru terbentuk.
 
-“Tidak,” kata Kael di hadapan Luka Pertama, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Tiga entitas mulai tenang. Mereka memperoleh batas tanpa dipaksa menyatu.
 
-Serangan mereka melalui jangkar logam bintang Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zireth; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Harga keputusan itu permanen: Zerath's Fang yang patah telah menjadi jangkar bagi ruang tanpa konstanta.
 
-Saat debu Luka Pertama turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Zerath's Fang yang patah larut menjadi jangkar. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Kael tidak lagi memiliki pedang untuk menghadapi para dewa.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Luka Pertama terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Namun untuk pertama kalinya, tiga luka dapat berada dalam satu ruang tanpa saling menghapus.

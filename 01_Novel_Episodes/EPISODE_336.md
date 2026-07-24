@@ -1,25 +1,25 @@
 # Episode 336 — Jejak Perang Sisa Entitas
 
-Udara bergetar sebelum suara apa pun sempat lahir di Menara Fragmen di Inti Kosmos. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Menara Fragmen tumbuh dari Inti Kosmos seperti tulang menembus luka.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: melindungi Jalan Keempat sampai menjadi hukum. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Di sekelilingnya berkumpul fragmen jiwa, dewa yang tidak pernah selesai terbentuk, dan kehendak lama yang kehilangan dunia pemujanya.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zevaron. Kael mengangguk. Mereka mengambil posisi dengan sekutu lintas kekaisaran yang tiba melalui gerbang, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Zevaron datang melalui gerbang bersama sekutu lintas kekaisaran. Setelah jahitan Zerath, gerbang tidak lagi dimiliki satu bangsa.
 
-Kael memusatkan napas dan menggunakan koherensi kolektif melalui ingatan bersama. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Fragmen jiwa dan dewa-dewa tak selesai.
+“Berapa banyak?” tanya Sylvara.
 
-Denyut Perang Sisa Entitas segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zevaron mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Zireth memindai menara. “Terlalu banyak untuk dihitung sebagai individu. Sebagian terdiri dari potongan beberapa dewa.”
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Di Perang Sisa Entitas, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Sisa Entitas menyerang bukan hanya dengan kekuatan, tetapi dengan ingatan. Mereka menampilkan masa ketika tiap bangsa memuja mereka, lalu menuduh Jalan Keempat hendak menghapus sejarah tersebut.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan sekutu lintas kekaisaran yang tiba melalui gerbang, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael tidak menyangkal ketakutan mereka.
 
-Di balik penghalang Perang Sisa Entitas, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa Menara Fragmen di Inti Kosmos melupakan bentuk alaminya.
+“Kalian tidak harus dilupakan,” katanya. “Tetapi ingatan tidak memberi hak untuk memerintah.”
 
-“Kita sudah melewati pintu Perang Sisa Entitas, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zevaron. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Jawaban itu memicu perang.
 
-Suara pertama dari Fragmen jiwa dan dewa-dewa tak selesai datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Dewa-dewa gagal turun dari menara, memakai tubuh dari fragmen jiwa orang-orang yang pernah berdoa kepada mereka.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Perang Sisa Entitas terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kael memerintahkan pasukan menahan serangan tanpa menghancurkan wadah.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Fragmen jiwa dan dewa-dewa tak selesai muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Perang Sisa Entitas baru saja dimulai.
+Mereka harus memisahkan jiwa dari kehendak yang menungganginya.
