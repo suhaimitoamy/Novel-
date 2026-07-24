@@ -1,25 +1,51 @@
 # Episode 257 — Suara dari Pengkhianatan Celestial
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di Istana Langit Lykaros. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jenderal Aerthys menutup arsip dengan segel berlapis.
 
-Sejak benturan sebelumnya, pola Jenderal Celestial dan hakim cahaya terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membongkar dewan yang menjual perang kepada para dewa, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Cahaya memenuhi ruangan dan mengubah setiap permukaan menjadi cermin. Pada masing-masing pantulan, Zevaron duduk di takhta Rhythor sebagai pemimpin sempurna: tidak menua, tidak ragu, dan tidak pernah kehilangan perang.
 
-“Ada lapisan lain di bawah Pengkhianatan Celestial. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zevaron. Kael memandangi garis-garis pada permukaan. Ia tahu Zevaron benar. Kekuatan mentah hanya akan mempercepat bencana.
+“Dewan tidak menjual bangsa kita,” kata Aerthys. “Kami memastikan Rhythor tidak lagi bergantung pada kelemahan satu manusia.”
 
-Ia mengalirkan pembiasan cahaya untuk memutus segel Celestial melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Zevaron menatap versi dirinya yang tersenyum tanpa emosi.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan pemberontakan kecil Zevaron. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Kalian menyebut tubuh tanpa kehendak sebagai pemimpin?”
 
-Kael menyentuh rekaman Pengkhianatan Celestial. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Keinginan pribadi adalah sumber ketidakstabilan.”
 
-Ia memutus kontak dengan rekaman Pengkhianatan Celestial sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Para hakim cahaya mengaktifkan rantai suksesi. Rune pada lantai mengenali darah Zevaron dan mencoba memaksanya berlutut.
 
-“Ini bukan hanya jejak serangan di Pengkhianatan Celestial,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zevaron. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Kael membiaskan cahaya segel melalui lapisan Pulse merah dan biru. Tanpa cahaya Sylvara dan tanpa entropi murni, dia tidak dapat menghancurkan rune. Dia hanya mengubah jalur agar perintah tidak mencapai tubuh Zevaron.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Jenderal Celestial dan hakim cahaya telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Aerthys menyerang dengan tombak cahaya.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—dewan ingin menjadikan Zevaron wadah dewa baru.
+Kael menahan ujungnya memakai tongkat Eira. Benturan membuat tangan kanannya mati rasa, tetapi Zevaron mendapat waktu untuk melepaskan badai ke langit-langit dan memecah satu jalur segel.
 
-“Kalau petunjuk tentang Pengkhianatan Celestial ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zevaron. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Prajurit Celestial di belakang jenderal ragu.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Jenderal Celestial dan hakim cahaya berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Mereka telah diberi tahu Zevaron berkhianat kepada Rhythor. Rekaman di arsip menunjukkan dewan sendiri berniat menghapus jiwa pangeran demi menciptakan penguasa abadi.
+
+Kael mengirim bukti tersebut ke seluruh sistem istana.
+
+Hakim-hakim cahaya langsung memutus transmisi, tetapi beberapa detik cukup. Layar, patung leluhur, dan kristal komunikasi di seluruh Lykaros menampilkan ritual Wadah Dewa.
+
+Suara marah muncul dari banyak lorong.
+
+Aerthys tidak panik.
+
+“Rakyat akan takut, lalu meminta perlindungan. Saat itulah mereka menerima pemimpin yang tidak dapat gagal.”
+
+Zevaron membaca bagian akhir rekaman.
+
+Ritual tidak membutuhkan persetujuannya. Sayap kiri dan kanan berfungsi sebagai dua jangkar jiwa. Memotong salah satunya akan membuka ruang bagi kesadaran dewa masuk ke tubuh.
+
+Para hakim membentuk lingkaran dan mengarahkan cahaya ke sayap Zevaron.
+
+Kael mencoba memutus simpul, tetapi segel telah belajar dari pola Pulse-nya.
+
+“Aku sasaran utamanya,” kata Zevaron. “Berhenti melindungiku dan buka pintu bagi bukti itu.”
+
+Kael memahami rencananya.
+
+Zevaron akan menahan ritual sendiri, sementara Kael membebaskan arsip dari segel dewan.
+
+Jika terlambat, Rhythor mendapatkan dewa baru yang memakai wajah pangeran yang telah kehilangan kehendaknya.
