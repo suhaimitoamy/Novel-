@@ -1,25 +1,23 @@
 # Episode 473 — Benturan Sidang Dewa Terakhir
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di Jalan Kosong menuju Langit Terakhir. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Hakim ilahi menyerang dengan vonis, bukan senjata.
 
-Serangan hakim ilahi dari dua belas kultus datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Setiap kata mencoba mengubah tubuh sekutu menjadi bukti kesalahan Kael. Fragmen perusak menyala saat seseorang meragukan keputusan sendiri.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan Zevaron dan sisa legiun bebas, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Zevaron memimpin legiun menjaga identitas. Kael memakai deteksi anomali massa untuk menandai simpul tanpa memicu ledakan.
 
-Kael menerapkan deteksi anomali massa pada Fragmen perusak. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Mereka mendekati pusat.
 
-“Sekarang, Kael! Simpul Sidang Dewa Terakhir ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Hakim terakhir mengaktifkan semua Fragmen sekaligus.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Jalan Kosong menuju Langit Terakhir sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael dapat menyerapnya ke dalam Ragnarok Pulse, tetapi tubuhnya akan menjadi bom yang mampu menghancurkan Zerath.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Dalam benturan Sidang Dewa Terakhir, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Seorang sekutu bernama Orin menawarkan memindahkan semuanya ke tubuhnya karena sudah beresonansi dengan salah satu Fragmen.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Sidang Dewa Terakhir tetap memiliki batas yang tak boleh dilanggar.
+Kael menolak pengorbanan tanpa pilihan lain.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Zevaron dan sisa legiun bebas untuk menghantam pusat kendali yang baru terlihat.
+Orin menatapnya. “Kau tidak berhak melarangku hanya karena kau takut kehilangan.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: mereka ingin menghapus bukti agar dapat mewarisi Sistem. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael mencari alternatif sambil menahan ledakan.
 
-Kael merasakan kemenangan kecil atas lapisan luar Sidang Dewa Terakhir, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Jalan Kosong menuju Langit Terakhir menjawab dengan satu denyut yang membuat gigi mereka bergetar.
-
-“Kita membangunkan pusat Sidang Dewa Terakhir,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama hakim ilahi dari dua belas kultus mulai bergerak dari kedalaman.
+Waktu mereka hampir habis.

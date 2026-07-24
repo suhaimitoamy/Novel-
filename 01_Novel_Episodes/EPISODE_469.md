@@ -1,21 +1,23 @@
 # Episode 469 — Harga yang Dituntut Penebusan yang Tidak Selesai
 
-Sidang terbuka digelar di Kuil Kehidupan yang dikepung. Kael berdiri tanpa senjata, sementara agen Dewa Terakhir dan warga yang terpecah memaparkan setiap kegagalannya. Banyak tuduhan benar. Sebagian dipelintir. Ia menjawab keduanya dengan nada yang sama.
+Majelis menjatuhkan putusan kepada Marek: kehilangan jabatan, kerja pemulihan seumur hidup, dan hak korban menolak kehadirannya.
 
-Sylvara duduk di antara warga, bukan di sisinya. Kael meminta itu agar kesaksian tidak berubah menjadi pertunjukan kesetiaan.
+Kael juga dipanggil sebagai saksi dan terdakwa atas keputusan-keputusan lain yang muncul selama pengepungan.
 
-Ketika bukti tentang belas kasih tidak sama dengan membebaskan seseorang dari konsekuensi dibuka, ruangan pecah oleh teriakan. Kael menahan Pulse dan membiarkan ketakutan bergerak sampai orang-orang siap mendengar lagi.
+Dia menerima pengadilan rakyat setelah pertempuran.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Ia mengakui keputusan yang tidak akan diulanginya. Ia juga menolak mengaku bersalah atas hal yang tidak dilakukannya hanya demi mendapatkan akhir yang cepat.
+Harga Penebusan yang Tidak Selesai bukan luka fisik. Kael harus membiarkan orang-orang yang baru dia selamatkan mengadilinya dan sekutunya tanpa mengambil alih hasil.
 
-“Penebusan tanpa kebenaran hanya kebohongan yang terdengar rendah hati,” kata Sylvara. Kalimat itu membantu Kael berdiri tegak tanpa berubah defensif.
+Sebagian warga menganggap hukuman Marek terlalu ringan. Sebagian terlalu berat.
 
-Agen Dewa Terakhir dan warga yang terpecah kehilangan kendali dan menyerang. Kael menggunakan Pulse presisi yang melumpuhkan tanpa merusak sel untuk menghentikannya tanpa melukai seorang saksi pun.
+Tidak ada putusan yang memuaskan semua pihak.
 
-Kael menerima pengadilan rakyat setelah pertempuran. Harga itu terlihat oleh semua orang, namun sidang tetap berjalan. Kael menerima bahwa rasa sakitnya tidak menghapus rasa sakit mereka.
+Kebenaran tetap dijaga: belas kasih tidak sama dengan membebaskan seseorang dari konsekuensi.
 
-Majelis yang menangani Penebusan yang Tidak Selesai menjatuhkan keputusan yang tidak memuaskan semua pihak. Kael menerimanya dan bersedia menjalankan kewajiban yang ditetapkan.
+Marek dibawa pergi tanpa menjadi martir atau monster sederhana.
 
-Sebelum sidang berakhir, majelis memutuskan perlawanan terakhir terhadap agen Dewa Terakhir dan warga yang terpecah akan dilakukan malam itu. Ancaman dari luar mencoba memaksa warga kembali bergantung pada Kael.
+Kael tidak merasa kisahnya selesai.
 
-Ia menoleh kepada majelis yang menangani Penebusan yang Tidak Selesai dan menunggu perintah mereka. Kebebasan, pikirnya, juga berarti memberi orang lain hak menentukan kapan bantuannya dibutuhkan.
+Penebusan memang tidak memiliki akhir bersih.
+
+Ia menjadi kerja yang harus diteruskan bahkan setelah sorak pertempuran hilang.

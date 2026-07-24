@@ -1,21 +1,23 @@
 # Episode 465 — Pengkhianatan di Air Hitam
 
-Malam terakhir di kuil kehidupan di tepi air hitam tidak membawa pengampunan, hanya keputusan. Kael dan warga bersiap untuk mengantar anak buta dan menghadapi kenangan korban sementara bayangan rasa bersalah yang mengambil bentuk orang mati mendekat.
+Sekutu yang berkhianat adalah seorang penjaga yang pernah bertarung bersama Kael di Valerium.
 
-Rencana disusun oleh majelis, bukan oleh Kael seorang. Perannya dibatasi dengan jelas. Ia menerima batas itu dan menempatkan kejujuran anak yang mengenali orang lewat suara sesuai keputusan bersama.
+Namanya Marek. Dewa Terakhir menjanjikan kebangkitan keluarganya bila dia menyerahkan Anak Buta dan jalur menuju Danau Penyesalan.
 
-Serangan datang saat lonceng berbunyi. Kael memakai gelombang memori pada permukaan air dengan presisi, membuka ruang bagi warga untuk mempertahankan rumah mereka sendiri.
+Marek membuka gerbang saat warga tidur.
 
-Anak Buta bertarung di sisi lain alun-alun. Mereka tidak perlu saling memanggil; kepercayaan mereka kini cukup dewasa untuk tidak selalu berada dalam jangkauan tangan.
+Agen kegelapan masuk melalui air dan membangunkan kembali bayangan rasa bersalah. Majelis menyusun pertahanan. Kael menunggu perintah mereka, bukan mengambil alih.
 
-Bayangan rasa bersalah yang mengambil bentuk orang mati menawarkan akhir mudah jika Kael mengambil alih seluruh kekuasaan. Ia menolak. Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam.
+Anak Buta mengenali Marek dari suaranya.
 
-Kemenangan diraih oleh banyak tangan. Kael hanya menahan pukulan yang tidak dapat ditahan orang lain. Kael melepaskan satu kenangan bahagia untuk menutup luka danau, tetapi tak satu pun warga kehilangan hak memilih.
+“Kau menyesal sebelum melakukannya.”
 
-Sesudahnya terungkap bahwa penebusan bukan hukuman tanpa akhir, tetapi tanggung jawab yang terus hidup. Majelis mencatat kebenaran itu bersama kesalahan Kael, tanpa menghapus salah satunya.
+“Itu tidak menghentikanku.”
 
-“Apakah ini cukup?” tanya Anak Buta. Kael melihat rumah-rumah rusak dan orang-orang yang masih berkabung. “Tidak. Tapi ini nyata.” Jawaban itu adalah satu-satunya yang dapat ia berikan.
+Kael dapat membunuh Marek sebelum gerbang terbuka penuh. Dia memilih melumpuhkannya tanpa merusak tubuh.
 
-Lalu sekutu lama mengkhianati rombongan demi sisa dewa. Warga memutuskan langkah berikut melalui suara mereka sendiri. Kael berdiri di belakang keputusan tersebut, bukan di atasnya.
+Agen membawa Marek sebagai wadah dan melarikan diri menuju Kuil Kehidupan.
 
-Ia meninggalkan kuil kehidupan di tepi air hitam tanpa gelar baru. Beberapa orang masih membencinya. Beberapa mulai percaya. Keduanya berhak membawa perasaan itu ke hari esok.
+Kael mengejar bukan untuk membebaskannya dari konsekuensi, tetapi karena tubuh sekutu lama itu sedang dipakai sebagai pintu.
+
+Belas kasih berikutnya harus hidup bersama pengadilan, bukan menggantikannya.

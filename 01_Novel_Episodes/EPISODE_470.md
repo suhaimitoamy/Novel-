@@ -1,21 +1,23 @@
 # Episode 470 — Langit Memanggil Sidang Terakhir
 
-Malam terakhir di Kuil Kehidupan yang dikepung tidak membawa pengampunan, hanya keputusan. Kael dan warga bersiap untuk menyelamatkan pengkhianat tanpa menyangkal kejahatannya sementara agen Dewa Terakhir dan warga yang terpecah mendekat.
+Kuil Kehidupan bertahan.
 
-Rencana disusun oleh majelis, bukan oleh Kael seorang. Perannya dibatasi dengan jelas. Ia menerima batas itu dan menempatkan majelis warga yang baru belajar mengadili sesuai keputusan bersama.
+Majelis mengambil alih pemulihan. Kael tidak diberi gelar, hanya daftar kewajiban yang harus diselesaikan bersama warga.
 
-Serangan datang saat lonceng berbunyi. Kael memakai Pulse presisi yang melumpuhkan tanpa merusak sel dengan presisi, membuka ruang bagi warga untuk mempertahankan rumah mereka sendiri.
+Marek hidup untuk menghadapi akibat pengkhianatannya. Agen Dewa Terakhir ditahan tanpa menjadi alasan menghapus hukum rakyat.
 
-Sylvara bertarung di sisi lain alun-alun. Mereka tidak perlu saling memanggil; kepercayaan mereka kini cukup dewasa untuk tidak selalu berada dalam jangkauan tangan.
+Langit kemudian berubah.
 
-Agen Dewa Terakhir dan warga yang terpecah menawarkan akhir mudah jika Kael mengambil alih seluruh kekuasaan. Ia menolak. Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit.
+Dua belas lambang kultus kecil muncul di atas Jalan Kosong. Mereka adalah sisa dewa yang bertahan setelah Trinitas jatuh, masing-masing ingin mewarisi Sistem.
 
-Kemenangan diraih oleh banyak tangan. Kael hanya menahan pukulan yang tidak dapat ditahan orang lain. Kael menerima pengadilan rakyat setelah pertempuran, tetapi tak satu pun warga kehilangan hak memilih.
+Mereka mengumumkan Sidang Dewa Terakhir.
 
-Sesudahnya terungkap bahwa belas kasih tidak sama dengan membebaskan seseorang dari konsekuensi. Majelis mencatat kebenaran itu bersama kesalahan Kael, tanpa menghapus salah satunya.
+Kael dipanggil sebagai terdakwa, tetapi kali ini Zerath juga dipanggil sebagai saksi. Hakim ilahi menjanjikan bahwa semua perang akan berakhir bila dunia menyerahkan kembali arsip dan Fragmen.
 
-“Apakah ini cukup?” tanya Sylvara. Kael melihat rumah-rumah rusak dan orang-orang yang masih berkabung. “Tidak. Tapi ini nyata.” Jawaban itu adalah satu-satunya yang dapat ia berikan.
+Zevaron datang bersama legiun bebas.
 
-Lalu sidang para dewa terakhir diumumkan dari langit. Warga memutuskan langkah berikut melalui suara mereka sendiri. Kael berdiri di belakang keputusan tersebut, bukan di atasnya.
+“Ini bukan sidang,” katanya. “Mereka ingin menghapus bukti sebelum mengambil takhta kosong.”
 
-Ia meninggalkan Kuil Kehidupan yang dikepung tanpa gelar baru. Beberapa orang masih membencinya. Beberapa mulai percaya. Keduanya berhak membawa perasaan itu ke hari esok.
+Warga Kuil memilih mengirim Kael sebagai wakil terbatas, bukan penguasa.
+
+Dia berjalan menuju Jalan Kosong membawa mandat yang dapat dicabut.

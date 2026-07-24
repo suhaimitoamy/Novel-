@@ -1,21 +1,21 @@
 # Episode 461 — Jejak Danau Penyesalan
 
-Tak ada monster yang menunggu Kael di kuil kehidupan di tepi air hitam. Yang menunggunya adalah orang-orang: wajah letih, pakaian berkabung, tangan yang pernah menggali keluarga dari reruntuhan. Suara mereka berhenti ketika ia datang.
+Danau Penyesalan tidak memantulkan wajah.
 
-Kael datang untuk mengantar anak buta dan menghadapi kenangan korban. Ia sengaja menahan Ragnarok Pulse sampai hanya tersisa denyut redup di dada. Di tempat ini, kekuatan bukan jawaban; kehadirannya sendiri sudah terasa seperti ancaman.
+Permukaannya menampilkan orang yang paling ingin dihindari oleh siapa pun yang berdiri di tepi. Bagi Kael, air memperlihatkan ibunya, Nira, Eira, dan warga yang mati karena keputusan perang.
 
-Sebuah batu mengenai bahunya. Ia tidak menghindar. Batu kedua melukai pelipis. “Kau boleh melindungi dirimu,” kata Anak Buta. Kael menggeleng. “Bukan dari ini.” Ia tahu kemarahan tidak selalu adil, tetapi sebagian telah lahir dari tindakannya.
+Anak Buta tidak melihat gambar, tetapi mendengar suara di dalam air.
 
-Seorang warga maju dan menyebut nama korban. Lalu nama lain. Kael mendengarkan tanpa membela niatnya. Bayangan rasa bersalah yang mengambil bentuk orang mati berada di antara kerumunan, tetapi ia menolak menjadikan seluruh kerumunan sebagai musuh.
+“Mereka tidak semuanya jiwa,” katanya. “Sebagian hanya rasa bersalah yang belajar memakai wajah.”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Ia mencatat setiap nama pada lembar yang dibawa Zireth. Daftar itu jauh lebih berat daripada senjata mana pun yang pernah diangkatnya.
+Kuil Kehidupan di tepi danau dijaga majelis lokal. Mereka melarang Kael memakai Pulse tanpa izin karena satu gelombang dapat membuat seluruh air mengulang kenangan korban.
 
-Ketika pertengkaran hampir berubah menjadi pembantaian, Kael memakai gelombang memori pada permukaan air hanya untuk melumpuhkan bilah yang terhunus. Tak seorang pun terluka. Pembatasan itu menuntut konsentrasi lebih besar daripada sebuah ledakan.
+Kael menyetujui.
 
-Peristiwa tersebut membuka percakapan yang sebelumnya mustahil. Di dalam kesaksian warga, Kael menemukan bahwa penebusan bukan hukuman tanpa akhir, tetapi tanggung jawab yang terus hidup. Ia tidak meminta maaf agar dimaafkan. Ia meminta maaf karena kebenaran menuntutnya.
+Malam pertama, bayangan orang mati keluar dari permukaan. Mereka menuduh Kael atas kesalahan yang benar dan kesalahan yang tidak pernah dilakukannya.
 
-Kael melepaskan satu kenangan bahagia untuk menutup luka danau mulai terasa sebagai pekerjaan yang harus dijalani, bukan hukuman satu malam. Kael menerima syarat-syarat warga satu per satu, termasuk yang membuatnya tidak nyaman.
+Dia menjawab keduanya dengan nada yang sama, tetapi tidak menerima tuduhan palsu hanya agar penderitaan berhenti.
 
-Saat malam turun, seorang penghasut yang memanfaatkan bayangan rasa bersalah yang mengambil bentuk orang mati bergerak dari balik kerumunan. Orang-orang kembali gelisah. Kael berdiri di antara mereka dan ancaman baru tanpa meminta mereka mempercayainya.
+Anak Buta memimpin mereka menuju pusat danau.
 
-Ia hanya berkata bahwa siapa pun di kuil kehidupan di tepi air hitam berhak mengawasi apa yang akan dilakukannya. Untuk pertama kalinya, beberapa orang tetap tinggal untuk melihat.
+Di bawah air hitam terdapat luka memori yang hanya dapat ditutup dengan satu kenangan bahagia yang diberikan sukarela.

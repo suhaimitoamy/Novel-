@@ -1,21 +1,21 @@
 # Episode 467 — Suara dari Penebusan yang Tidak Selesai
 
-Pagi di Kuil Kehidupan yang dikepung dipenuhi bunyi palu, roda, dan pertengkaran. Kael bekerja bersama warga untuk menyelamatkan pengkhianat tanpa menyangkal kejahatannya. Tangannya yang pernah meruntuhkan benteng kini mengangkat batu satu per satu.
+Majelis mengizinkan penggunaan Pulse dengan batas ketat.
 
-Sylvara mengingatkannya agar tidak mengubah pekerjaan itu menjadi pertunjukan penyesalan. Karena itu Kael menolak menggunakan Pulse kecuali ketika keselamatan seseorang terancam.
+Kael harus bekerja di hadapan saksi, membuka semua data, dan berhenti bila Marek mencabut persetujuan.
 
-Agen Dewa Terakhir dan warga yang terpecah menyebarkan kabar bahwa bantuan Kael adalah cara membeli pengampunan. Sebagian warga meninggalkan lokasi. Kael tidak mengejar mereka dan tidak menyuruh siapa pun membela namanya.
+Marek tertawa pahit. “Aku mengkhianati kalian. Kenapa persetujuanku masih penting?”
 
-Seorang perempuan tua di Kuil Kehidupan yang dikepung menanyakan mengapa ia baru datang sekarang. Kael menjawab, “Karena sebelumnya aku terlalu sibuk menyelamatkan dunia sampai lupa dunia terdiri dari rumah-rumah seperti ini.” Tidak ada tepuk tangan setelahnya.
+“Karena kejahatanmu tidak menghapus kepemilikan atas tubuhmu.”
 
-Mereka menemukan bukti bahwa belas kasih tidak sama dengan membebaskan seseorang dari konsekuensi. Fakta itu tidak menghapus kesalahan Kael; justru memperjelas bagian mana yang benar-benar menjadi tanggung jawabnya.
+Agen Dewa Terakhir mencoba memakai jawaban itu untuk memecah warga. Mereka menuduh Kael lebih peduli pada pengkhianat daripada korban.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Ia menggunakan Pulse presisi yang melumpuhkan tanpa merusak sel untuk menyelesaikan satu bahaya tersembunyi tanpa merusak bangunan di sekelilingnya. Tindakan presisi itu membuat luka lama di lengannya terbuka kembali.
+Sylvara berkata, “Belas kasih tidak sama dengan membebaskan seseorang dari konsekuensi.”
 
-Kael menerima pengadilan rakyat setelah pertempuran. Warga melihat harga tersebut, tetapi Kael tidak menggunakannya untuk meminta simpati. Ia membalut luka dan kembali bekerja.
+Kael memisahkan kutukan satu lapis demi satu. Marek merasakan semua luka yang ditanam agen, tetapi tetap sadar.
 
-Menjelang senja, seseorang yang pernah diselamatkannya mengangkat senjata. Sylvara bergerak, namun Kael meminta semua orang berhenti. Ia ingin mendengar alasan orang itu sebelum menentukan tindakan.
+Warga melihat bahwa penyelamatan tubuh dan pengadilan tindakan dapat berlangsung bersamaan.
 
-Alasan tersebut membawa mereka pada jaringan pendukung agen Dewa Terakhir dan warga yang terpecah. Persoalan yang tampak pribadi ternyata terhubung dengan ancaman lebih besar.
+Agen menyerang majelis.
 
-Kael meninggalkan alat kerjanya di tanah, di tengah Kuil Kehidupan yang dikepung, lalu mengikuti jejak baru. Beberapa warga ikut, bukan sebagai pengikut, melainkan sebagai saksi.
+Kael melumpuhkan tanpa membunuh, lalu kembali berdiri sebagai terdakwa dalam sidang terbuka.

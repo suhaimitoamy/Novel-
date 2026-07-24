@@ -1,21 +1,19 @@
 # Episode 464 — Harga yang Dituntut Danau Penyesalan
 
-Sidang terbuka digelar di kuil kehidupan di tepi air hitam. Kael berdiri tanpa senjata, sementara bayangan rasa bersalah yang mengambil bentuk orang mati memaparkan setiap kegagalannya. Banyak tuduhan benar. Sebagian dipelintir. Ia menjawab keduanya dengan nada yang sama.
+Air hitam menjadi tenang setelah menerima kenangan Kael.
 
-Anak Buta duduk di antara warga, bukan di sisinya. Kael meminta itu agar kesaksian tidak berubah menjadi pertunjukan kesetiaan.
+Dia mengingat fakta malam tersebut—tempat, kata-kata, dan wajah Sylvara—tetapi kehangatan yang membuatnya berharga telah hilang.
 
-Ketika bukti tentang penebusan bukan hukuman tanpa akhir, tetapi tanggung jawab yang terus hidup dibuka, ruangan pecah oleh teriakan. Kael menahan Pulse dan membiarkan ketakutan bergerak sampai orang-orang siap mendengar lagi.
+Harga Danau Penyesalan permanen: Kael melepaskan satu kenangan bahagia untuk menutup luka.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia mengakui keputusan yang tidak akan diulanginya. Ia juga menolak mengaku bersalah atas hal yang tidak dilakukannya hanya demi mendapatkan akhir yang cepat.
+Sylvara tidak mencoba menciptakan ulang malam itu. “Kenangan baru tidak boleh dipakai sebagai pengganti yang diwajibkan.”
 
-“Penebusan tanpa kebenaran hanya kebohongan yang terdengar rendah hati,” kata Anak Buta. Kalimat itu membantu Kael berdiri tegak tanpa berubah defensif.
+Majelis mencatat kebenaran danau: penebusan bukan hukuman tanpa akhir, melainkan tanggung jawab yang terus hidup. Rasa bersalah dapat menjadi petunjuk, tetapi tidak berhak mengambil seluruh masa depan.
 
-Bayangan rasa bersalah yang mengambil bentuk orang mati kehilangan kendali dan menyerang. Kael menggunakan gelombang memori pada permukaan air untuk menghentikannya tanpa melukai seorang saksi pun.
+Bayangan korban asli memperoleh tempat dalam arsip. Bentuk yang hanya memakai wajah orang mati larut kembali menjadi air.
 
-Kael melepaskan satu kenangan bahagia untuk menutup luka danau. Harga itu terlihat oleh semua orang, namun sidang tetap berjalan. Kael menerima bahwa rasa sakitnya tidak menghapus rasa sakit mereka.
+Kael berdiri tanpa merasa lebih suci.
 
-Majelis yang menangani Danau Penyesalan menjatuhkan keputusan yang tidak memuaskan semua pihak. Kael menerimanya dan bersedia menjalankan kewajiban yang ditetapkan.
+Dia kehilangan sesuatu yang baik agar danau tidak terus menelan orang lain.
 
-Sebelum sidang berakhir, majelis memutuskan perlawanan terakhir terhadap bayangan rasa bersalah yang mengambil bentuk orang mati akan dilakukan malam itu. Ancaman dari luar mencoba memaksa warga kembali bergantung pada Kael.
-
-Ia menoleh kepada majelis yang menangani Danau Penyesalan dan menunggu perintah mereka. Kebebasan, pikirnya, juga berarti memberi orang lain hak menentukan kapan bantuannya dibutuhkan.
+Saat fajar, salah satu sekutu lama mencuri jalur menuju pusat kuil dan membuka gerbang bagi agen Dewa Terakhir.

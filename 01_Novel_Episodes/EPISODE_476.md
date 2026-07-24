@@ -1,25 +1,23 @@
 # Episode 476 — Jejak Sekutu Terakhir
 
-Butiran cahaya melayang seperti abu dari bintang mati di benteng di ujung Jalan Kosong. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Benteng di ujung Jalan Kosong berdiri di atas kehampaan.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menyelamatkan pembawa Fragmen perusak. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Orin menjadi kunci hidup. Setiap langkahnya membuka satu segel, tetapi juga mempercepat ledakan Fragmen dalam tubuh.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan keputusan pahit sekutu yang tak bisa dibatalkan, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Sylvara menjaga sisi kanan. Zevaron dan legiun bebas menahan agen kegelapan di belakang. Zireth menghitung perpindahan massa dari jauh.
 
-Kael memusatkan napas dan menggunakan pengalihan massa singularitas terbatas. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik kutukan ledakan ilahi dan pasukan agen kegelapan.
+Kael berjalan di samping Orin.
 
-Denyut Sekutu Terakhir segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Kau masih bisa berhenti.”
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di Sekutu Terakhir, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Begitu juga kau.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan keputusan pahit sekutu yang tak bisa dibatalkan, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Mereka tahu jawaban masing-masing.
 
-Di balik penghalang Sekutu Terakhir, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa benteng di ujung Jalan Kosong melupakan bentuk alaminya.
+Kutukan ledakan ilahi membentuk pasukan dari bayangan sekutu yang mati. Tujuannya bukan mengalahkan Kael, melainkan memaksa Orin kehilangan kendali.
 
-“Kita sudah melewati pintu Sekutu Terakhir, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael memakai pengalihan massa singularitas terbatas untuk meringankan Fragmen tanpa memindahkannya.
 
-Suara pertama dari kutukan ledakan ilahi dan pasukan agen kegelapan datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Teknik itu memberi beberapa menit.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Sekutu Terakhir terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
-
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama kutukan ledakan ilahi dan pasukan agen kegelapan muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Sekutu Terakhir baru saja dimulai.
+Di pusat benteng, mereka menemukan ruang yang dapat membuang Fragmen ke kehampaan—tetapi hanya bila pemilik resonansi masuk bersamanya.
