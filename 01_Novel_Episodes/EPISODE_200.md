@@ -1,27 +1,59 @@
 # Episode 200 — Tubuh yang Memilih Luka
 
-Butiran cahaya melayang seperti abu dari bintang mati di labirin kesadaran Kael. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael terbangun di ruang medis bawah The Core.
 
-Semua jalan di labirin kesadaran Kael berakhir pada satu pusat. Di sanalah salinan Kael tanpa rasa sakit dan belas kasih menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat merebut kendali tubuhnya dari Voidmaker mustahil dilakukan.
+Napas pertama terasa seperti menelan pecahan kaca. Lengan kirinya tidak bergerak. Kaki kanan hanya merasakan tekanan samar, sementara setiap detak jantung datang dengan jeda yang membuat Sylvara menatap monitor tanpa berkedip.
 
-“Kita mencapai pusat Wadah Entropi bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Eira. Kael menatap Eira, lalu pada resonansi kasar Eira dari dunia nyata. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+“Kael?”
 
-Mereka bergerak serempak. Sekutunya menggunakan resonansi kasar Eira dari dunia nyata untuk memecah lapisan luar, sedangkan Kael menyusupkan desinkronisasi impuls saraf dan frekuensi jiwa ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Dia mencoba menjawab. Suaranya keluar serak.
 
-Kael tidak melawan semua lapisan Wadah Entropi. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Masih aku.”
 
-Di pusat jaring Wadah Entropi itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Sylvara menutup mata sesaat. Zireth berdiri di sisi lain ranjang dan membaca jalur saraf melalui lengan bintang.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Di pusat Wadah Entropi, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Eira tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Voidmaker tidak lagi mengendalikan tubuhmu. Pintu Entropi terputus.”
 
-Salinan Kael tanpa rasa sakit dan belas kasih mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+“Kerusakannya?”
 
-Tidak ada ledakan besar. Salinan Kael tanpa rasa sakit dan belas kasih retak dalam keheningan labirin kesadaran Kael. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Eira menahannya sebelum kepalanya membentur tanah.
+“Sebagian saraf motorik telah kau rusak sendiri.” Zireth tidak memperhalus kalimatnya. “Lengan kiri lumpuh untuk sekarang. Kaki kanan mungkin pulih sebagian. Kami belum tahu efek pada Ragnarok Pulse.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Ragnarok Pulse diciptakan dari bekas luka Voidmaker pada realitas. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Seorang perempuan tua duduk di sudut ruangan. Rambut putihnya dikepang kasar, kulitnya dipenuhi bekas luka, dan sebuah kapak besar bersandar pada kursi.
 
-Kael memandangi sisa-sisa pusat kendali Wadah Entropi. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+“Jadi bocah keras kepala ini akhirnya bangun,” katanya.
 
-“Apakah Wadah Entropi benar-benar berakhir?” tanya Eira. Kael mendengarkan gema terakhir sebelum menjawab, “Benturannya berakhir. Akibatnya baru dimulai.” Eira, seorang Furyborn tua, memanggil dari luar labirin.
+Kael mengenali suaranya dari labirin. “Eira.”
 
-Kael meninggalkan medan Wadah Entropi tanpa menoleh. Pintu di depan belum memiliki nama, tetapi setidaknya arah langkahnya tidak ditentukan nubuat.
+Perempuan itu menyeringai. “Furyborn tua yang menarik jiwamu pulang saat teman-temanmu terlalu sopan untuk memukul kesadaranmu.”
+
+Sylvara mendengus. “Kami tidak sopan.”
+
+“Kurang kasar.”
+
+Kael mencoba menggerakkan jari kiri. Tidak ada respons.
+
+Rasa kehilangan datang bersama bisikan halus dari Ragnarok Pulse. Keheningan akan lebih mudah. Dia dapat memakai entropi untuk menghapus jalur saraf rusak dan membangun tubuh baru tanpa rasa sakit.
+
+Kael menolak dorongan tersebut.
+
+Tubuh ini telah memilih luka agar tidak menjadi milik Voidmaker. Menghapus kerusakannya dengan kekuatan yang sama berarti membatalkan pilihan tersebut.
+
+“Aku akan belajar bergerak dengan tubuh ini,” katanya.
+
+Eira berdiri. “Bagus. Karena aku tidak datang untuk menyembuhkanmu.”
+
+Dia melemparkan tongkat pendek ke ranjang. Kael menangkapnya dengan tangan kanan.
+
+“Aku datang untuk mengajarimu hidup ketika tubuh tidak lagi menuruti gambaran pahlawan dalam kepalamu.”
+
+Zireth menampilkan data baru. Selama Kael tidak sadar, Sistem Pahlawan mengirim pasukan pemburu ke berbagai wilayah. Beberapa telah mendekati The Core.
+
+Kael memandang tongkat di tangannya.
+
+Episode perjalanan yang lama berakhir pada tubuh yang rusak, kenangan berlubang, dan umur yang berkurang.
+
+Namun tubuh itu tetap memilih hidup.
+
+Dia duduk perlahan dengan bantuan Sylvara.
+
+“Mulai latihannya.”
