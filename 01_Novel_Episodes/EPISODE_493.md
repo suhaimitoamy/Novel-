@@ -1,25 +1,33 @@
 # Episode 493 — Benturan Harga Menumbangkan Dewa
 
-Debu bergerak melawan arah angin di inti Singgasana yang runtuh. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Seluruh cadangan energi ilahi dilepaskan sekaligus.
 
-Serangan ledakan seluruh cadangan energi ilahi datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Cahaya di inti Singgasana memadat menjadi tekanan yang mampu menguapkan kota. Tiga jangkar menahan arah ledakan, tetapi masing-masing mulai retak.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Zireth, Zevaron, dan Sylvara menjaga jangkar dunia, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael memasukkan Pulse ke konstanta elektromagnetik. Dia tidak menyerap energi. Dia memisahkan kesadaran yang memberi perintah dari hukum yang membawa cahaya.
 
-Kael menerapkan ekstraksi kesadaran dari konstanta elektromagnetik. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Raja dewa berpindah dari foton ke panas, dari panas ke medan listrik, lalu ke saraf Kael sendiri.
 
-“Sekarang, Kael! Simpul Harga Menumbangkan Dewa ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Untuk sesaat, Kael merasakan kehendak asing di balik matanya.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh inti Singgasana yang runtuh sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+**Kau sudah menjadi pusat. Terima saja namanya.**
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Harga Menumbangkan Dewa, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael menurunkan amplitudo dan memaksa kesadaran itu keluar melalui jalur yang dijaga Sylvara.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Harga Menumbangkan Dewa tetap memiliki batas yang tak boleh dilanggar.
+Zireth mengalihkan energi ke orbit kosong. Zevaron menahan cahaya agar tidak kembali ke Zerath. Para sekutu di bawah menjaga jangkar wilayah tanpa menunggu perintah Kael.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Zireth, Zevaron, dan Sylvara menjaga jangkar dunia untuk menghantam pusat kendali yang baru terlihat.
+Satu jalur pelepasan pecah.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: dewa dapat tumbang tanpa membuat matahari ikut padam. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael dapat memakai entropi penuh dan menghapus ledakan, tetapi konstanta cahaya akan ikut terluka. Sebaliknya, dia membakar bagian Pulse yang selama ini dapat bergerak tanpa recoil.
 
-Kael merasakan kemenangan kecil atas lapisan luar Harga Menumbangkan Dewa, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh inti Singgasana yang runtuh menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Denyut tersebut menjadi saluran murni.
 
-“Kita membangunkan pusat Harga Menumbangkan Dewa,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama ledakan seluruh cadangan energi ilahi mulai bergerak dari kedalaman.
+Ledakan mengalir melewatinya tanpa menempel pada dunia.
+
+Rasa sakit baru datang setelah proses selesai. Saraf Kael terbakar dari dalam, seolah tubuh menagih seluruh harga yang sempat ditunda.
+
+Di pusat medan, kesadaran raja dewa akhirnya terpisah dari cahaya.
+
+Ia jatuh sebagai makhluk terbatas.
+
+Namun cadangan energi terakhir masih bergerak menuju matahari Zerath.

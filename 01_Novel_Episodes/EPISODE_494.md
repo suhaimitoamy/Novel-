@@ -1,27 +1,35 @@
 # Episode 494 — Harga yang Dituntut Harga Menumbangkan Dewa
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di inti Singgasana yang runtuh. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael membakar bagian terakhir Ragnarok Pulse yang dapat digunakan tanpa recoil.
 
-Mereka telah kehilangan ruang untuk bergerak. Ledakan seluruh cadangan energi ilahi menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Tidak ada cadangan tersembunyi setelahnya. Setiap penggunaan kekuatan mulai sekarang akan langsung kembali ke tubuh, ingatan, atau jangkar dunia yang terhubung kepadanya.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael membakar bagian terakhir Pulse yang dapat dipakai tanpa recoil. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Ledakan ilahi dialihkan ke orbit kosong. Matahari berkedip satu kali, tetapi tidak padam.
 
-“Kita mundur dari Harga Menumbangkan Dewa. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Sylvara menemukan Kael berlutut di inti Singgasana. Cahaya mengalir dari retakan kulitnya, lalu berubah menjadi darah biasa.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Zireth, Zevaron, dan Sylvara menjaga jangkar dunia. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Bisa kau pakai lagi?”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan ekstraksi kesadaran dari konstanta elektromagnetik untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Bisa.”
 
-Ledakan seluruh cadangan energi ilahi bereaksi liar di pusat Harga Menumbangkan Dewa. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Dia tidak menyembunyikan bagian berikutnya.
 
-Kael menemukan benang kendali milik ledakan seluruh cadangan energi ilahi. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh inti Singgasana yang runtuh.
+“Dan tubuhku akan membayar saat itu juga.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Harga Menumbangkan Dewa akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Harga itu permanen. Kael tidak lagi memiliki satu pun denyut aman.
 
-“Tidak,” kata Kael di hadapan Harga Menumbangkan Dewa, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Raja dewa terakhir mencoba merangkak menuju hukum cahaya, tetapi Zireth, Zevaron, dan Sylvara menjaga tiga jangkar. Tidak ada satu orang pun menjadi pusat. Setiap jalur yang ingin dipakai dewa ditutup oleh keputusan bersama.
 
-Serangan mereka melalui Zireth, Zevaron, dan Sylvara menjaga jangkar dunia tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Kael tidak menghancurkan makhluk terbatas itu dalam amarah. Dia memisahkan sisa kendalinya, membuka bukti, dan membiarkan dunia menentukan pengadilannya.
 
-Saat debu Harga Menumbangkan Dewa turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael membakar bagian terakhir Pulse yang dapat dipakai tanpa recoil. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Dewa tersebut tertawa ketika rantai biasa mengikat tangannya.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Harga Menumbangkan Dewa terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Kau akan membutuhkan kekuatanku untuk membersihkan Fragmen.”
+
+Kael menatap dua belas denyut yang mulai terdengar dari bawah Zerath.
+
+Mungkin peringatan itu benar.
+
+Namun kebutuhan tidak mengembalikan hak untuk berkuasa.
+
+Di luar Singgasana, dua belas Fragmen serempak meminta dimurnikan.

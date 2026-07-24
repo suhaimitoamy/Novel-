@@ -1,21 +1,37 @@
 # Episode 499 — Gravitasi yang Terlepas
 
-Uji pemurnian pertama berlangsung selama tujuh detik. Pada detik kedelapan, gravitasi di Altar Primordial lepas dari arahnya.
+Uji pemurnian pertama berlangsung tujuh detik.
 
-Batu-batu lantai terangkat. Wadah stasis meluncur ke langit-langit. Darah dari luka lama Kael keluar sebagai bulatan merah yang mengambang di depan matanya.
+Pada detik kedelapan, gravitasi kehilangan arah.
 
-“Putuskan Pulse!” teriak Zireth sambil mengaitkan lengan bintangnya pada pilar. Namun Kael merasakan lapisan gelap sudah hampir terpisah dari Fragmen. Memutusnya sekarang dapat membuat lapisan itu kembali menjerat ingatan.
+Batu lantai terangkat. Wadah stasis meluncur ke langit-langit. Darah dari luka Kael keluar sebagai bulatan merah yang mengambang di depan matanya.
 
-Sylvara menembakkan panah cahaya ke empat sudut ruangan. Tali-tali energi terbentuk dan menjaga wadah tidak bertabrakan. Gema Pengetahuan melayang di atas kepalanya, mempertahankan wajah-wajah yang mulai kabur.
+“Putuskan Pulse!” teriak Zireth sambil mengaitkan lengan bintangnya pada pilar.
 
-Kael mengubah frekuensi, bukan menghentikannya. Ia menggeser fase seratus delapan puluh derajat dan menciptakan simpul tenang di sekitar inti. Gravitasi liar berkumpul pada simpul itu, memadat menjadi bola gelap seukuran kepalan tangan.
+Kael merasakan lapisan gelap hampir terpisah dari Fragmen. Bila dihentikan sekarang, noda dapat kembali menjerat ingatan para pemilik.
 
-Tekanan menghancurkan pembuluh kecil di mata Kael. Ia mendengar tulang jarinya retak, tetapi tetap menahan pola sampai Zireth mendorong wadah stasis ke bawah bola gravitasi.
+Sylvara menembakkan panah ke empat sudut ruangan. Tali energi menjaga wadah agar tidak bertabrakan. Gema Pengetahuan melayang di atasnya, mempertahankan wajah-wajah yang mulai kabur.
 
-“Sekarang!” Kael melepaskan simpul. Bola gelap jatuh ke wadah dan membuat seluruh altar berguncang. Wadah pertama menutup dengan suara logam berat.
+Kael mengubah frekuensi, bukan menghentikannya.
 
-Benda-benda kembali jatuh. Kael menghantam lantai pada bahu kirinya. Untuk beberapa saat, ia hanya mendengar napas Sylvara dan alarm pemindai Zireth.
+Dia menggeser fase seratus delapan puluh derajat dan membentuk simpul tenang di sekitar inti. Gravitasi liar berkumpul pada simpul itu, memadat menjadi bola gelap seukuran kepalan tangan.
 
-Fragmen yang diuji belum bersih, tetapi satu lapisan kendali dewa berhasil dipisahkan tanpa menghapus satu pun ingatan. Itu adalah keberhasilan—dan peringatan. Perubahan sekecil itu hampir membalikkan gravitasi seluruh altar.
+Recoil menghantam saat itu juga. Pembuluh di mata Kael pecah. Tulang jarinya retak, tetapi dia menahan pola sampai Zireth mendorong wadah stasis di bawah bola tersebut.
 
-Zireth menampilkan hasil pengukuran. Gangguan yang sama tercatat di pegunungan ratusan kilometer jauhnya. Kael menatap grafik tersebut dan akhirnya mengucapkan ketakutan mereka: “Fragmen bukan sekadar sumber tenaga. Mereka menahan sesuatu agar dunia tetap seperti sekarang.”
+“Sekarang!”
+
+Kael melepaskan simpul. Bola gelap jatuh ke wadah dan membuat altar berguncang.
+
+Benda-benda kembali menghantam lantai. Kael jatuh pada bahu kiri.
+
+Fragmen belum bersih, tetapi satu lapisan kendali dewa berhasil dipisahkan tanpa menghapus satu ingatan pun.
+
+Keberhasilan itu juga peringatan. Gangguan gravitasi yang sama tercatat di pegunungan ratusan kilometer jauhnya.
+
+Kael memandang grafik Zireth.
+
+“Fragmen tidak hanya memberi tenaga,” katanya. “Mereka menahan sesuatu agar dunia tetap seperti sekarang.”
+
+Di antara alarm, frekuensi ketiga belas muncul kembali dari luar atmosfer.
+
+Kali ini ia menjawab lebih lama.

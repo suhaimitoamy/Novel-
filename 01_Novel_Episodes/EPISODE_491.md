@@ -1,25 +1,35 @@
 # Episode 491 — Jejak Harga Menumbangkan Dewa
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di inti Singgasana yang runtuh. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Ledakan ilahi tumbuh di dalam cahaya Zerath.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: memisahkan raja dewa dari hukum cahaya. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Ia tidak berada pada satu tempat. Setiap sinar matahari, nyala api, dan pantulan logam membawa sebagian tekanannya. Menghancurkan sumber secara paksa dapat membuat seluruh konstanta elektromagnetik runtuh bersama raja dewa terakhir.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan Zireth, Zevaron, dan Sylvara menjaga jangkar dunia, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael memasuki inti Singgasana yang telah retak. Sylvara, Zireth, dan Zevaron tetap di luar untuk menjaga tiga jangkar dunia.
 
-Kael memusatkan napas dan menggunakan ekstraksi kesadaran dari konstanta elektromagnetik. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik ledakan seluruh cadangan energi ilahi.
+“Kalau satu jangkar lepas, hentikan proses,” kata Zireth.
 
-Denyut Harga Menumbangkan Dewa segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Walau aku masih di dalam?”
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di Harga Menumbangkan Dewa, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Terutama kalau kau masih di dalam.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan Zireth, Zevaron, dan Sylvara menjaga jangkar dunia, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael menerima batas itu.
 
-Di balik penghalang Harga Menumbangkan Dewa, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa inti Singgasana yang runtuh melupakan bentuk alaminya.
+Di pusat cahaya, raja dewa tidak lagi memiliki wajah. Kesadarannya tersebar di antara hukum yang mengatur foton, panas, dan medan listrik. Dia bersembunyi dengan menjadikan dunia sebagai tubuh terakhir.
 
-“Kita sudah melewati pintu Harga Menumbangkan Dewa, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Bunuh aku,” suaranya datang dari seluruh arah, “dan matahari kalian ikut mati.”
 
-Suara pertama dari ledakan seluruh cadangan energi ilahi datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Kael tidak menyerang.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Harga Menumbangkan Dewa terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Dia mengirim Pulse selemah mungkin, membedakan kesadaran dewa dari konstanta alam yang ditumpanginya. Setiap kali menemukan satu simpul, ledakan cadangan energi bergerak ke simpul lain.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama ledakan seluruh cadangan energi ilahi muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Harga Menumbangkan Dewa baru saja dimulai.
+Dewa itu tidak sedang mempertahankan hidup.
+
+Dia memaksa Kael memilih antara membiarkannya tetap berkuasa atau menghancurkan cahaya dunia.
+
+Di balik ledakan, Kael menemukan jalur ketiga: ekstraksi kesadaran dari hukum tanpa memutus hukum tersebut.
+
+Masalahnya, teknik itu membutuhkan Pulse yang tidak menghasilkan recoil sampai proses selesai.
+
+Kael hanya memiliki sedikit bagian seperti itu.
+
+Bagian terakhir.

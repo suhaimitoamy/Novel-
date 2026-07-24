@@ -1,21 +1,37 @@
 # Episode 498 — Ingatan Para Pemilik
 
-Kael menyentuh Fragmen Aelarion dengan kedua tangan. Kali ini ia tidak mencari tenaga atau struktur. Ia membuka ruang bagi ingatan.
+Kael menyentuh Fragmen Aelarion dengan kedua tangan.
 
-Dunia altar lenyap. Kael melihat hutan sebelum nama Aelarion diciptakan, ketika pohon-pohon masih berkomunikasi melalui cahaya pada akar. Ia merasakan tangan seorang penjaga pertama menanam Fragmen ke tanah demi menghentikan badai sihir.
+Kali ini dia tidak mencari tenaga atau struktur. Dia membuka ruang bagi ingatan.
 
-Ingatan berikutnya datang terlalu cepat: penobatan raja, perang perbatasan, ritual penyembuhan, eksekusi atas nama kemurnian, seorang anak menyembunyikan makanan di bawah altar, seorang ibu berdoa agar putranya tidak dipilih menjadi Pahlawan.
+Altar lenyap.
 
-Kael hampir tenggelam. Nama dan rasa sakit ribuan orang berusaha memakai pikirannya sebagai rumah. Sylvara menempelkan Gema Pengetahuan ke punggungnya dan memindahkan sebagian arus ke dalam cahaya retak.
+Kael melihat hutan sebelum nama Aelarion diciptakan, ketika pohon berkomunikasi melalui cahaya pada akar. Dia merasakan tangan penjaga pertama menanam Fragmen ke tanah demi menghentikan badai sihir.
 
-“Jangan lawan mereka,” suara Sylvara mencapai Kael dari kejauhan. “Bedakan antara mengingat dan menjadi.” Kael mengikuti suaranya. Ia membiarkan setiap hidup lewat tanpa mengklaimnya sebagai milik sendiri.
+Ingatan berikutnya datang terlalu cepat: penobatan raja, perang perbatasan, ritual penyembuhan, eksekusi atas nama kemurnian, seorang anak menyembunyikan makanan di bawah altar, dan seorang ibu memohon putranya tidak dipilih menjadi Pahlawan.
 
-Di pusat arus, ia menemukan bekas kendali dewa: simpul-simpul cahaya yang mengubah doa menjadi energi dan penderitaan menjadi bahan bakar. Simpul itu dapat dihancurkan dengan mudah. Masalahnya, akar simpul telah tumbuh di antara ingatan yang ingin ia selamatkan.
+Nama serta rasa sakit ribuan orang mencoba memakai pikirannya sebagai rumah.
 
-Kael menarik tangan dari Fragmen. Hanya beberapa menit berlalu di altar, tetapi wajahnya basah oleh air mata untuk orang-orang yang hidup dan mati jauh sebelum kelahirannya.
+Sylvara menempelkan Gema Pengetahuan ke punggungnya dan memindahkan sebagian arus ke cahaya retak.
 
-Gema Pengetahuan di tangan Sylvara memperoleh retakan baru. “Aku bisa menahan ingatan mereka,” katanya, “tetapi bukan dua belas sekaligus.” Zireth segera menyiapkan ruang penyimpanan tambahan.
+“Jangan lawan mereka,” suaranya terdengar jauh. “Bedakan antara mengingat dan menjadi.”
 
-Mereka mengubah rencana. Pemurnian tidak akan dilakukan sebagai satu ledakan besar. Kael harus memisahkan noda, ingatan, dan fungsi setiap Fragmen lapis demi lapis.
+Kael mengikuti suara itu. Dia membiarkan setiap hidup lewat tanpa mengklaimnya sebagai milik sendiri.
 
-Ketika ia berdiri, semua bayangan di lingkaran altar menundukkan kepala pada saat bersamaan. Bukan sebagai pemujaan. Mereka memberi izin—atau mungkin menyerahkan beban yang terlalu lama mereka bawa.
+Di pusat arus, dia menemukan simpul kendali dewa. Simpul itu mengubah doa menjadi energi dan penderitaan menjadi bahan bakar. Ia mudah dihancurkan, tetapi akarnya telah tumbuh di antara ingatan yang ingin diselamatkan.
+
+Kael menarik tangan.
+
+Hanya beberapa menit berlalu, tetapi wajahnya basah oleh air mata bagi orang-orang yang hidup jauh sebelum kelahirannya.
+
+Gema Pengetahuan memperoleh retakan baru.
+
+“Aku bisa menahan ingatan mereka,” kata Sylvara, “tetapi bukan dua belas sekaligus.”
+
+Mereka mengubah rencana. Pemurnian tidak boleh menjadi satu ledakan besar. Noda, ingatan, dan fungsi setiap Fragmen harus dipisahkan lapis demi lapis.
+
+Semua bayangan di altar menundukkan kepala.
+
+Bukan menyembah.
+
+Mereka memberi izin—atau menyerahkan beban yang terlalu lama dibawa.

@@ -1,21 +1,31 @@
 # Episode 497 — Peta Frekuensi Dunia
 
-Dua belas Fragmen tidak pernah benar-benar diam. Zireth menancapkan sensor di sepanjang lantai Altar Primordial dan mengubah bisikan mereka menjadi garis-garis cahaya. Tak satu pun garis memiliki pola yang sama.
+Dua belas Fragmen tidak pernah benar-benar diam.
 
-Kael duduk di pusat lingkaran. Ia mengirim Pulse selemah detak bayi, cukup untuk menyentuh permukaan setiap inti. Gema yang kembali membawa data tentang massa, suhu, tekanan, dan sesuatu yang menyerupai denyut jantung benua.
+Zireth menancapkan sensor di sepanjang lantai dan mengubah bisikannya menjadi garis cahaya. Tidak satu pun memiliki pola serupa.
 
-“Jangan cari satu frekuensi untuk semuanya,” ujar Zireth. “Mereka bukan dua belas salinan. Masing-masing sudah tumbuh bersama wilayahnya selama ribuan tahun.” Kael mengubah cara mendengar. Ia berhenti mencari keseragaman dan mulai memetakan perbedaan.
+Kael duduk di pusat lingkaran. Dia mengirim Pulse selemah detak bayi, cukup untuk menyentuh permukaan setiap inti. Recoil langsung menggigit sarafnya, tetapi gema yang kembali membawa massa, suhu, tekanan, dan sesuatu yang menyerupai denyut jantung benua.
 
-Fragmen Aelarion bergetar pada nada tinggi yang membuat cahaya di altar membias. Fragmen Karag Thürm menjawab dengan tarikan berat dari bawah. Inti Iskali mengubah embun menjadi kristal, sedangkan inti Umbral menghasilkan dua pantulan untuk satu denyut.
+“Jangan cari satu frekuensi untuk semuanya,” ujar Zireth. “Mereka bukan salinan. Masing-masing tumbuh bersama wilayahnya.”
 
-Kael menandai setiap respons pada peta. Semakin lengkap peta itu, semakin jelas bahwa energi di dalam Fragmen terhubung pada sesuatu di luar ruang altar. Garis-garisnya menjalar menembus lantai menuju benua, samudra, dan inti planet.
+Kael berhenti mencari keseragaman.
 
-Sylvara menatap Gema Pengetahuan yang terus memproyeksikan wajah. “Kalau kau menarik energi yang salah, apa yang akan terjadi pada mereka?” Kael tidak memiliki jawaban. Ketidakpastian itu membuat telapak tangannya dingin.
+Fragmen Aelarion bergetar pada nada tinggi yang membiaskan cahaya. Inti Karag Thürm menjawab dengan tarikan berat. Fragmen Iskali mengubah embun menjadi kristal, sementara inti Umbral menghasilkan dua pantulan untuk satu denyut.
 
-Ia mencoba satu koreksi fase pada Fragmen terkecil. Jauh di luar altar, gempa pendek mengguncang sisi timur pegunungan. Debu jatuh dari langit-langit sebelum Kael segera memutus resonansi.
+Setiap respons ditandai pada peta.
 
-Zireth memandangi data dengan wajah pucat. “Itu bukan kebetulan. Fragmen ini terikat pada dunia lebih dalam daripada yang kita duga.” Ia memperbesar satu grafik, dan denyut altar bertumpuk tepat dengan getaran kerak Zerath.
+Semakin lengkap garisnya, semakin jelas hubungan Fragmen dengan sesuatu di luar altar. Jalurnya menembus benua, samudra, kerak, dan inti planet.
 
-Kael menatap dua belas inti. Selama ini kekaisaran menganggap mereka sumber daya. Para dewa menganggapnya rantai. Peta di hadapannya memberi kemungkinan ketiga yang jauh lebih berbahaya.
+Kael mencoba koreksi fase pada Fragmen terkecil.
 
-Pada pinggir peta, sebuah frekuensi ketiga belas muncul sesaat—tipis, asing, dan tidak terhubung pada wilayah mana pun. Sebelum Zireth sempat menguncinya, frekuensi itu menghilang ke arah langit.
+Jauh di timur, gempa mengguncang pegunungan. Debu jatuh dari langit-langit sebelum dia segera memutus resonansi.
+
+Zireth memperbesar hasil pengukuran. Denyut Fragmen bertumpuk tepat dengan getaran kerak Zerath.
+
+“Bukan sumber daya,” katanya. “Mereka bagian struktur dunia.”
+
+Kael menatap dua belas inti yang selama ini diperebutkan sebagai harta dan dipakai dewa sebagai rantai.
+
+Pada pinggir peta, frekuensi ketiga belas muncul sesaat. Tipis, asing, dan tidak terhubung pada wilayah mana pun.
+
+Sebelum Zireth menguncinya, nada itu menghilang ke arah langit.

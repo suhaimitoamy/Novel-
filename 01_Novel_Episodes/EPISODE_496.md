@@ -1,21 +1,31 @@
 # Episode 496 — Altar Dua Belas
 
-Fajar pertama setelah jatuhnya dewa terakhir tidak berwarna emas. Langit di atas Altar Primordial tampak pucat, seperti logam yang baru dikeluarkan dari api. Kael berdiri pada anak tangga terbawah dan mendengar dua belas denyut berbeda di balik pintu batu.
+Fajar pertama setelah jatuhnya dewa terakhir tidak berwarna emas. Langit di atas Altar Primordial pucat seperti logam yang baru keluar dari api.
 
-Tubuhnya belum pulih. Tangan kiri tidak lagi merasakan dingin, beberapa saraf di punggungnya terbakar, dan detak Fragmen di dada sesekali hilang. Namun dua belas kekaisaran sudah menyerahkan inti yang selama ribuan tahun mereka sebut milik masing-masing.
+Kael berdiri pada anak tangga terbawah dan mendengar dua belas denyut di balik pintu batu.
 
-Sylvara berjalan di sebelahnya membawa Gema Pengetahuan yang retak. Zireth mengikuti dengan dua belas wadah stasis, masing-masing dibangun dari logam bintang dan cincin penahan medan. Zevaron menunggu di luar altar bersama para saksi dari setiap ras.
+Tubuhnya belum pulih. Tangan kiri tidak lagi merasakan dingin, saraf di punggungnya terbakar, dan setiap Pulse kini membawa recoil tanpa jeda. Meski begitu, dua belas kekaisaran telah menyerahkan Fragmen yang selama ribuan tahun dianggap miliknya.
 
-“Begitu pintu ini ditutup, tak ada pasukan yang boleh masuk,” kata Zireth. “Jika satu wadah gagal, aku perlu ruang untuk mengalihkan energinya.” Kael mengangguk. Ia tidak menyebut bahwa dirinya mungkin menjadi wadah pengganti terakhir.
+Sylvara berjalan di samping Kael membawa Gema Pengetahuan yang retak. Zireth mengikuti dengan dua belas wadah stasis dari logam bintang. Zevaron menunggu di luar bersama saksi setiap ras.
 
-Pintu terbuka ketika darah Kael menyentuh cekungan di batu. Di dalam, dua belas singgasana tanpa penghuni mengelilingi lantai berbentuk peta Zerath. Fragmen pertama melayang dari wadahnya dan berhenti tepat di atas wilayah Aelarion.
+“Begitu pintu tertutup, tidak ada pasukan masuk,” kata Zireth. “Kalau satu wadah gagal, aku perlu ruang untuk mengalihkan energinya.”
 
-Fragmen lain menyusul. Setiap inti memancarkan warna, suhu, dan tarikan berbeda. Batu di bawah kaki Kael menjadi lebih berat ketika Fragmen Zhorak lewat; bayangannya terbelah saat inti Malgorath mengambil tempat.
+Kael mengangguk. Dia tidak menyebut bahwa tubuhnya mungkin menjadi wadah terakhir.
 
-Ragnarok Pulse merespons semuanya sekaligus. Kael menahan napas dan meredam denyut sebelum altar menganggapnya serangan. Rasa sakit itu menjalar sampai giginya, tetapi dua belas inti akhirnya diam pada orbit masing-masing.
+Darahnya menyentuh cekungan batu. Pintu terbuka.
 
-Sylvara mengangkat Gema Pengetahuan. Cahaya keemasan menyapu lingkaran dan memperlihatkan ribuan bayangan manusia, Elf, Dwarf, Celestial, dan ras lain yang pernah menyentuh Fragmen. Mereka tidak berkata apa-apa. Mereka hanya menatap Kael.
+Dua belas singgasana kosong mengelilingi lantai berbentuk peta Zerath. Fragmen pertama keluar dari wadah dan melayang di atas wilayah Aelarion. Yang lain menyusul, masing-masing membawa warna, suhu, dan tarikan berbeda.
 
-Ia datang untuk memurnikan energi yang dipakai para dewa. Sekarang ia memahami bahwa tangan para korban masih berada di dalamnya. Menghapus noda tanpa menghapus mereka akan jauh lebih sulit daripada menumbangkan takhta.
+Ragnarok Pulse merespons semuanya serempak. Kael meredam denyut sebelum altar menganggapnya serangan. Recoil menjalar sampai giginya, tetapi dua belas inti akhirnya mengambil orbit.
 
-Pintu altar menutup. Pada keheningan yang mengikuti, Fragmen pertama menyebut satu nama yang tidak dikenal Kael. Lalu nama kedua. Nama ketiga. Dalam beberapa detik, seluruh ruangan dipenuhi bisikan orang mati.
+Sylvara mengangkat Gema Pengetahuan.
+
+Ribuan bayangan muncul: manusia, Elf, Dwarf, Celestial, dan ras lain yang pernah menyentuh Fragmen. Mereka tidak menyembah. Mereka hanya menatap Kael.
+
+Dia datang untuk membersihkan energi para dewa.
+
+Sekarang dia memahami bahwa tangan para korban masih berada di dalamnya.
+
+Pintu altar menutup.
+
+Fragmen pertama menyebut satu nama yang tidak dikenal Kael. Lalu nama kedua dan ketiga, sampai seluruh ruangan dipenuhi bisikan orang mati.
