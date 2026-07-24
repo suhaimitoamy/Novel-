@@ -1,25 +1,53 @@
 # Episode 266 — Jejak Pengepungan Fragmen
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di dua belas altar kekaisaran. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Tujuh hari menuju konvergensi dimulai dengan dua belas pengepungan.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mencegah pencabutan Fragmen secara bersamaan. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Setiap altar Fragmen dikelilingi pasukan kerajaannya sendiri. Sebagian datang untuk menjaga jangkar. Sebagian hendak mencabutnya sebelum bangsa lain bergerak. Para pendeta berdiri di depan altar dan mengklaim hanya dewa mereka yang berhak menentukan penjaga baru.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zireth. Kael mengangguk. Mereka mengambil posisi dengan relay terakhir Zireth dan sekutu tiap ras, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael tidak pergi ke dua belas tempat secara fisik.
 
-Kael memusatkan napas dan menggunakan jaringan resonansi lintas benua. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik pasukan kerajaan dan avatar pendeta.
+Zireth membangun jaringan resonansi lintas benua dari The Core yang tersisa. Lengan bintangnya menjadi relay pusat, sementara sekutu setiap ras membawa satu simpul Frekuensi Penyangkal ke altar masing-masing.
 
-Denyut Pengepungan Fragmen segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Sylvara berada di Aelarion bersama penjaga Memory Tree.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di Pengepungan Fragmen, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Zevaron kembali ke Rhythor meski statusnya buronan.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan relay terakhir Zireth dan sekutu tiap ras, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Raska menjaga Garundrax.
 
-Di balik penghalang Pengepungan Fragmen, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa dua belas altar kekaisaran melupakan bentuk alaminya.
+Dagna serta para pandai besi Urdron memegang simpul Karag Thürm. Nyrathis, Xyphus, dan wilayah lain diwakili oleh orang-orang yang sebelumnya hanya saling mengenal sebagai musuh.
 
-“Kita sudah melewati pintu Pengepungan Fragmen, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zireth. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael duduk di tengah lingkaran The Core dengan tongkat Eira pada tangan kanan. Tubuhnya tidak mampu menahan dua belas aliran sekaligus, jadi jaringan tidak dibangun sebagai perpanjangan kehendaknya. Setiap penjaga hanya menerima pola dasar dan hak menolak.
 
-Suara pertama dari pasukan kerajaan dan avatar pendeta datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Kalau salah satu altar tidak menyetujui sinkronisasi, seluruh jaringan berhenti,” kata Zireth.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Pengepungan Fragmen terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+“Itu memang tujuannya.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama pasukan kerajaan dan avatar pendeta muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Pengepungan Fragmen baru saja dimulai.
+Denyut pertama berjalan.
+
+Dua belas Fragmen menjawab berbeda. Ada yang panas, dingin, lembut, marah, atau hampir tidak terdengar. Kael merasakan hubungan tanpa menjadikan dirinya pusat.
+
+Lalu para avatar pendeta muncul pada setiap altar.
+
+Mereka terbentuk dari doa, ketakutan, dan perintah kerajaan. Wajahnya menyerupai dewa lokal masing-masing, tetapi pola di dalamnya sama: gabungan Sistem Pahlawan dan Benih Struktur Urdron.
+
+**SERAHKAN JANGKAR KEPADA OTORITAS YANG SAH.**
+
+Pasukan kerajaan maju serentak.
+
+Kael mengirim satu pesan melalui jaringan:
+
+“Fragmen adalah pasak ruang-waktu, bukan harta kerajaan. Tunjukkan apa yang terjadi jika satu saja dicabut.”
+
+Zireth membuka simulasi fisika berdasarkan data The Core. Pada setiap altar, pasukan melihat wilayahnya kehilangan hukum dasar: kota terlipat, sungai berhenti memiliki arah, tubuh tidak mampu mempertahankan bentuk.
+
+Sebagian mundur.
+
+Pendeta lain menyebut gambaran itu ancaman palsu Kael dan memerintahkan pengepungan dilanjutkan.
+
+Dua belas altar mulai tertutup barisan prajurit.
+
+Di pusat jaringan, Kael merasakan pola Urdron tumbuh melalui semua denyut.
+
+Sang Arsitek tidak perlu mencabut Fragmen sendiri.
+
+Ia hanya perlu membuat para kerajaan melakukannya atas nama perlindungan.
