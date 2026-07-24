@@ -1,25 +1,49 @@
 # Episode 166 — Pertemuan di Perbatasan
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di gua Jantung Es Rhythor. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sebelum memasuki Jantung Es, mereka berhenti di perbatasan gua bersama pasukan Iskali.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membebaskan Roh Es Agung dan menghancurkan benih Struktur. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Sebagian prajurit menolak Kael berada di dekat roh suci mereka.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Dia membawa Void yang sama dengan kristal itu,” kata salah satu kapten. “Bagaimana kami tahu dia tidak datang untuk mengambil kekuatannya?”
 
-Kael memusatkan napas dan menggunakan pemutusan benang kendali lewat resonansi seimbang. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Elemental Lord yang dibungkus kristal Void.
+Zevaron belum ditemukan. Ketakutan dan kekosongan kepemimpinan membuat seluruh barisan mudah pecah.
 
-Denyut Wadah Sekunder segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Shaman Agung berdiri di antara kedua pihak.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di Wadah Sekunder, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Kael telah membebaskan penjaga kita tanpa menghancurkan satu inti pun.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+“Dan setiap tempat yang dia datangi berakhir runtuh,” balas kapten.
 
-Di balik penghalang Wadah Sekunder, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa gua Jantung Es Rhythor melupakan bentuk alaminya.
+Kael tidak menyangkalnya.
 
-“Kita sudah melewati pintu Wadah Sekunder, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Kalau kalian tidak percaya, tempatkan prajurit di belakangku. Jika aku mencoba mengambil Roh Es, hentikan aku.”
 
-Suara pertama dari Elemental Lord yang dibungkus kristal Void datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Sylvara menoleh tajam. “Jangan menawarkan nyawamu semudah itu.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Wadah Sekunder terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+“Aku tidak menawarkan. Aku memberi mereka hak mengawasi.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Elemental Lord yang dibungkus kristal Void muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Wadah Sekunder baru saja dimulai.
+Zireth membuka peta Jantung Es melalui lengan bintang. “Kita tidak punya waktu untuk perdebatan. Struktur Wadah sedang matang.”
+
+Peta memperlihatkan tiga lapisan pertahanan: badai korup, kristal Void, dan tubuh Roh Es Agung yang dipaksa menjadi inti.
+
+“Kita membebaskan roh, bukan membunuh wadah,” kata Kael. “Panah Sylvara memurnikan jalur. Lengan Zireth membuka lapisan. Pasukan Iskali menahan badai. Aku memutus benang kendali.”
+
+Kapten masih ragu, tetapi akhirnya mengangkat senjata.
+
+“Kalau kau berkhianat, tombakku menjadi yang pertama menembus punggungmu.”
+
+“Disepakati.”
+
+Mereka memasuki gua.
+
+Es di dalam tidak memantulkan wajah. Permukaannya memperlihatkan kenangan yang dicuri dari roh-roh penjaga: musim semi pertama, salju pertama, dan generasi Iskali yang pernah mereka lindungi.
+
+Di pusat lorong, Zevaron tergantung dalam kristal. Tubuhnya masih hidup, tetapi aliran elemen terus ditarik menuju Wadah Sekunder.
+
+Matanya terbuka ketika Kael mendekat.
+
+“Sudah kubilang jangan datang.”
+
+Kael berdiri di depan kristal.
+
+“Aku tidak datang untuk melawanmu. Aku datang agar pilihanmu kembali menjadi milikmu.”
