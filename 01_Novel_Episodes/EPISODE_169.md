@@ -1,27 +1,59 @@
 # Episode 169 — Konvergensi
 
-Debu bergerak melawan arah angin di gua Jantung Es Rhythor. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Benih Struktur mengambil alih tubuh Roh Es Agung.
 
-Mereka telah kehilangan ruang untuk bergerak. Elemental Lord yang dibungkus kristal Void menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Sayap gletser terbuka dan menghantam langit-langit gua. Retakan besar menyebar ke seluruh Jantung Es. Bongkahan sebesar menara mulai jatuh.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Roh Es Agung mengorbankan dirinya untuk menahan runtuhan. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Shaman Agung memimpin pasukan Iskali mempertahankan lorong. Sylvara serta Zireth membuka jalan menuju dada roh, tempat inti biru terkunci di balik lapisan Void.
 
-“Kita mundur dari Wadah Sekunder. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Zevaron berdiri di sisi Kael.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Aku akan menarik kembali pola elemennya. Kau putuskan kendali Arsitek.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pemutusan benang kendali lewat resonansi seimbang untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Kalau arusnya berbalik, tubuhmu bisa hancur.”
 
-Elemental Lord yang dibungkus kristal Void bereaksi liar di pusat Wadah Sekunder. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Tubuhku sudah dipakai sebagai cetakan. Aku berhak mengambil risiko untuk merebutnya kembali.”
 
-Kael menemukan benang kendali milik Elemental Lord yang dibungkus kristal Void. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh gua Jantung Es Rhythor.
+Mereka bergerak bersama.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Wadah Sekunder akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Zevaron memanggil badai liar yang tidak mengikuti pola mana pun. Kael menyelaraskan Pulse pada ketidakteraturan tersebut dan menyusupkannya ke lapisan Void.
 
-“Tidak,” kata Kael di hadapan Wadah Sekunder, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Roh Es mengamuk. Cakarnya menghantam lantai dan membuka jurang menuju kedalaman Leyline.
 
-Serangan mereka melalui panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Sylvara menembakkan panah pemurnian tepat ke simpul yang ditunjuk Kael. Zireth menahan retakan dengan medan gravitasi lengan bintang.
 
-Saat debu Wadah Sekunder turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Roh Es Agung mengorbankan dirinya untuk menahan runtuhan. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Benang pertama terbakar.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Wadah Sekunder terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Lalu yang kedua.
+
+Pada benang terakhir, seluruh gua runtuh.
+
+Roh Es Agung menyadari apa yang terjadi. Kesadarannya menyentuh Kael dan Zevaron.
+
+*Jika tubuhku dibebaskan sekarang, runtuhan akan menelan kalian dan kota di atas.*
+
+“Kita bisa mencari cara lain,” kata Kael.
+
+*Musim selalu bergerak karena sesuatu berakhir.*
+
+Roh tersebut mengambil kembali kendali untuk satu detik. Sayapnya membentang dan menahan seluruh gletser yang runtuh.
+
+“Jangan!” teriak Shaman Agung.
+
+*Bebaskan benihnya. Biarkan aku menjadi musim terakhir yang membeku.*
+
+Kael menolak menerima pengorbanan itu, tetapi waktu habis. Jika dia berhenti, Benih Struktur akan kembali mengambil alih dan seluruh Rhythor berubah menjadi tubuh Wadah.
+
+Dengan tangan gemetar, Kael memutus benang terakhir.
+
+Benih Struktur terlepas dari inti.
+
+Roh Es Agung meraung, bukan karena sakit, melainkan kebebasan. Cahaya birunya menyebar ke seluruh gletser dan menahan runtuhan cukup lama bagi semua orang mencapai jalur aman.
+
+Tubuh raksasanya kemudian pecah menjadi salju murni.
+
+Untuk pertama kalinya setelah berbulan-bulan, matahari Rhythor bergerak menuju barat.
+
+Musim kembali berjalan.
+
+Namun penjaga yang mengembalikannya telah tiada.
