@@ -1,25 +1,21 @@
 # Episode 422 — Suara dari Jamuan Jiwa
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di ruang makan para dewa. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jiwa-jiwa berbicara dalam potongan.
 
-Sejak benturan sebelumnya, pola pendeta agung dan mulut-mulut cahaya terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk merekam bukti pemanenan jiwa, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Ada Pahlawan yang dikirim berulang kali ke dunia berbeda. Ada penganut yang mengira kematiannya akan membawa kedamaian. Ada bayi dari Pabrik Jiwa yang dibuang karena tidak cocok menjadi tokoh utama.
 
-“Ada lapisan lain di bawah Jamuan Jiwa. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sylvara menahan Gema Pengetahuan agar semua kesaksian tidak bercampur.
 
-Ia mengalirkan proyeksi entanglement ke semua Leyline melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael menemukan jalur distribusi. Energi jiwa dipisahkan menjadi tiga rasa: kepatuhan untuk Aelarion, ketahanan untuk Zhorak, dan rahasia untuk Malgorath.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Gema Pengetahuan yang ditahan Sylvara. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Pendeta agung menyebutnya siklus suci.
 
-Kael menyentuh rekaman Jamuan Jiwa. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Tanpa panen ini, hukum dunia akan runtuh.”
 
-Ia memutus kontak dengan rekaman Jamuan Jiwa sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Kael memeriksa struktur. Pernyataan itu pernah benar pada masa awal, tetapi para dewa sengaja mempertahankan ketergantungan setelah Fragmen mampu menopang hukum sendiri.
 
-“Ini bukan hanya jejak serangan di Jamuan Jiwa,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Sistem Pahlawan bukan perlindungan.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Pendeta agung dan mulut-mulut cahaya telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Ia peternakan entropi jiwa.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Sistem Pahlawan adalah peternakan entropi jiwa.
-
-“Kalau petunjuk tentang Jamuan Jiwa ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
-
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan pendeta agung dan mulut-mulut cahaya berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Mulut-mulut cahaya menyerang Gema Pengetahuan. Bila arsip pecah, bukti dan kesadaran di dalamnya akan lenyap bersama.

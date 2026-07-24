@@ -1,27 +1,25 @@
 # Episode 425 — Dunia Melihat Para Dewanya
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di ruang makan para dewa. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Langit Zerath berubah menjadi layar kesaksian.
 
-Semua jalan di ruang makan para dewa berakhir pada satu pusat. Di sanalah pendeta agung dan mulut-mulut cahaya menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat merekam bukti pemanenan jiwa mustahil dilakukan.
+Di kota, hutan, gunung, dan Dead Zone, orang-orang melihat jiwa yang dipanen, kontrak Pahlawan, serta meja tempat ketiga dewa memakan ketakutan mereka.
 
-“Kita mencapai pusat Jamuan Jiwa bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada Gema Pengetahuan yang ditahan Sylvara. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Kebenarannya tak dapat ditutup: Sistem Pahlawan adalah peternakan entropi jiwa.
 
-Mereka bergerak serempak. Sekutunya menggunakan Gema Pengetahuan yang ditahan Sylvara untuk memecah lapisan luar, sedangkan Kael menyusupkan proyeksi entanglement ke semua Leyline ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Kuil-kuil pecah oleh kemarahan. Sebagian penganut membuang lambang dewa. Sebagian menolak bukti dan menyebutnya manipulasi Kael.
 
-Kael tidak melawan semua lapisan Jamuan Jiwa. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Kael tidak meminta mereka percaya padanya. Arsip dibuka agar setiap orang dapat memeriksa jalur jiwanya sendiri.
 
-Di pusat jaring Jamuan Jiwa itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Pendeta agung kehilangan dukungan. Mulut-mulut cahaya padam.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di pusat Jamuan Jiwa, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Ruang makan runtuh, membebaskan jiwa yang belum habis dimakan.
 
-Pendeta agung dan mulut-mulut cahaya mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Tiga takhta para dewa berguncang ketika sumber energi mereka berkurang.
 
-Tidak ada ledakan besar. Pendeta agung dan mulut-mulut cahaya retak dalam keheningan ruang makan para dewa. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Aelarion, Zhorak, dan Malgorath mengambil keputusan putus asa.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: Sistem Pahlawan adalah peternakan entropi jiwa. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Mereka menyatukan medan hukum menjadi satu wujud Trinitas.
 
-Kael memandangi sisa-sisa pusat kendali Jamuan Jiwa. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Dunia akhirnya melihat para dewanya dengan jelas.
 
-Sylvara menurunkan senjata, tetapi Kael belum bergerak. Keheningan di pusat Jamuan Jiwa memiliki irama baru. Beberapa detik kemudian mereka memahami alasannya. Rakyat Zerath menyaksikan kebenaran melalui langit.
-
-Mereka membawa luka dan bukti dari Jamuan Jiwa menuju jalur berikut. Kael tidak merasa lebih dekat pada kemenangan; ia hanya memahami harga kekalahan dengan lebih jelas.
+Para dewa membalas dengan mencoba menjadi satu-satunya hukum yang tersisa.

@@ -1,21 +1,23 @@
 # Episode 434 — Harga yang Dituntut Menara Waktu
 
-Waktu menagih utangnya di dimensi waktu setelah perang dewa. Kael terbangun dengan tubuh yang terasa lebih tua dan ingatan yang lebih muda. Setiap lantai mempercepat penuaan tubuhnya; ia dapat merasakan ruang kosong yang ditinggalkannya.
+Menara menagih utang pada tubuh Kael.
 
-Sylvara meminta mereka mundur. Kael menoleh dan melihat empat versi wajah yang sama—marah, takut, letih, dan tanpa ekspresi. Ia memilih berbicara kepada semuanya karena tak tahu mana yang akan bertahan.
+Setiap lantai yang dilewati mengambil bagian umur yang belum dijalani. Tulangnya terasa tua, sementara beberapa ingatan menjadi muda dan kehilangan konteks.
 
-“Kau tidak wajib mengorbankan setiap bagian dirimu untuk membuktikan bahwa pilihanmu benar,” kata Sylvara. Kalimat itu melukai lebih dalam daripada tuduhan.
+Sylvara meminta mundur.
 
-Kael mencoba dilatasi waktu terkontrol, tetapi penjaga masa depan serta godaan keabadian menahan semua jalan kecuali satu. Jalan itu menawarkan hasil sempurna dengan syarat Kael menyerahkan hak untuk berubah pikiran.
+Kael melihat empat versi wajahnya—marah, takut, letih, dan kosong. Dia berbicara kepada semuanya karena tidak tahu mana yang akan bertahan.
 
-Ia hampir menerimanya. Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Kemudian Kael menyadari bahwa kesempurnaan tanpa hak menyesal hanyalah bentuk lain dari Sistem.
+“Kau tidak wajib mengorbankan setiap bagian dirimu untuk membuktikan pilihanmu benar,” kata Sylvara.
 
-Ia menolak jalan tunggal Menara Waktu dan memecahnya menjadi kemungkinan kecil. Tekanan temporal menyambar sarafnya. Darahnya jatuh ke atas, kembali ke luka, lalu jatuh lagi.
+Kalimat itu menghentikannya lebih kuat daripada ancaman.
 
-Sylvara yang menolak melihat masa depan mereka menahan identitas mereka saat sejarah berputar. Bersama-sama mereka menemukan satu kebenaran yang tidak berubah di seluruh cabang: Kael memiliki ribuan masa depan tetapi hampir tak punya masa kini.
+Kael menolak masa depan sempurna. Kehidupan damai yang hampir dapat disentuh lenyap di depan mata.
 
-Penolakan terhadap Menara Waktu menghancurkan imbalan yang dijanjikan. Sebuah kehidupan damai lenyap di depan mata Kael. Ia membiarkannya pergi tanpa berpura-pura tidak menginginkannya.
+Dia membiarkannya pergi tanpa mengaku tidak menginginkannya.
 
-Di balik masa depan yang runtuh, ruang pusat Menara Waktu membuka diri. Kael berjalan ke arahnya membawa kehilangan yang tidak dapat dipahami siapa pun di luar tempat ini.
+Harga Menara Waktu permanen: sebagian umur dan kemungkinan hidup sederhana hilang, sementara Kael tetap tidak mengetahui berapa lama tubuhnya dapat bertahan.
 
-Ia tidak merasa menang atas Menara Waktu. Namun untuk pertama kalinya, jam-jam di sekelilingnya bergerak maju tanpa mencoba menyeretnya kembali.
+Jam-jam di sekeliling mulai bergerak maju.
+
+Tidak satu pun menawarkan pengulangan.

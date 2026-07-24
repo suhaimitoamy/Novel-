@@ -1,27 +1,21 @@
 # Episode 424 — Harga yang Dituntut Jamuan Jiwa
 
-Keheningan datang seperti tangan yang menutup tenggorokan di ruang makan para dewa. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Gema Pengetahuan hampir pecah saat membawa bukti keluar.
 
-Mereka telah kehilangan ruang untuk bergerak. Pendeta agung dan mulut-mulut cahaya menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Retakan menjalar pada inti kristal. Setiap retakan mengancam menghapus nama, kesaksian, dan hubungan jiwa yang disimpan sejak perang pertama.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Gema Pengetahuan hampir pecah membawa bukti. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Sylvara menahan struktur dengan ingatannya sendiri. Dia menyerahkan sebagian ruang pribadi agar Gema tidak runtuh.
 
-“Kita mundur dari Jamuan Jiwa. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael mendengar beberapa kenangan Sylvara bocor ke jaringan: masa kecilnya, rasa takutnya, dan kata-kata yang tidak pernah dia ucapkan.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Gema Pengetahuan yang ditahan Sylvara. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Dia mencoba menutupnya.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan proyeksi entanglement ke semua Leyline untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Jangan sentuh,” kata Sylvara. “Aku memilih ini.”
 
-Pendeta agung dan mulut-mulut cahaya bereaksi liar di pusat Jamuan Jiwa. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Bukti berhasil diproyeksikan ke semua Leyline.
 
-Kael menemukan benang kendali milik pendeta agung dan mulut-mulut cahaya. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh ruang makan para dewa.
+Namun Gema Pengetahuan tidak pernah kembali utuh. Sebagian arsip kini bergantung pada ingatan orang-orang yang melihatnya. Bila dunia memilih melupakan, bukti dapat memudar.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Jamuan Jiwa akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Harga Jamuan Jiwa permanen: Gema hampir pecah dan kehilangan sifatnya sebagai satu tempat penyimpanan aman.
 
-“Tidak,” kata Kael di hadapan Jamuan Jiwa, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
-
-Serangan mereka melalui Gema Pengetahuan yang ditahan Sylvara tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
-
-Saat debu Jamuan Jiwa turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Gema Pengetahuan hampir pecah membawa bukti. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
-
-Di tengah kerusakan, satu jalur terakhir menuju pusat Jamuan Jiwa terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Kebenaran harus dijaga bersama, bukan lagi diserahkan pada satu artefak.

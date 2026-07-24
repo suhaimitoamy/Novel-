@@ -1,21 +1,21 @@
 # Episode 433 — Benturan Menara Waktu
 
-Pertempuran di dimensi waktu setelah perang dewa tidak dimulai dengan tebasan. Penjaga masa depan serta godaan keabadian menghapus satu detik dari kesadaran Kael. Ketika detik itu kembali, darah sudah mengalir di bahunya dan lawan berdiri di belakangnya.
+Penjaga melepaskan semua masa depan sekaligus.
 
-Kael berbalik sambil melepaskan dilatasi waktu terkontrol. Gelombang itu tidak memburu tubuh musuh; ia menandai urutan sebab dan akibat. Setiap serangan kini meninggalkan garis tipis yang dapat diikuti matanya.
+Kael melihat kemenangan, kegagalan, cinta, kesepian, kematian, dan keabadian menimpa tubuhnya. Setiap hasil menarik bagian dirinya ke arah berbeda.
 
-Sylvara bergerak mengikuti tanda tersebut. Sylvara yang menolak melihat masa depan mereka menjaga mereka tetap berada pada sejarah yang sama. Beberapa kali Kael melihat serangan mengenai versi dirinya yang lain, lalu lenyap sebelum rasa sakit tiba.
+Sylvara menolak melihat masa depan mereka. Dia hanya menyebut hal yang ada sekarang: lantai retak, napas Kael tidak teratur, dan tangannya masih berada dalam genggaman.
 
-“Ia melompat di antara hasil. Paksa dia memilih satu,” seru Sylvara. Kael memahami maksudnya. Ia mempersempit Pulse, menghapus semua celah kecuali kemungkinan tempat lawan gagal.
+Kael memakai dilatasi terkontrol untuk memisahkan kemungkinan dari kehendak penjaga.
 
-Taktik itu bekerja, tetapi penjaga masa depan serta godaan keabadian membalas dengan memperlihatkan kebenaran: Kael memiliki ribuan masa depan tetapi hampir tak punya masa kini. Keraguan Kael menciptakan cukup banyak cabang untuk mengembalikan kebebasan gerak musuh.
+Menara mempercepat penuaan tubuhnya. Rambut memutih lebih jauh. Luka lama menjadi tua, lalu muda, lalu terbuka kembali.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Ia tidak mencoba meniadakan keraguan tersebut. Ia menerimanya sebagai bagian dari keputusan, lalu tetap memilih. Semua kemungkinan lain meredup.
+Penjaga menawarkan hidup damai sebagai imbalan berhenti melawan.
 
-Benturan berikutnya mengguncang waktu. Kael melihat tubuhnya menua, mati, lalu kembali muda dalam satu kedipan. Setiap lantai mempercepat penuaan tubuhnya ketika urutan normal pulih.
+Kael menginginkannya.
 
-Ia menyerang tepat pada jeda Menara Waktu yang kini dapat dilihatnya. Musuh terlempar keluar dari aliran waktu dan membentur lantai sebagai satu tubuh, bukan seribu kemungkinan.
+Dia tidak berpura-pura sebaliknya.
 
-Kemenangan itu membuka celah menuju poros terdalam Menara Waktu. Tidak ada yang bergerak selama beberapa napas, takut satu langkah akan memulai masa depan yang salah.
+Namun hidup tanpa hak berubah pikiran adalah Sistem yang memakai bentuk rumah.
 
-Kael akhirnya melangkah. Masa depan tidak pecah. Untuk saat ini, pilihannya masih miliknya sendiri.
+Kael memecah jalan tunggal menjadi kemungkinan kecil yang tidak dapat dikunci.

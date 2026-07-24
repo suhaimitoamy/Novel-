@@ -1,21 +1,23 @@
 # Episode 436 — Jejak Dunia Tanpa Kael
 
-Jam-jam yang tak terlihat berdetak di Zerath alternatif yang tenang. Suaranya datang dari segala arah, kadang cepat seperti hujan, kadang terpisah oleh keheningan bertahun-tahun. Kael memasuki tempat itu dengan detak kedua di dadanya terlambat setengah ketukan. Di belakangnya, pintu masa kini menutup tanpa bunyi.
+Zerath alternatif tampak damai.
 
-Ia datang untuk menilai apakah keberadaannya sumber semua perang. Akan tetapi, waktu tidak menyambut tujuan sebagai sesuatu yang tetap. Setiap kali Kael mengulangnya dalam hati, lorong di hadapannya berubah dan menunjukkan akhir yang berbeda.
+Kuil masih berdiri, tetapi tidak ada pertempuran di jalan. Aelarion, Zhorak, dan Malgorath tetap dipuja. Orang-orang bekerja, menikah, dan membesarkan anak tanpa mengenal Furyborn bernama Kael.
 
-“Jangan percaya pada pemandangan pertama. Tempat ini tahu apa yang paling ingin kau ubah,” peringat Anak Merah. Kael menatap Anak Merah. Sesaat kemudian, sosok itu tampak lebih tua puluhan tahun, lalu kembali seperti semula. Ia tidak tahu mana yang benar.
+Dia mengamati tanpa intervensi.
 
-Mereka menjaga hubungan dengan keberanian seorang anak yang tak tercatat Sistem. Kael mengirim pengamatan kausal tanpa intervensi dalam denyut pendek. Pantulannya membawa usia setiap benda: batu muda yang belum pernah ditambang, debu dari kota yang belum dibangun, dan setetes darahnya sendiri yang seharusnya baru jatuh esok hari.
+Perlahan, ketenangan memperlihatkan retakan. Orang yang menolak nubuat menghilang. Bayangan bukti dihapus. Kota yang dianggap tidak penting tidak tercatat setelah bencana.
 
-Di ujung jalur, kehidupan sempurna yang terasa terlalu sunyi menunggu tanpa menyerang. Ia hanya memperlihatkan kemungkinan demi kemungkinan sampai langkah Kael melambat. Salah satunya memperlihatkan hidup yang tak pernah disentuh perang.
+Penderitaan tidak lenyap.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Kael menolak meraih gambar itu. Ia menandai lantai dengan darah agar memiliki satu bukti bahwa tubuhnya masih berada pada detik yang sama.
+Ia disembunyikan dengan lebih rapi.
 
-Pilihan tersebut membuat ilusi pertama pecah. Di baliknya tersimpan petunjuk bahwa tanpa Kael, Sistem tetap hidup dan penderitaan hanya disembunyikan. Pengetahuan itu tidak memberi jawaban; ia justru membuat setiap jalan keluar tampak lebih kejam.
+Seorang anak bermata merah mengikuti Kael. Dia satu-satunya yang dapat melihatnya, meski dunia ini tidak memiliki catatan tentang kedatangannya.
 
-Kael melangkah lagi. Kael melihat Sylvara bahagia tanpa mengenalnya mulai menagih harga bahkan sebelum ujian sebenarnya dimulai. Ia menyimpan rasa sakit itu tanpa menyebutnya, tetapi Anak Merah melihat perubahan pada caranya bernapas.
+“Orang asing,” panggil anak itu. “Kenapa bayanganmu sedih?”
 
-Lalu garis cahaya muncul di depan mereka, membelah masa lalu dan masa depan. Dari celah tersebut, bayangan pertama kehidupan sempurna yang terasa terlalu sunyi menyeberang. Kael mengerti bahwa tempat ini tidak berniat mengujinya hanya dengan musuh, melainkan dengan kehidupan yang mungkin lebih ia inginkan.
+Kael tidak menjawab segera.
 
-Ia melewati garis Dunia Tanpa Kael. Dunia di seberang memiliki langit yang sama, tetapi tak satu pun bintang berada pada tempat yang dikenalnya.
+Anak tersebut membawa denyut Fury yang sangat lemah—lahir tanpa rancangan Sistem, seperti Kael.
+
+Bahkan dunia tanpa Kael tetap melahirkan pemberontakan.

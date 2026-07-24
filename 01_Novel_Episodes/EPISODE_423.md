@@ -1,25 +1,23 @@
 # Episode 423 — Benturan Jamuan Jiwa
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di ruang makan para dewa. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pendeta agung membuka semua piring kristal.
 
-Serangan pendeta agung dan mulut-mulut cahaya datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Jiwa-jiwa yang setengah dimakan berubah menjadi gelombang. Mereka tidak menyerang dengan kehendak sendiri; mulut cahaya menarik rasa takut dan menjadikannya senjata.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Gema Pengetahuan yang ditahan Sylvara, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael memproyeksikan entanglement bukti ke seluruh Leyline. Bila satu arsip dihancurkan, salinannya akan tetap hidup pada jaringan dunia.
 
-Kael menerapkan proyeksi entanglement ke semua Leyline. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Tekanan hampir memecahkan Gema Pengetahuan.
 
-“Sekarang, Kael! Simpul Jamuan Jiwa ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sylvara memeluk inti kristal dan menerima luka informasi. Kenangan ribuan korban masuk ke pikirannya, tetapi dia tidak melepas pegangan.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh ruang makan para dewa sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael memisahkan energi dari jiwa satu per satu. Zireth membuka jalur jarak jauh melalui Leyline, sementara Para Terbuang menjaga pintu.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Jamuan Jiwa, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Pendeta menawarkan kompromi: bebaskan sebagian jiwa dan biarkan sistem panen tetap ada.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Jamuan Jiwa tetap memiliki batas yang tak boleh dilanggar.
+Kael menolak.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Gema Pengetahuan yang ditahan Sylvara untuk menghantam pusat kendali yang baru terlihat.
+Dia tidak menghancurkan meja. Dia mengubahnya menjadi jalur pengembalian.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Sistem Pahlawan adalah peternakan entropi jiwa. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Cahaya yang selama ini mengalir ke takhta berbalik menuju pemiliknya.
 
-Kael merasakan kemenangan kecil atas lapisan luar Jamuan Jiwa, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh ruang makan para dewa menjawab dengan satu denyut yang membuat gigi mereka bergetar.
-
-“Kita membangunkan pusat Jamuan Jiwa,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama pendeta agung dan mulut-mulut cahaya mulai bergerak dari kedalaman.
+Seluruh ruang makan bergetar.
