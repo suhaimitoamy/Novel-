@@ -1,25 +1,41 @@
 # Episode 211 — Jejak Lembah Neraka
 
-Suhu berubah setiap kali Kael menarik napas di wilayah terkutuk di bawah bayangan dunia. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Gelombang dari Gerbang Neraka memisahkan Kael dan Eira dari pasukan lain.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mencari asal Furyborn setelah terjatuh oleh recoil. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Mereka jatuh melalui lorong api hitam dan mendarat di sebuah lembah yang tidak berada pada peta Zerath. Langitnya gelap tanpa bintang. Hujan tulang turun perlahan, menancap ke tanah merah yang terus mengulang jeritan orang mati.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Eira. Kael mengangguk. Mereka mengambil posisi dengan pengetahuan Eira tentang para Furyborn, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael mencoba berdiri dengan tongkat. Setiap langkah mengirim gema kematian melalui telapak kakinya—seorang prajurit yang dibakar, seorang anak yang dilupakan, seorang pahlawan yang jiwanya gagal dipanen dengan sempurna.
 
-Kael memusatkan napas dan menggunakan resonansi jiwa pada gema kematian. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik hujan tulang dan tanah yang mengulang jeritan.
+Eira memandang sekeliling dengan wajah yang jarang menunjukkan ketakutan.
 
-Denyut Lembah Neraka segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Eira mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Aku pernah mendengar tempat ini dalam cerita Furyborn tua. Lembah tempat kemarahan pertama kami lahir.”
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di Lembah Neraka, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Kau yakin ini asal Furyborn?”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan pengetahuan Eira tentang para Furyborn, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+“Tidak. Tapi Fury dalam tubuhku dulu selalu bermimpi tentang hujan tulang ini.”
 
-Di balik penghalang Lembah Neraka, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa wilayah terkutuk di bawah bayangan dunia melupakan bentuk alaminya.
+Mereka bergerak mengikuti denyut panas dari kedalaman. Frekuensi Penyangkal menjaga Kael tidak tenggelam dalam jeritan, tetapi setiap langkah tetap membawa satu kematian asing ke pikirannya.
 
-“Kita sudah melewati pintu Lembah Neraka, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Eira. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Di bawah tebing, mereka menemukan ratusan zirah kosong. Lambang dari kekaisaran yang berbeda terukir pada permukaan—Aelarion, Karag Thürm, kerajaan manusia yang telah hilang, bahkan simbol pahlawan dari zaman sebelum catatan sejarah.
 
-Suara pertama dari hujan tulang dan tanah yang mengulang jeritan datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Semua dikirim ke sini?” tanya Kael.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Lembah Neraka terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Eira berlutut di dekat satu zirah Furyborn. “Bukan hanya penjahat atau iblis.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama hujan tulang dan tanah yang mengulang jeritan muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Lembah Neraka baru saja dimulai.
+Tanah terbuka dan memperlihatkan aliran jiwa yang gagal masuk ke Sistem Pahlawan. Mereka jatuh ke lembah seperti limbah yang dibuang.
+
+Sesuatu bergerak di bawah hujan tulang.
+
+Tubuh-tubuh tanpa kulit bangkit dari tanah, masing-masing membawa gema kematian berbeda. Mereka tidak menyerang dengan senjata. Jeritan dari mulutnya membuat Kael merasakan ratusan kematian sekaligus.
+
+Dia hampir roboh.
+
+Eira memukul tanah dengan tongkat. “Jangan lawan semua rasa sakit itu. Cari siapa yang masih ingin didengar.”
+
+Kael memakai resonansi jiwa, memisahkan gema sadar dari kebisingan yang dipaksa berulang. Beberapa sosok berhenti dan menunjuk jalan menuju pusat lembah.
+
+Di kejauhan, sebuah benteng dari tulang serta mesin rusak menjulang di bawah bayangan dunia.
+
+Neraka bukan alam kematian alami.
+
+Ia tampak seperti tempat pembuangan bagi segala sesuatu yang gagal diproses Sistem.
