@@ -1,25 +1,43 @@
 # Episode 228 — Benturan Bayangan Malgorath
 
-Udara bergetar sebelum suara apa pun sempat lahir di reruntuhan Kegelapan Pertama. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Takhta kosong mengendalikan seluruh reruntuhan.
 
-Serangan Malgorath versi arwah dan pasukan ketakutan datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Begitu Kael mendekat, pasukan ketakutan menyatu menjadi bentuk Malgorath yang lebih besar. Sayapnya menutup langit-langit, sementara tangan-tangan bayangan mengangkat pedang dari setiap sisi.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan panah tanpa cahaya Sylvara dan pedang Kael, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Sylvara menembakkan panah tanpa cahaya. Serangan itu menembus tubuh bayangan dan memperlihatkan simpul yang terhubung ke takhta.
 
-Kael menerapkan superposisi bayangan dan cahaya. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael memakai superposisi cahaya dan gelap. Setiap kali Malgorath menciptakan bayangan, Kael mengembalikan cahaya secukupnya untuk menunjukkan bentuk aslinya tanpa memberi energi tambahan.
 
-“Sekarang, Kael! Simpul Bayangan Malgorath ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Malgorath membalas dengan ketakutan paling sederhana.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh reruntuhan Kegelapan Pertama sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael melihat dirinya kehilangan kendali dan membunuh Sylvara. Melihat Zireth dihancurkan oleh lengan bintangnya sendiri. Melihat seluruh Zerath menyebutnya dewa lalu berlutut sebelum dia menyadari bahwa tak seorang pun lagi berani berkata tidak.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Dalam benturan Bayangan Malgorath, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Takhta itu dibuat untukmu,” bisik Malgorath. “Sistem, Arsitek, dan Voidmaker semua menginginkan tubuhmu karena kau mampu mengendalikan keseimbangan. Mengapa terus berpura-pura tidak pantas?”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Bayangan Malgorath tetap memiliki batas yang tak boleh dilanggar.
+Kael mengangkat pedang dengan tangan kanan.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan panah tanpa cahaya Sylvara dan pedang Kael untuk menghantam pusat kendali yang baru terlihat.
+“Karena kemampuan bukan hak.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Kegelapan tidak menciptakan Furyborn; para dewa memelintir luka primordialnya. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Pertarungan berpindah ke seluruh reruntuhan. Dinding menjadi cakar, lantai menjadi jurang, dan pasukan ketakutan memakai wajah orang-orang yang pernah mempercayainya.
 
-Kael merasakan kemenangan kecil atas lapisan luar Bayangan Malgorath, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh reruntuhan Kegelapan Pertama menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Cahaya Sylvara mulai meredup. Ruang Kegelapan Pertama menelan setiap panah sebelum mencapai sasaran.
 
-“Kita membangunkan pusat Bayangan Malgorath,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Malgorath versi arwah dan pasukan ketakutan mulai bergerak dari kedalaman.
+Kael mencoba melindunginya dengan Pulse, tetapi Malgorath justru memusatkan serangan pada sumber cahaya tersebut.
+
+“Sylvara, berhenti memakai sihir cahaya.”
+
+“Kalau berhenti, simpulnya tertutup.”
+
+Panah terakhir dilepaskan.
+
+Cahaya Sylvara padam sepenuhnya. Aura Elf yang selama ini selalu menyertainya lenyap, meninggalkan busur gelap di tangannya dan rasa kosong pada matanya.
+
+Namun panah tersebut menancap tepat pada pusat takhta.
+
+Kael menggunakan celah itu untuk memisahkan Kegelapan Primordial dari kehendak Malgorath. Luka realitas tetap ada, tetapi tidak lagi menjadi tubuh bagi sang dewa bayangan.
+
+Wujud besar Malgorath retak.
+
+Takhta kosong mulai memperlihatkan wajah pemilik berikutnya.
+
+Wajah Kael.
