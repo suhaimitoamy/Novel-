@@ -1,25 +1,49 @@
 # Episode 168 — Menerobos Badai
 
-Udara bergetar sebelum suara apa pun sempat lahir di gua Jantung Es Rhythor. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Badai memenuhi Jantung Es.
 
-Serangan Elemental Lord yang dibungkus kristal Void datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Setiap butiran salju membawa serpihan memori Roh Es Agung. Kael melihat musim-musim Rhythor berputar di sekelilingnya: musim semi singkat, musim berburu, malam panjang, dan pencairan pertama.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Benih Struktur mencoba membekukan semuanya dalam satu keadaan.
 
-Kael menerapkan pemutusan benang kendali lewat resonansi seimbang. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sylvara membuka jalan dengan panah pemurnian. Setiap anak panah menembus kristal Void dan memperlihatkan es murni di bawahnya.
 
-“Sekarang, Kael! Simpul Wadah Sekunder ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Zireth menempatkan medan bintang pada jalur tersebut agar retakan tidak langsung menutup. Pasukan Iskali menahan makhluk-makhluk es yang terus dilahirkan badai.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh gua Jantung Es Rhythor sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael bergerak menuju Zevaron.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Dalam benturan Wadah Sekunder, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Wadah Sekunder memakai semua data Pulse yang dicuri untuk membalas setiap langkah. Serangan Kael selalu bertemu pertahanan yang tepat.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Wadah Sekunder tetap memiliki batas yang tak boleh dilanggar.
+“Berhenti memakai pola yang mereka kenal!” teriak Zevaron dari dalam kristal.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan panah pemurnian Sylvara, lengan Zireth, dan prajurit Iskali untuk menghantam pusat kendali yang baru terlihat.
+Kael memandangnya. “Kalau begitu bantu aku.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Arsitek sedang membangun tubuh pengganti dari roh-roh penjaga Zerath. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Zevaron menutup mata dan mengubah arus elemennya dari dalam. Petir yang semula mengikuti perintah Wadah bergerak liar dan merusak sinkronisasi lapisan kristal.
 
-Kael merasakan kemenangan kecil atas lapisan luar Wadah Sekunder, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh gua Jantung Es Rhythor menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael mengikuti ketidakteraturan tersebut.
 
-“Kita membangunkan pusat Wadah Sekunder,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Elemental Lord yang dibungkus kristal Void mulai bergerak dari kedalaman.
+Dia tidak memimpin. Dia menyesuaikan Pulse pada pilihan Zevaron, panah Sylvara, medan Zireth, serta nyanyian Shaman.
+
+Data Arsitek kehilangan kemampuan memprediksi mereka.
+
+Mereka mencapai kristal pusat.
+
+Kael menempelkan kedua tangan pada permukaan dan mencari benang yang mengikat pola Zevaron ke Roh Es. Jalurnya sangat halus; memotong terlalu cepat akan merobek kesadaran keduanya.
+
+“Bertahan,” katanya.
+
+Zevaron menahan rasa sakit saat Kael mulai memisahkan energinya. Sylvara menembakkan panah ke simpul yang ditandai, sedangkan Zireth menjaga celah tetap terbuka.
+
+Benang pertama putus.
+
+Kristal di sekitar Zevaron pecah. Dia jatuh ke lantai dan segera bangkit meski tubuhnya lemah.
+
+“Aku belum selesai.”
+
+Kael membantunya berdiri.
+
+Di depan mereka, Roh Es Agung membuka mata. Cahaya birunya masih terkurung di balik lapisan Void.
+
+Wadah telah kehilangan cetakan manusianya.
+
+Namun Benih Struktur merespons dengan mengambil kendali langsung atas tubuh roh tersebut.
