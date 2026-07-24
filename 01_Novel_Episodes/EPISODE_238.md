@@ -1,25 +1,49 @@
 # Episode 238 — Benturan Penjaga Neraka
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di Danau Darah Beku. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Inti Penjaga membakar jaringan nama.
 
-Serangan raksasa berzirah nama-nama korban datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Cahaya merah menyebar melalui ribuan rantai, tetapi jiwa Eira membungkus setiap pelat dan menahan api sebelum menyentuh penghuninya.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Eira. Yang lain membalas dari sudut berbeda dengan pengorbanan terakhir Eira, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+“Cepat,” katanya melalui seluruh zirah. “Aku tidak selama itu keras kepala.”
 
-Kael menerapkan pemisahan harmonik jiwa dari zirah. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael mencari mekanisme pembakaran di balik inti. Penjaga menyerang dengan pedang dan tinju yang membuat danau darah pecah menjadi gelombang beku.
 
-“Sekarang, Kael! Simpul Penjaga Neraka ini hanya bisa kutahan beberapa detik,” seru Eira. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sylvara bergerak tanpa sihir cahaya. Dia memakai pantulan pada es, tali busur, dan sudut tubuh Penjaga untuk menembakkan panah biasa ke sambungan yang tidak terlihat Kael.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Danau Darah Beku sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Di bawah rusuk kiri!”
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Dalam benturan Penjaga Neraka, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael menggeser fase dan memasukkan tongkat ke celah tersebut. Pemisahan harmonik memperlihatkan bahwa mekanisme pembakaran terhubung pada semua pelat. Menghancurkan inti secara langsung akan meledakkan jiwa-jiwa yang sedang dilindungi Eira.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Penjaga Neraka tetap memiliki batas yang tak boleh dilanggar.
+Mereka harus memutus ribuan sambungan hampir bersamaan.
 
-Eira hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan pengorbanan terakhir Eira untuk menghantam pusat kendali yang baru terlihat.
+Kael membentuk jaringan resonansi tipis di atas seluruh zirah. Setiap nama menjadi satu nada. Jiwa tanpa nama diberi ruang kosong yang tetap dihitung sebagai bagian utuh, bukan kesalahan.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: setiap pelindung penjaga adalah jiwa yang harus dibebaskan, bukan dihancurkan. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Penjaga menyesuaikan diri. Danau darah berubah menjadi tubuh tambahan, mengangkat tangan-tangan raksasa dari bawah permukaan.
 
-Kael merasakan kemenangan kecil atas lapisan luar Penjaga Neraka, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Danau Darah Beku menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Sylvara hampir tertangkap. Kael menggunakan Frekuensi Penyangkal untuk menghentikan perintah pada tangan tersebut, tetapi saraf kanannya ikut terbakar.
 
-“Kita membangunkan pusat Penjaga Neraka,” kata Eira pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama raksasa berzirah nama-nama korban mulai bergerak dari kedalaman.
+Dia mempertahankan jaringan.
+
+Eira mulai kehilangan bentuk.
+
+“Kael. Kalau aku tidak keluar—”
+
+“Jangan bicara seolah sudah selesai.”
+
+“Dengarkan dulu.” Suaranya melemah. “Jangan simpan aku sebagai alasan untuk mengorbankan diri berikutnya. Itu cara orang mati terus menguasai orang hidup.”
+
+Kael tidak menjawab. Dia tidak sanggup menjanjikan sesuatu yang belum tahu cara dilakukan.
+
+Sylvara menembakkan tiga panah terakhir ke simpul utama. Kael mengubah fase seluruh jaringan pada saat yang sama.
+
+Ribuan rantai terputus.
+
+Pelat-pelat jatuh dari tubuh Penjaga. Jiwa-jiwa keluar sebagai cahaya merah dan memenuhi langit Neraka.
+
+Namun inti masih hidup.
+
+Tanpa zirah, bentuk asli Penjaga terlihat: mesin tulang yang dibangun mengelilingi satu jiwa raksasa. Jiwa tersebut bukan penguasa penjara, melainkan korban pertama yang dipaksa menjaga semua korban setelahnya.
+
+Eira berdiri di dalam inti bersama roh itu.
+
+Untuk mengakhiri pertarungan, mereka harus membebaskan Penjaga—bukan membunuhnya.
