@@ -1,27 +1,67 @@
 # Episode 260 — Sayap yang Jatuh
 
-Butiran cahaya melayang seperti abu dari bintang mati di Istana Langit Lykaros. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Zevaron meninggalkan Lykaros tanpa mahkota dan tanpa sayap kiri.
 
-Semua jalan di Istana Langit Lykaros berakhir pada satu pusat. Di sanalah Jenderal Celestial dan hakim cahaya menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat membongkar dewan yang menjual perang kepada para dewa mustahil dilakukan.
+Kapal kecil pemberontak membawa Kael serta dirinya keluar melalui jalur servis sebelum pasukan dewan menutup seluruh istana. Di kejauhan, cahaya Rhythor berkedip tidak stabil karena jaringan suksesi telah kehilangan pusat.
 
-“Kita mencapai pusat Pengkhianatan Celestial bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zevaron. Kael menatap Zevaron, lalu pada pemberontakan kecil Zevaron. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Zevaron berdiri di geladak dan mencoba membuka sayap kanan.
 
-Mereka bergerak serempak. Sekutunya menggunakan pemberontakan kecil Zevaron untuk memecah lapisan luar, sedangkan Kael menyusupkan pembiasan cahaya untuk memutus segel Celestial ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Tubuhnya langsung berputar. Kael menangkap bahunya sebelum dia jatuh dari kapal.
 
-Kael tidak melawan semua lapisan Pengkhianatan Celestial. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Jangan.”
 
-Di pusat jaring Pengkhianatan Celestial itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+“Aku harus belajar menyeimbangkannya.”
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di pusat Pengkhianatan Celestial, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zevaron tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Tidak saat luka masih terbuka.”
 
-Jenderal Celestial dan hakim cahaya mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Zevaron menepis tangan Kael, tetapi gerakannya tidak memiliki tenaga seperti dulu. “Kau berjalan dengan saraf rusak dan tongkat. Jangan ceramahi aku tentang menunggu.”
 
-Tidak ada ledakan besar. Jenderal Celestial dan hakim cahaya retak dalam keheningan Istana Langit Lykaros. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zevaron menahannya sebelum kepalanya membentur tanah.
+Kael tidak membalas. Kemarahan itu bukan benar-benar ditujukan kepadanya.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: dewan ingin menjadikan Zevaron wadah dewa baru. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Mereka mendarat di dataran tinggi tempat Sylvara dan Zireth menunggu. Sylvara kini tanpa cahaya, Zevaron tanpa satu sayap, Kael tanpa entropi dan sebagian fungsi tubuh, sementara lengan bintang Zireth menjadi satu-satunya bagian kelompok yang tampak semakin kuat.
 
-Kael memandangi sisa-sisa pusat kendali Pengkhianatan Celestial. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+“Kelompok yang mengesankan,” kata Zireth datar. “Tidak satu pun keluar utuh.”
 
-Debu Pengkhianatan Celestial belum menyentuh tanah saat peringatan berikutnya tiba. Vanguard Beastmen menyerbu dari daratan. Kael dan Zevaron saling pandang; keduanya tahu perjalanan tak memberi mereka waktu berkabung.
+Zevaron duduk agar lengan bintang dapat memindai luka jiwanya. Tidak ada jalur regenerasi yang tersisa. Sayap tersebut bukan hanya dipotong dari daging, tetapi dihapus dari pola tubuhnya.
 
-Kael menutup pintu pusat Pengkhianatan Celestial. Ia tidak menutup ingatan tentang apa yang terjadi di sana. Ingatan itulah yang dibawanya sebagai batas bagi kekuatan sendiri.
+“Aku tidak akan terbang seperti dulu,” katanya.
+
+Sylvara memegang busur tanpa cahaya. “Aku juga tidak akan menembak seperti dulu.”
+
+Keduanya saling memandang. Tidak ada penghiburan palsu, hanya pengakuan bahwa kehilangan tersebut nyata.
+
+Alarm dari daratan menghentikan pemeriksaan.
+
+Peta menunjukkan gerakan besar dari selatan. Vanguard Beastmen menyeberangi perbatasan dengan kecepatan tinggi, dipimpin oleh panglima yang membawa Fragmen perang pada zirahnya.
+
+Pesan terbuka mereka diputar:
+
+**CELestial menutup langit. ELF dan DWARF menimbun jangkar. BEASTMEN AKAN MEMBUKA JALAN DENGAN TANGAN SENDIRI.**
+
+Mereka tidak datang untuk menyerang Lykaros saja. Jalur pasukannya mengarah ke pusat Dataran Terbelah dan Fragmen yang baru saja distabilkan.
+
+Zireth memeriksa pola perjalanan. “Sistem Pahlawan memberi mereka nubuat berbeda. Mereka yakin bangsa lain sedang memenjarakan dunia.”
+
+Zevaron mencoba berdiri. Tubuhnya kembali miring.
+
+Kael menyerahkan tongkat Eira kepadanya untuk sesaat.
+
+“Aku tidak butuh belas kasih.”
+
+“Itu tongkat, bukan belas kasih.”
+
+Zevaron menggunakannya dan berhasil berdiri tegak. Wajahnya menunjukkan penghinaan, lalu penerimaan yang enggan.
+
+Di langit, Istana Lykaros menutup semua gerbang. Di daratan, pasukan Beastmen bergerak seperti gelombang baja dan bulu.
+
+Dewan Celestial telah mengkhianati rakyatnya.
+
+Sekarang akibatnya menarik bangsa lain ke medan perang.
+
+Kael mengambil kembali tongkat ketika Zevaron menemukan keseimbangan sendiri.
+
+“Kita temui Vanguard sebelum mereka mencapai Fragmen.”
+
+Sayap yang jatuh tertinggal di Lykaros sebagai bukti ritual yang gagal.
+
+Pemiliknya berjalan ke perang berikutnya tanpa lambang yang dulu menentukan siapa dirinya.
