@@ -1,25 +1,41 @@
 # Episode 177 — Suara dari Sinyal Outer Void
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di langit tanpa bintang di atas The Core. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael menyentuh batas sinyal dengan Ragnarok Pulse yang hampir tidak memiliki amplitudo.
 
-Sejak benturan sebelumnya, pola bayangan antimateri di luar atmosfer terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menentukan asal keheningan yang menjawab kehancuran Sistem, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Tidak ada kata yang menjawab.
 
-“Ada lapisan lain di bawah Sinyal Outer Void. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zireth. Kael memandangi garis-garis pada permukaan. Ia tahu Zireth benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sebagai gantinya, pikirannya dipenuhi rasa lapar yang tidak mengenal emosi. Bayangan tersebut tidak membenci Zerath. Ia hanya mendeteksi sumber energi dan bergerak untuk memakannya.
 
-Ia mengalirkan pemetaan spektrum gamma dari batas atmosfer melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Zireth membaca perubahan spektrum. “Setiap Pulse besar menghasilkan tanda yang sama dengan bintang sekarat. Bagi makhluk itu, kau terdengar seperti sumber makanan.”
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan jaringan sensor magitek Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Kael melihat jejak energinya sendiri di ruang gelap. Aranyel, Puncak Beku, Belzoth, Urdron, dan Rhythor menjadi titik-titik terang yang membentuk rute menuju planet.
 
-Kael menyentuh rekaman Sinyal Outer Void. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Semua pertarunganku membuat jalur.”
 
-Ia memutus kontak dengan rekaman Sinyal Outer Void sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Sinyal kembali menyentuh pikirannya.
 
-“Ini bukan hanya jejak serangan di Sinyal Outer Void,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zireth. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Kali ini muncul gambaran dunia lain yang telah dimakan. Benua berubah menjadi debu perak, lautan menghilang, dan cahaya terakhir tersedot ke dalam bayangan.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Bayangan antimateri di luar atmosfer telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Makhluk tersebut bukan ciptaan Sang Arsitek.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—setiap Pulse besar Kael terdengar seperti suar bagi pemangsa kosmik.
+Ia pemangsa kosmik yang jauh lebih tua.
 
-“Kalau petunjuk tentang Sinyal Outer Void ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zireth. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Namun di antara jejaknya terdapat pola geometris kecil. Sang Arsitek telah memasang penanda pada jalur Pulse Kael agar makhluk itu menemukan Zerath lebih cepat.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan bayangan antimateri di luar atmosfer berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+“Dia memakai aku sebagai suar,” kata Kael.
+
+Zireth mencoba memutus penanda dari jaringan sensor. Bayangan segera bereaksi dan melepaskan gelombang antimateri.
+
+Kael menahan serangan dengan perisai tipis. Permukaannya mulai terhapus, bukan pecah atau terbakar.
+
+“Energinya meniadakan materi,” kata Zireth. “Kita tidak dapat menahannya lama.”
+
+Kael tidak membalas dengan kekuatan besar. Dia memetakan spektrum serangan dan mencari bagian yang masih terhubung ke penanda Sang Arsitek.
+
+Di bawah rasa lapar alami, terdapat satu nada yang terlalu sempurna.
+
+“Bukan makhluknya yang dikendalikan,” katanya. “Arah perburuannya yang dimanipulasi.”
+
+Jika mereka memutus penanda, pemangsa mungkin berbelok menuju sumber lain.
+
+Namun satu kesalahan akan membuat sinyal Ragnarok Pulse menyala lebih terang daripada sebelumnya.
