@@ -1,25 +1,31 @@
 # Episode 302 — Suara dari Labirin Dimensi
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di ruang tanpa arah di bawah Jantung Zerath. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Zireth membuat aturan pertama: tidak seorang pun boleh mengucapkan tujuan akhir.
 
-Sejak benturan sebelumnya, pola arsitektur yang berubah setiap kali diamati terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menemukan Zireth dan pusat benturan realitas, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Setiap kali kata “pusat” disebut, lorong membentuk pusat palsu. Setiap kali seseorang membayangkan rumah, sebuah pintu rumah muncul dan membawa mereka ke jalan lama.
 
-“Ada lapisan lain di bawah Labirin Dimensi. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Zireth. Kael memandangi garis-garis pada permukaan. Ia tahu Zireth benar. Kekuatan mentah hanya akan mempercepat bencana.
+Mereka berkomunikasi dengan ketukan pada dinding.
 
-Ia mengalirkan pengamatan terkontrol untuk meruntuhkan superposisi melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael mengamati hanya satu sudut pada satu waktu. Ketika bentuk lorong mulai stabil, dia menurunkan pengamatan dan membiarkan Zireth menyelesaikan peta melalui logika, bukan penglihatan.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan logika Zireth dan Gema Pengetahuan. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Teknik itu membuka ruang kecil berisi ribuan pintu rusak.
 
-Kael menyentuh rekaman Labirin Dimensi. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Gema Pengetahuan membaca sisa riwayatnya. Pintu-pintu tersebut pernah menjadi jalur yang dibuang Sistem ketika hasilnya tidak sesuai nubuat. Bukannya musnah, semua jalan itu ditumpuk di bawah Jantung Zerath.
 
-Ia memutus kontak dengan rekaman Labirin Dimensi sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+“Labirin bukan penjara,” kata Kael. “Ini tempat pembuangan kemungkinan.”
 
-“Ini bukan hanya jejak serangan di Labirin Dimensi,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Zireth. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Zireth menyentuh salah satu pintu. Di baliknya ada dunia tempat dia tidak pernah mengganti lengannya. Pintu lain menunjukkan dirinya mati sebelum bertemu Kael.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Arsitektur yang berubah setiap kali diamati telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Arsitektur menyerang ketika mereka memahami kebenaran. Dinding melipat, lantai menjadi rahang, dan semua pintu mencoba terbuka bersamaan.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Labirin dibangun dari sisa jalur yang dibuang Sistem.
+Kael mengendalikan pengamatannya. Dia memilih satu bentuk lorong dan menahan perhatian pada bentuk itu saja.
 
-“Kalau petunjuk tentang Labirin Dimensi ini benar, akibatnya lebih besar daripada musuh di depan,” kata Zireth. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Sylvara berjalan di belakangnya tanpa melihat sisi lain. Zireth memakai Gema sebagai peta buta.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan arsitektur yang berubah setiap kali diamati berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Mereka mencapai ruang tempat beberapa versi Zireth bertumpuk. Di antara semuanya, satu memegang kompas massa asli.
+
+Kael tidak memilih berdasarkan wajah. Dia mendengarkan recoil lengan bintang yang pernah rusak saat menyelamatkan mereka.
+
+Satu denyut menjawab.
+
+Itulah Zireth yang mereka cari.

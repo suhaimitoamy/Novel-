@@ -1,25 +1,33 @@
 # Episode 318 — Benturan Inti Kosmos
 
-Bayangan-bayangan memanjang meski tak ada matahari di Ruang Konvergensi di luar planet. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sisa Entitas membuang bentuk manusia.
 
-Serangan Sisa Entitas yang tak memiliki bentuk tetap datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ruang Konvergensi berubah menjadi medan tanpa hukum tetap. Tubuh Kael menjadi berat, lalu hampir tak bermassa. Cahaya membeku menjadi dinding. Waktu bergerak berbeda pada setiap anggota kelompok.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Gema Pengetahuan sebagai pelindung kesadaran, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Gema Pengetahuan menjaga kesadaran mereka tetap terhubung.
 
-Kael menerapkan resonansi pada konstanta dasar materi. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Kael menggunakan resonansi konstanta dasar. Dia tidak melawan perubahan, melainkan mengembalikan hubungan antarhukum: massa dengan ruang, energi dengan waktu, cahaya dengan arah.
 
-“Sekarang, Kael! Simpul Inti Kosmos ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Entitas menyerang melalui satu gagasan: Zerath tidak sah karena lahir dari luka.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Ruang Konvergensi di luar planet sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael merasakan keraguan jutaan Gema dan seluruh penghuni dunia yang baru dijahit.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Dalam benturan Inti Kosmos, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Tidak ada kehidupan yang memilih bahan kelahirannya,” katanya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Inti Kosmos tetap memiliki batas yang tak boleh dilanggar.
+Sylvara menembak serpihan pusat. Zireth menghitung fase. Para sekutu menahan pelindung kesadaran.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Gema Pengetahuan sebagai pelindung kesadaran untuk menghantam pusat kendali yang baru terlihat.
+Tekanan kosmik meningkat sampai beberapa orang tidak dapat berdiri.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Fragmen berasal dari luka pada hukum realitas sebelum Zerath lahir. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael dapat membawa semuanya maju dengan menjadikan dirinya pusat pelindung, tetapi jangkar masa hidupnya sudah tersebar di Zerath. Memaksa lebih jauh akan merobek jahitan dunia.
 
-Kael merasakan kemenangan kecil atas lapisan luar Inti Kosmos, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Ruang Konvergensi di luar planet menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Dia memerintahkan kelompok yang tidak mampu bertahan untuk kembali.
 
-“Kita membangunkan pusat Inti Kosmos,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama Sisa Entitas yang tak memiliki bentuk tetap mulai bergerak dari kedalaman.
+Beberapa menolak.
+
+“Ini bukan perintah karena kalian lemah,” kata Kael. “Ini keputusan agar kalian tetap punya masa depan untuk dijaga.”
+
+Akhirnya hanya Kael, Sylvara, dan Zireth yang bertahan di lapisan terdalam.
+
+Mereka memisahkan kendali Sisa Entitas dari luka kosmik.
+
+Bola gelap retak dan membuka galaksi kecil di dalamnya.

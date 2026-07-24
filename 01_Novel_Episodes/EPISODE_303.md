@@ -1,25 +1,31 @@
 # Episode 303 — Benturan Labirin Dimensi
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di ruang tanpa arah di bawah Jantung Zerath. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Begitu Zireth asli ditarik keluar, labirin kehilangan bentuk sopan.
 
-Serangan arsitektur yang berubah setiap kali diamati datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Lorong-lorong melipat menjadi satu ruang sempit. Setiap permukaan berubah saat dipandang. Sylvara menembak dinding, tetapi sasaran menjadi pintu sebelum anak panah menyentuhnya.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan logika Zireth dan Gema Pengetahuan, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael menutup mata.
 
-Kael menerapkan pengamatan terkontrol untuk meruntuhkan superposisi. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Dia membiarkan Gema Pengetahuan mengirim informasi terbatas: tekanan, jarak, dan denyut. Tanpa gambar utuh, arsitektur tidak dapat membaca bentuk yang sedang dia harapkan.
 
-“Sekarang, Kael! Simpul Labirin Dimensi ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Zireth menghitung pilihan dengan suara rendah. “Tiga langkah. Berhenti. Putar tubuh tanpa membuka mata.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh ruang tanpa arah di bawah Jantung Zerath sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Mereka bergerak seperti orang buta di dalam makhluk hidup.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Dalam benturan Labirin Dimensi, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Pusat labirin mencoba memancing Kael dengan pintu Aranyel. Suara ibunya terdengar lagi. Kael tidak membuka mata.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Labirin Dimensi tetap memiliki batas yang tak boleh dilanggar.
+Dinding menghantam dari sisi kanan. Sylvara menahan dengan busur dan bahunya terkilir.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan logika Zireth dan Gema Pengetahuan untuk menghantam pusat kendali yang baru terlihat.
+Kael menggunakan pengamatan terkontrol. Dia membuka satu mata hanya cukup lama untuk memilih satu bentuk nyata, lalu mengirim Pulse rendah agar superposisi runtuh pada bentuk tersebut.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Labirin dibangun dari sisa jalur yang dibuang Sistem. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Ruang membeku menjadi lorong batu.
 
-Kael merasakan kemenangan kecil atas lapisan luar Labirin Dimensi, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh ruang tanpa arah di bawah Jantung Zerath menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Zireth menancapkan kompas massa pada lantai. Gema Pengetahuan menahan bentuk itu ketika Kael mengalihkan perhatian.
 
-“Kita membangunkan pusat Labirin Dimensi,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama arsitektur yang berubah setiap kali diamati mulai bergerak dari kedalaman.
+Mereka menemukan benang pengendali: jalur-jalur buangan Sistem dipaksa menelan siapa pun yang masih memiliki tujuan bebas.
+
+Kael memutus benang, tetapi labirin membalas dengan menghapus konsep pulang dari lengan bintang Zireth.
+
+Semua penunjuk arah pada alat itu padam.
+
+Zireth menatap logamnya. Untuk pertama kalinya, senjata yang selalu menunjukkan jalan tidak mengenali tempat asal mereka.

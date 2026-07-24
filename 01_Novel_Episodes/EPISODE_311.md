@@ -1,25 +1,31 @@
 # Episode 311 — Jejak Jahitan Zerath
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di Jantung Zerath yang retak. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jantung Zerath berdetak tidak serempak.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menyatukan kembali realitas tanpa menghapus para gema. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Dua belas lapisan realitas mengelilinginya, masing-masing ditarik oleh satu Fragmen. Kota-kota, pegunungan, dan sejarah yang berbeda saling bergesekan pada batas tipis.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zireth. Kael mengangguk. Mereka mengambil posisi dengan kalkulasi Zireth dan tekad seluruh sekutu, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael berdiri di pusat dengan jutaan Gema di dalam tubuhnya.
 
-Kael memusatkan napas dan menggunakan penyamaan fase dua belas kontinuum. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik tarikan dua belas Fragmen yang tak selaras.
+Zireth memetakan fase. “Kalau kita memilih satu lapisan sebagai dasar, sebelas lainnya akan kehilangan bagian sejarahnya.”
 
-Denyut Jahitan Zerath segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Jadi jangan pilih dasar.”
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Di Jahitan Zerath, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Mereka membangun jahitan dari hubungan bersama. Perang yang dialami beberapa dunia, nama yang muncul pada lebih dari satu sejarah, dan tempat yang tetap dikenali meski bentuknya berbeda menjadi titik ikat.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan kalkulasi Zireth dan tekad seluruh sekutu, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Para sekutu dari dua belas bangsa mengirim ingatan melalui Gema Pengetahuan. Tidak semua cocok. Sebagian saling menyangkal.
 
-Di balik penghalang Jahitan Zerath, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa Jantung Zerath yang retak melupakan bentuk alaminya.
+Kael menolak menghapus perbedaan.
 
-“Kita sudah melewati pintu Jahitan Zerath, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zireth. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Dia menyamakan fase, bukan isi.
 
-Suara pertama dari tarikan dua belas Fragmen yang tak selaras datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Tarikan Fragmen membalas. Lapisan dunia menekan tubuhnya dari dua belas arah. Gema di dalamnya menjerit ketika sejarah mereka hampir tercabut.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Jahitan Zerath terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Zireth menemukan pola jahitan pertama. Sylvara menahan Kael agar tetap sadar.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama tarikan dua belas Fragmen yang tak selaras muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Jahitan Zerath baru saja dimulai.
+Satu hubungan terpasang.
+
+Jantung Zerath menghasilkan detak yang sedikit lebih utuh.
+
+Namun untuk memasang seluruh jahitan, mereka membutuhkan jangkar hidup yang dapat berdiri pada dua belas kontinuum sekaligus.
+
+Semua orang memandang Kael.

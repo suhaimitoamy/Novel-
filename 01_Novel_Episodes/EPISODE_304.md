@@ -1,27 +1,31 @@
 # Episode 304 — Harga yang Dituntut Labirin Dimensi
 
-Keheningan datang seperti tangan yang menutup tenggorokan di ruang tanpa arah di bawah Jantung Zerath. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Tanpa kemampuan menunjuk rumah, lengan bintang Zireth hanya menampilkan arah yang mungkin.
 
-Mereka telah kehilangan ruang untuk bergerak. Arsitektur yang berubah setiap kali diamati menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Ribuan garis memenuhi udara. Tidak ada penanda untuk membedakan jalan pulang, jalan palsu, atau jalan menuju dunia lain.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Lengan bintang Zireth kehilangan kemampuan menunjuk rumah. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+“Kita bisa kembali ke bentuk sebelum kerusakan,” kata Kael. “Cari pintu tempat lenganmu masih utuh.”
 
-“Kita mundur dari Labirin Dimensi. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zireth. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Zireth menggeleng. “Itu bukan memperbaiki alat. Itu mengganti diriku dengan versi yang tidak membayar harga.”
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan logika Zireth dan Gema Pengetahuan. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Labirin menawarkan jalan tersebut di depan mereka. Di balik pintu, Zireth sehat berdiri di bengkel lama. Ia belum kehilangan relay, belum mengorbankan jaringan komunikasi, dan masih dapat menunjuk rumah.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pengamatan terkontrol untuk meruntuhkan superposisi untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Versi itu memanggil mereka masuk.
 
-Arsitektur yang berubah setiap kali diamati bereaksi liar di pusat Labirin Dimensi. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zireth berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Zireth menutup pintu sendiri.
 
-Kael menemukan benang kendali milik arsitektur yang berubah setiap kali diamati. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh ruang tanpa arah di bawah Jantung Zerath.
+Arsitektur menyerang lagi, memaksa semua arah menekan pada satu titik. Kael mencoba menahan, tetapi Pulse-nya dipantulkan oleh bentuk yang berubah setiap saat.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Labirin Dimensi akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Zireth memakai logika murni. “Rumah bukan koordinat. Rumah adalah jalur yang kita pilih bersama.”
 
-“Tidak,” kata Kael di hadapan Labirin Dimensi, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Dia menghapus seluruh fungsi navigasi lama dari lengannya.
 
-Serangan mereka melalui logika Zireth dan Gema Pengetahuan tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zireth; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Pengorbanan itu membuat alat berhenti mencari satu asal tetap. Sebagai gantinya, ia dapat mengikuti hubungan antara orang-orang yang sedang bergerak.
 
-Saat debu Labirin Dimensi turun, mereka sadar kemenangan kecil itu menuntut harga permanen: lengan bintang Zireth kehilangan kemampuan menunjuk rumah. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Garis menuju Kael, Sylvara, dan Gema Pengetahuan menyala.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Labirin Dimensi terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Mereka menemukan jalan keluar bukan karena alat mengingat Zerath, melainkan karena mereka saling menjadi penanda.
+
+Harga itu permanen. Zireth tidak akan lagi dapat membuka peta dan menunjuk tempat yang disebut rumah.
+
+Setiap perjalanan pulang setelah ini harus dibangun dari hubungan yang masih hidup.

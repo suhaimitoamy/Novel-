@@ -1,25 +1,35 @@
 # Episode 313 — Benturan Jahitan Zerath
 
-Debu bergerak melawan arah angin di Jantung Zerath yang retak. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sisa Sistem menyerang melalui tarikan dua belas Fragmen.
 
-Serangan tarikan dua belas Fragmen yang tak selaras datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Setiap lapisan mencoba kembali menjadi dunia tunggal. Gunung bertabrakan dengan kota. Laut jatuh melalui langit. Kenangan yang tak cocok mulai terhapus dari orang-orang yang mengalaminya.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan kalkulasi Zireth dan tekad seluruh sekutu, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael membuka tubuhnya dan membiarkan Gema berbicara melalui Pulse.
 
-Kael menerapkan penyamaan fase dua belas kontinuum. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sejuta suara mengisi Jantung Zerath. Mereka menyebut nama, tempat, dan peristiwa yang pernah dianggap limbah.
 
-“Sekarang, Kael! Simpul Jahitan Zerath ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sisa Sistem tidak mampu menghapus semuanya sekaligus.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Jantung Zerath yang retak sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Zireth menghitung fase. Para sekutu menahan jangkar masing-masing. Sylvara menembak simpul yang mencoba menjadikan Kael pusat tunggal.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Dalam benturan Jahitan Zerath, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael menarik dua belas kontinuum menuju frekuensi bersama.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Jahitan Zerath tetap memiliki batas yang tak boleh dilanggar.
+Tekanan mematahkan beberapa tulang. Usia tubuhnya berkurang dan bertambah dalam denyut yang sama.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan kalkulasi Zireth dan tekad seluruh sekutu untuk menghantam pusat kendali yang baru terlihat.
+Satu jahitan putus.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: dunia dapat dijahit dengan berbagi sejarah, bukan memilih satu pemenang. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael menggantinya dengan bagian masa hidupnya. Tahun-tahun yang belum dijalani menyebar sebagai energi jangkar. Rambutnya memutih pada satu sisi.
 
-Kael merasakan kemenangan kecil atas lapisan luar Jahitan Zerath, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Jantung Zerath yang retak menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+“Berhenti,” kata Zireth. “Kita cari cara lain.”
 
-“Kita membangunkan pusat Jahitan Zerath,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama tarikan dua belas Fragmen yang tak selaras mulai bergerak dari kedalaman.
+“Dunia tidak punya waktu.”
+
+“Dan kau bukan persediaan waktu.”
+
+Kael tetap memasang jangkar kedua, tetapi kali ini para sekutu membagi bebannya. Setiap orang menyerahkan sedikit masa depan, bukan membiarkan satu orang menyerahkan semuanya.
+
+Sisa Sistem retak.
+
+Dua belas lapisan mendekat tanpa menelan satu sama lain.
+
+Harga jahitan sudah tertanam: sebagian masa hidup Kael tersebar di seluruh dunia dan tidak dapat diambil kembali.

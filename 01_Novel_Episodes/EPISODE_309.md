@@ -1,27 +1,33 @@
 # Episode 309 — Harga yang Dituntut Garis Waktu yang Dikorbankan
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di tepi dunia paralel yang sekarat. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael tidak dapat membedakan detak jantungnya dari suara para Gema.
 
-Mereka telah kehilangan ruang untuk bergerak. Penduduk gema yang memohon dianggap nyata menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Setiap tarikan napas membawa kenangan orang lain. Dia melihat pernikahan yang tidak pernah dihadiri, perang yang tidak pernah dilawan, dan rumah yang tidak pernah menjadi miliknya.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael memindahkan mereka ke dalam dirinya sementara. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Sylvara memegang wajahnya. “Sebutkan namamu.”
 
-“Kita mundur dari Garis Waktu yang Dikorbankan. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael mencoba menjawab. Puluhan nama keluar lebih dulu.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Gema Pengetahuan sebagai bahtera ingatan. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Gema Pengetahuan menampung sebagian besar penduduk, tetapi jutaan hubungan rapuh masih berada dalam tubuh Kael. Memindahkannya terlalu cepat akan memecah mereka.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan kompresi informasi kuantum tanpa pemusnahan untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Mereka harus dibawa sampai Jahitan Zerath stabil.
 
-Penduduk gema yang memohon dianggap nyata bereaksi liar di pusat Garis Waktu yang Dikorbankan. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kael menerima syarat tersebut.
 
-Kael menemukan benang kendali milik penduduk gema yang memohon dianggap nyata. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh tepi dunia paralel yang sekarat.
+Dunia paralel di belakang mereka kehilangan materi. Langit, kota, dan tanah berubah menjadi cahaya informasi. Tidak ada tubuh yang dapat kembali ke sana.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Garis Waktu yang Dikorbankan akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Beberapa Gema menjerit karena merasa rumahnya mati. Yang lain lega masih dapat berpikir. Kael merasakan semua emosi itu sekaligus.
 
-“Tidak,” kata Kael di hadapan Garis Waktu yang Dikorbankan, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Protokol terakhir menawarkan keheningan: lepaskan entropi dan hapus kesadaran yang membebani tubuhnya.
 
-Serangan mereka melalui Gema Pengetahuan sebagai bahtera ingatan tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Ragnarok Pulse merespons godaan itu dengan rasa lapar.
 
-Saat debu Garis Waktu yang Dikorbankan turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael memindahkan mereka ke dalam dirinya sementara. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Kael menolak dan menurunkan amplitudo sampai rasa sakit menembus setiap saraf.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Garis Waktu yang Dikorbankan terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Harga penyelamatan menjadi jelas. Dia tidak hanya membawa mereka sebagai data. Untuk sementara, mereka hidup di dalam dirinya, berbagi rasa sakit, mimpi, dan ketakutan.
+
+Ketika jalur dunia itu akhirnya dilepas dari Zerath, tidak ada sorak.
+
+Mereka telah menyelamatkan jiwa, tetapi kehilangan tempat tempat jiwa-jiwa itu pernah hidup.
+
+Kael melangkah menuju pintu berikut dengan jutaan orang bergema di setiap denyut.
