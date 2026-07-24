@@ -1,25 +1,55 @@
 # Episode 268 — Benturan Pengepungan Fragmen
 
-Keheningan datang seperti tangan yang menutup tenggorokan di dua belas altar kekaisaran. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Relay penuh memberi seluruh Zerath satu jeda tanpa paksaan.
 
-Serangan pasukan kerajaan dan avatar pendeta datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Pada beberapa altar, pasukan mundur. Di tempat lain, para penguasa tetap memerintahkan pengepungan karena ambisi mereka memang nyata, bukan hasil kendali Sistem.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zireth. Yang lain membalas dari sudut berbeda dengan relay terakhir Zireth dan sekutu tiap ras, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Frekuensi Penyangkal tidak dapat memperbaiki pilihan yang dibuat secara sukarela.
 
-Kael menerapkan jaringan resonansi lintas benua. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Avatar pendeta menyerang para penjaga yang menolak. Dua belas medan perang terbuka serentak dan seluruh beban masuk melalui jaringan The Core.
 
-“Sekarang, Kael! Simpul Pengepungan Fragmen ini hanya bisa kutahan beberapa detik,” seru Zireth. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael melihat semuanya sekaligus.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh dua belas altar kekaisaran sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Sylvara menahan pendeta Aelarion dengan panah biasa dan Gema Pengetahuan. Zevaron melawan hakim cahaya menggunakan satu sayap. Raska memimpin Beastmen yang memilih bebas. Dagna menjaga altar Urdron, sementara Nyrathis membentuk perisai air di sekeliling Fragmennya.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Dalam benturan Pengepungan Fragmen, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Zireth mengatur relay sampai pelat lengan bintangnya memerah.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Pengepungan Fragmen tetap memiliki batas yang tak boleh dilanggar.
+“Jangan mencoba mengambil alih semua pertempuran,” katanya.
 
-Zireth hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan relay terakhir Zireth dan sekutu tiap ras untuk menghantam pusat kendali yang baru terlihat.
+Kael hanya mengirim pola yang diminta setiap penjaga. Resonansi untuk menghubungkan. Biru untuk menahan pelepasan energi. Ungu untuk mengurai perintah asing. Tidak ada satu teknik yang dipaksakan pada semua tempat.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Fragmen adalah pasak ruang-waktu, bukan harta kerajaan. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Avatar-avatar beradaptasi dan menyatukan tubuhnya melalui pola Urdron. Serangan pada satu altar diperbaiki oleh sebelas lainnya. Ketika Sylvara membuka simpul di Aelarion, avatar Rhythor mengirim cahaya untuk menutupnya. Saat Raska memutus pulsa Garundrax, Belzoth menggantinya dengan kutukan.
 
-Kael merasakan kemenangan kecil atas lapisan luar Pengepungan Fragmen, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh dua belas altar kekaisaran menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Mereka harus menyerang hubungan pusat, bukan tubuh lokal.
 
-“Kita membangunkan pusat Pengepungan Fragmen,” kata Zireth pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama pasukan kerajaan dan avatar pendeta mulai bergerak dari kedalaman.
+Zireth menemukan benang geometris yang bergerak di antara dua belas altar.
+
+“Benih Urdron menyamar sebagai jembatan koordinasi.”
+
+Kael meminta setiap penjaga membuka satu simpul pada waktu yang dipilih sendiri. Tidak serempak sempurna—ketidakteraturan justru membuat pola Sang Arsitek tidak dapat memprediksi urutannya.
+
+Sylvara membuka yang pertama.
+
+Tiga detik kemudian Raska. Lalu Dagna, Nyrathis, Zevaron, dan penjaga lain dengan jeda berbeda.
+
+Benang pusat kehilangan kestabilan.
+
+Avatar pendeta memindahkan dirinya ke struktur altar. Batu, air, pohon, es, dan daging hidup bangkit menjadi tubuh baru. Fragmen-fragmen mulai terangkat karena seluruh tempat sucinya bergerak.
+
+Kael memakai jaringan resonansi untuk menahan posisi jangkar. Tubuhnya tidak cukup kuat menampung dua belas tarikan. Maka setiap penjaga memegang sebagian beban.
+
+Di The Core, lengan bintang Zireth mulai retak akibat relay maksimum.
+
+“Kalau jaringan putus sekarang, semua Fragmen tercabut.”
+
+Kael mendengar ketakutan dalam suaranya.
+
+“Relay itu buatanmu. Pilihan untuk mempertahankan atau melepaskannya milikmu.”
+
+Zireth memandang jaringan yang dibangun dari tahun-tahun riset, Logam Bintang, serta bagian identitasnya sebagai mekanik.
+
+Dia mengunci semua daya dan membiarkan relay mulai membakar dirinya sendiri.
+
+Dua belas altar tertahan.
+
+Namun waktu mereka tinggal beberapa menit sebelum jaringan komunikasi lenyap selamanya.
