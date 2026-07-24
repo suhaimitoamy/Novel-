@@ -1,27 +1,67 @@
 # Episode 174 — Harga yang Dituntut Tiga Mesin Takdir
 
-Bayangan-bayangan memanjang meski tak ada matahari di Katedral Waktu, Menara Memori, dan Danau Jiwa. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Failsafe memakai The Core sebagai medan perang.
 
-Mereka telah kehilangan ruang untuk bergerak. Master Waktu, Penjaga Memori, dan Pendeta Jiwa menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Kael memotong rantai jiwa yang mengarah kepada Zireth, tetapi Master Waktu mengulang serangan beberapa detik kemudian. Sylvara menghancurkan tangan memori, hanya untuk melihatnya kembali terbentuk dari kenangan mereka sendiri.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael kehilangan satu kenangan berharga setiap kali sebuah mesin runtuh. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+“Kita harus memutus satu mesin lebih dulu,” kata Zireth. “Walau hanya sementara.”
 
-“Kita mundur dari Tiga Mesin Takdir. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Dua lainnya akan membangunnya kembali.”
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Gema Pengetahuan dan kalkulasi jarak jauh Zireth. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Tidak sebelum kita membayar biaya koreksi.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan denyut berantai pada tiga jangkar kausal untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Zireth menunjukkan pola tersembunyi. Setiap kali salah satu mesin dipaksa berhenti, failsafe mengambil energi dari sumber terdekat yang berada di luar sistem.
 
-Master Waktu, Penjaga Memori, dan Pendeta Jiwa bereaksi liar di pusat Tiga Mesin Takdir. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kael.
 
-Kael menemukan benang kendali milik Master Waktu, Penjaga Memori, dan Pendeta Jiwa. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Katedral Waktu, Menara Memori, dan Danau Jiwa.
+Lebih tepatnya, ingatannya.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Tiga Mesin Takdir akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+“Mesin tidak dapat menulis ulang Fragmenmu,” kata Sylvara. “Jadi ia memakai kenanganmu sebagai jembatan.”
 
-“Tidak,” kata Kael di hadapan Tiga Mesin Takdir, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Kael memahami harga tersebut.
 
-Serangan mereka melalui Gema Pengetahuan dan kalkulasi jarak jauh Zireth tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Untuk mematikan Katedral Waktu sementara, dia harus menyerahkan satu kenangan. Menara Memori akan meminta kenangan berikutnya. Danau Jiwa mungkin mengambil bagian yang lebih dalam.
 
-Saat debu Tiga Mesin Takdir turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael kehilangan satu kenangan berharga setiap kali sebuah mesin runtuh. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+“Kita cari cara lain,” kata Sylvara.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Tiga Mesin Takdir terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Tidak ada waktu.
+
+Master Waktu mulai memundurkan Rhythor. Pada salah satu layar, matahari kembali membeku dan jejak Roh Es Agung mulai hilang.
+
+Kael menyentuh pintu Katedral.
+
+“Ambil satu kenangan.”
+
+Mesin meraih bagian masa kecilnya: hari ketika ibunya mengajarinya menyalakan api kecil tanpa takut. Wajah dan kata-katanya menghilang dari pikiran Kael.
+
+Katedral padam.
+
+Menara Memori mencoba membangunnya kembali. Sylvara menahan arsip dengan Gema Pengetahuan, sementara Zireth membuka jalur menuju simpul kedua.
+
+Kael menyentuhnya.
+
+Kenangan lain hilang—suara Aranyel pada pagi yang damai.
+
+Menara padam.
+
+Danau Jiwa berguncang. Kael bersiap membayar lagi, tetapi Sylvara menangkap tangannya.
+
+“Cukup. Kita tidak akan membiarkanmu menghapus seluruh dirimu.”
+
+Zireth menemukan celah pada failsafe yang kini hanya ditopang satu mesin.
+
+“Danau tidak membutuhkan kenanganmu jika jiwa yang hendak dihapus bersaksi sendiri.”
+
+Gema Roh Es Agung masih tersimpan dalam salju Rhythor.
+
+Sylvara memanggilnya melalui Gema Pengetahuan.
+
+Suara penjaga yang telah gugur memenuhi The Core.
+
+*Aku memilih pengorbananku. Tidak ada mesin yang berhak menghapusnya.*
+
+Danau Jiwa berhenti.
+
+Kael telah kehilangan dua kenangan berharga.
+
+Namun untuk mesin terakhir, mereka menemukan cara agar korban berbicara atas namanya sendiri.
