@@ -1,25 +1,39 @@
 # Episode 226 — Jejak Bayangan Malgorath
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di reruntuhan Kegelapan Pertama. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Malgorath menunggu di balik Gerbang Arwah, tetapi yang berdiri di sana bukan tubuh dewa kegelapan sepenuhnya.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: merebut catatan asal Fragmen dari bayangan dewa. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Sosoknya terbentuk dari bayangan, ingatan, dan ketakutan penghuni Neraka. Setiap gerakan membuat reruntuhan Kegelapan Pertama berubah bentuk.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan panah tanpa cahaya Sylvara dan pedang Kael, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Tubuh asliku masih terikat jauh di bawah,” katanya. “Bayangan ini cukup untuk berbicara denganmu.”
 
-Kael memusatkan napas dan menggunakan superposisi bayangan dan cahaya. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Malgorath versi arwah dan pasukan ketakutan.
+Kael tidak mendekat. “Di mana jiwa ibuku?”
 
-Denyut Bayangan Malgorath segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Malgorath tersenyum. “Selalu pertanyaan pribadi sebelum nasib dunia.”
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di Bayangan Malgorath, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Dia membuka telapak tangan. Di atasnya muncul fragmen cahaya yang memuat wajah perempuan dari rekaman Gerbang.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan panah tanpa cahaya Sylvara dan pedang Kael, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+“Dia membawa hubungan dengan Fragmenmu. Para dewa menyembunyikannya di sini agar dapat digunakan untuk mengendalikanmu kelak. Aku hanya mengambil apa yang mereka buang.”
 
-Di balik penghalang Bayangan Malgorath, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa reruntuhan Kegelapan Pertama melupakan bentuk alaminya.
+Sylvara memasang panah, tetapi cahayanya langsung ditelan ruang.
 
-“Kita sudah melewati pintu Bayangan Malgorath, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Malgorath melangkah mundur dan membuka jalan menuju reruntuhan tempat catatan asal Fragmen disimpan.
 
-Suara pertama dari Malgorath versi arwah dan pasukan ketakutan datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Ambil jawabanmu kalau mampu melewati ketakutan yang dibangun dari dirimu sendiri.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Bayangan Malgorath terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Pasukan bayangan muncul dari dinding. Mereka memakai wajah orang-orang yang pernah gagal diselamatkan Kael. Tidak ada serangan fisik; setiap tatapan memanggil rasa bersalah dan keinginan menghancurkan semuanya agar suara tersebut berhenti.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Malgorath versi arwah dan pasukan ketakutan muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Bayangan Malgorath baru saja dimulai.
+Kael menggunakan superposisi cahaya dan bayangan. Dia tidak mencoba membanjiri tempat itu dengan cahaya, karena setiap cahaya kuat hanya menciptakan bayangan lebih pekat. Dia membiarkan keduanya bertumpuk dan mencari bagian yang bukan milik Malgorath.
+
+Di bawah pasukan ketakutan, terdapat luka primordial pada realitas—kegelapan murni yang sudah ada sebelum para dewa memberi nama baik dan jahat.
+
+Furyborn tidak lahir dari Malgorath.
+
+Para dewa mengambil luka tersebut, memelintirnya, dan menanamkannya pada jiwa-jiwa gagal untuk mencari tubuh yang mampu menahan Voidmaker.
+
+Eira menatap sisa energi itu. “Mereka menyalahkan Kegelapan agar eksperimennya tampak seperti kutukan.”
+
+Malgorath tertawa dari kejauhan.
+
+“Kebenaran pertama telah kau temukan. Sekarang lihat apakah kau masih mampu membedakan bayanganku dari kebohongan para dewa.”
+
+Reruntuhan bergerak dan menutup jalan pulang.
