@@ -1,25 +1,53 @@
 # Episode 218 — Benturan Roh Furyborn
 
-Cahaya di tempat itu tidak jatuh dari langit; ia merembes dari retakan di perkampungan arwah tanpa matahari. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Makhluk seribu wajah menghantam menara.
 
-Serangan roh yang kehilangan identitas dan iri pada tubuh hidup datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Setiap wajah memakai suara berbeda untuk memanggil Kael. Sebagian meniru ibunya, Rowan, Roh Es Agung, bahkan korban Valerium yang namanya telah hilang.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan Sylvara yang mengulang nama dan sejarah Kael, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael hampir menjawab salah satu panggilan.
 
-Kael menerapkan penguncian identitas melalui frekuensi suara. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Sylvara berteriak dari belakang, “Jangan percaya suara yang hanya mengulang apa yang ingin kau dengar.”
 
-“Sekarang, Kael! Simpul Roh Furyborn ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Dia menyebut nama Kael sekali lagi, diikuti sejarah yang masih mereka bagi. Suaranya menjadi garis yang membedakan identitas asli dari tiruan.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh perkampungan arwah tanpa matahari sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael mengunci frekuensi tersebut dalam Ragnarok Pulse.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Dalam benturan Roh Furyborn, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Makhluk itu memanjat dinding dan mencoba masuk melalui luka sarafnya. Lengan kiri yang mati rasa bergerak sendiri, mencengkeram tepi menara seolah hendak menarik tubuhnya ke arah kerumunan.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Roh Furyborn tetap memiliki batas yang tak boleh dilanggar.
+Eira memukul siku tersebut dengan tongkat hingga kendalinya putus.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Sylvara yang mengulang nama dan sejarah Kael untuk menghantam pusat kendali yang baru terlihat.
+“Tubuhmu masih suka dipakai orang lain.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: para dewa sengaja menciptakan Furyborn gagal untuk mencari wadah anti-Voidmaker. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Bukan pilihan pertama dalam daftar masalahku.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Roh Furyborn, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh perkampungan arwah tanpa matahari menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Kael memakai Frekuensi Penyangkal untuk menghentikan dorongan roh tanpa menghapus mereka. Sylvara menandai wajah-wajah yang masih memiliki gema nama. Eira memanggil silsilah Furyborn dari ingatannya.
 
-“Kita membangunkan pusat Roh Furyborn,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama roh yang kehilangan identitas dan iri pada tubuh hidup mulai bergerak dari kedalaman.
+Satu per satu wajah terpisah dari massa utama.
+
+Namun bagian tanpa nama semakin marah. Ia menyerap rumah-rumah perkampungan dan memakai kenangan penghuninya sebagai tubuh baru. Jalan, pintu, dan atap berubah menjadi tangan yang meraih menara.
+
+Kael dapat menghancurkan pusatnya dengan entropi penuh.
+
+Dia memilih sebaliknya.
+
+Ragnarok Pulse disebar sebagai penguncian identitas. Setiap struktur dipisahkan berdasarkan kenangan pembentuknya: rumah kembali menjadi tawa, pintu kembali menjadi suara, dan dinding kembali menjadi sentuhan yang pernah dimiliki seseorang.
+
+Makhluk seribu wajah kehilangan tubuh pinjaman.
+
+Di pusatnya tersisa simpul gelap tanpa nama.
+
+Sylvara mendekat dan meletakkan Gema Pengetahuan di hadapannya. Artefak itu tidak memberi nama baru. Ia hanya memperlihatkan bahwa kekosongan tersebut pernah terdiri dari banyak orang.
+
+Kael berbicara kepada mereka.
+
+“Aku tidak bisa mengembalikan semua yang hilang. Tapi aku tidak akan memakai kalian sebagai bahan bakar atau musuh tanpa wajah.”
+
+Simpul itu goyah.
+
+Sebagian roh menerima pernyataan tersebut dan memisahkan diri. Sisanya menyerang sekali lagi, lebih kecil tetapi jauh lebih putus asa.
+
+Kael menahan benturan bersama Sylvara dan Eira.
+
+Pertarungan tersebut bukan untuk menang.
+
+Ia adalah usaha terakhir agar orang-orang yang kehilangan identitas tidak ikut kehilangan hak memilih.
