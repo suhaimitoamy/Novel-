@@ -1,27 +1,57 @@
 # Episode 239 — Harga yang Dituntut Penjaga Neraka
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di Danau Darah Beku. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Bentuk asli Penjaga Neraka berdiri tanpa zirah.
 
-Mereka telah kehilangan ruang untuk bergerak. Raksasa berzirah nama-nama korban menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Tubuhnya tersusun dari tulang dan mesin, tetapi di pusatnya terkurung satu jiwa raksasa. Wajah roh tersebut berubah-ubah mengikuti semua nama yang pernah dipaksa menjadi pelindung.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Eira lenyap setelah jiwa terakhirnya terlepas. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+*Aku menjaga karena tidak ada yang membebaskanku,* katanya.
 
-“Kita mundur dari Penjaga Neraka. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Eira. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael menyentuh inti dengan resonansi harmonik.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan pengorbanan terakhir Eira. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Dia melihat awal Penjaga: seorang Furyborn pertama yang berhasil menahan energi anti-Voidmaker. Para dewa takut kehilangan wadah tersebut, lalu mengikat jiwanya pada Neraka dan memaksanya mengawasi semua eksperimen gagal.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pemisahan harmonik jiwa dari zirah untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Ribuan tahun kemudian, dia tidak lagi ingat nama sendiri.
 
-Raksasa berzirah nama-nama korban bereaksi liar di pusat Penjaga Neraka. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Eira berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Eira berdiri di dalam jaringan bersamanya. Bentuk jiwa perempuan tua itu mulai transparan.
 
-Kael menemukan benang kendali milik raksasa berzirah nama-nama korban. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Danau Darah Beku.
+“Aku bisa memandu dia keluar,” katanya. “Tapi hubungan ini memakai sisa jiwaku sebagai jalan.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Penjaga Neraka akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Kael mencari kemungkinan lain. Tidak ada jalur yang cukup stabil. Jika Eira melepaskan koneksi sekarang, inti akan runtuh dan jiwa Penjaga kembali terikat pada mesin.
 
-“Tidak,” kata Kael di hadapan Penjaga Neraka, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Jangan,” kata Kael. “Kita sudah kehilangan terlalu banyak.”
 
-Serangan mereka melalui pengorbanan terakhir Eira tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Eira; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Eira tersenyum. “Kalimat itu tidak pernah menghentikan dunia meminta lebih.”
 
-Saat debu Penjaga Neraka turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Eira lenyap setelah jiwa terakhirnya terlepas. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Dia mendekati jiwa Penjaga dan mengulurkan tangan.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Penjaga Neraka terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Aku juga Furyborn yang dibuat dari sisa-sisa kegagalan mereka. Mari keluar sebagai diri sendiri, bukan alat.”
+
+Roh raksasa menerima tangannya.
+
+Kael serta Sylvara membuka jalur dari luar. Frekuensi Penyangkal menghentikan perintah mesin, sementara pemisahan harmonik melepaskan jiwa dari rangka tulang.
+
+Eira memimpin roh tersebut melewati jaringan nama.
+
+Setiap langkah membuat bentuknya semakin tipis.
+
+“Eira, kembali.”
+
+“Aku tidak punya tubuh yang cukup kuat lagi untuk menahan koneksi.” Suaranya mulai jauh. “Dan aku sudah memberikan Fury, kenangan, serta hampir semua yang kumiliki. Biarkan bagian terakhir ini menjadi pilihanku.”
+
+Kael merasakan tangannya terlepas dari resonansi.
+
+Eira mendorong jiwa Penjaga keluar dari inti tepat saat mesin runtuh. Roh raksasa bebas dan berubah menjadi ribuan percikan merah.
+
+Eira tidak ikut muncul.
+
+Hanya tongkatnya yang jatuh ke es danau.
+
+Kael meraihnya dengan tangan kanan. Dia mencoba memanggil namanya melalui jaringan jiwa, tetapi tidak ada jawaban.
+
+Eira telah menghabiskan bagian terakhir dirinya sebagai jalan bagi korban pertama Furyborn.
+
+Penjaga Neraka berakhir tanpa ledakan atau kemenangan besar.
+
+Danau darah menjadi tenang.
+
+Kael berdiri sambil memegang tongkat Eira, menolak menjadikan kematiannya alasan untuk menghancurkan apa pun. Itu janji terakhir yang mampu dia berikan.
