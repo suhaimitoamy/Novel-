@@ -1,27 +1,65 @@
 # Episode 265 — Dua Belas Denyut Serempak
 
-Debu bergerak melawan arah angin di Meat Forest Garundrax. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Fragmen Garundrax kembali tertanam pada akar hutan.
 
-Semua jalan di Meat Forest Garundrax berakhir pada satu pusat. Di sanalah Ritual Bulan Darah dan panglima pemburu menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat mengubah serbuan Beastmen menjadi aliansi rakyat mustahil dilakukan.
+Denyut perang padam. Beastmen mulai mengevakuasi korban dan membongkar altar, sementara Raska mengambil alih koordinasi tanpa menyebut dirinya panglima baru.
 
-“Kita mencapai pusat Vanguard Beastmen bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada pemimpin muda Beastmen dan panah penenang Sylvara. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Kael duduk di dekat akar besar, membiarkan Zireth memeriksa luka. Sylvara membersihkan busur biasa yang kini menjadi satu-satunya senjata setelah cahayanya hilang. Zevaron berdiri dengan satu sayap, berusaha mengatur keseimbangan tubuh saat angin berubah.
 
-Mereka bergerak serempak. Sekutunya menggunakan pemimpin muda Beastmen dan panah penenang Sylvara untuk memecah lapisan luar, sedangkan Kael menyusupkan pembatalan frekuensi pada hormon perang ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Keheningan hanya bertahan beberapa menit.
 
-Kael tidak melawan semua lapisan Vanguard Beastmen. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Ragnarok Pulse Kael berdenyut sekali.
 
-Di pusat jaring Vanguard Beastmen itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Fragmen Garundrax menjawab.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di pusat Vanguard Beastmen, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Lalu denyut lain datang dari utara. Gerbang Es. Berikutnya dari Urdron, Nyrathis, Aelarion, Belzoth, dan lokasi-lokasi lain di seluruh Zerath.
 
-Ritual Bulan Darah dan panglima pemburu mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Dua belas Fragmen beresonansi serempak.
 
-Tidak ada ledakan besar. Ritual Bulan Darah dan panglima pemburu retak dalam keheningan Meat Forest Garundrax. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Zireth membuka peta dunia. Setiap jangkar memancarkan gelombang yang bertemu di pusat planet.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: naluri mereka dipaksa oleh pulsa dari Fragmen Garundrax. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+“Bukan aktivasi Sistem,” katanya. “Polanya lebih tua.”
 
-Kael memandangi sisa-sisa pusat kendali Vanguard Beastmen. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Kael mendengarkan dengan hati-hati. Tidak ada perintah, nubuat, atau kehendak tunggal. Dua belas denyut tersebut saling bertanya dan menjawab seperti orang-orang yang baru menyadari bahwa seluruh dunia sedang menarik mereka dari tempatnya.
 
-Sylvara menurunkan senjata, tetapi Kael belum bergerak. Keheningan di pusat Vanguard Beastmen memiliki irama baru. Beberapa detik kemudian mereka memahami alasannya. Semua Fragmen mulai beresonansi serempak.
+Fragmen-fragmen merasakan ancaman yang sama.
 
-Mereka membawa luka dan bukti dari Vanguard Beastmen menuju jalur berikut. Kael tidak merasa lebih dekat pada kemenangan; ia hanya memahami harga kekalahan dengan lebih jelas.
+Sang Arsitek, Voidmaker, para dewa, dan kekaisaran telah mencoba memakai setiap jangkar secara terpisah. Kini hubungan di antara mereka mulai aktif sebagai mekanisme perlindungan terakhir.
+
+Namun satu nada tidak selaras.
+
+Fragmen kedua belas di Urdron berdetak dengan pola geometris Sang Arsitek. Benih penataan ulang belum sepenuhnya dicabut. Ia meniru suara jangkar lain dan mencoba menjadikan resonansi bersama sebagai jaringan kendali global.
+
+“Kalau dua belas denyut terkunci pada pola itu,” kata Kael, “seluruh hukum Zerath dapat ditulis ulang sekaligus.”
+
+Raska memandang pasukannya yang baru bebas dari satu pulsa paksa. “Lalu hentikan sebelum dunia menjadi kawanan lain.”
+
+Kael mencoba mengirim Frekuensi Penyangkal melalui Garundrax. Fragmen menolak menjadikannya pusat. Setiap jangkar hanya bersedia meneruskan pola yang disetujui semua bagian jaringan.
+
+Itu bukan kegagalan.
+
+Itulah perlindungan yang dimaksud pesan pewaris: tidak ada satu kehendak, bahkan kehendak Kael, yang boleh menguasai seluruh dunia.
+
+Mereka membutuhkan persetujuan atau bantuan dari penjaga setiap Fragmen.
+
+Dua belas lokasi. Dua belas bangsa yang baru saja hampir berperang. Waktu yang tersisa semakin pendek ketika pola Urdron tumbuh pada setiap denyut.
+
+Zireth menghitung perkembangan infeksi.
+
+“Tujuh hari sebelum konvergensi penuh.”
+
+Kael berdiri dengan bantuan tongkat Eira.
+
+Dia tidak dapat mengunjungi semua tempat sendiri. Tidak lagi memiliki entropi untuk memutus jaringan melalui kekuatan. Tubuhnya bahkan belum pulih dari Garundrax.
+
+“Sebarkan pola Frekuensi Penyangkal kepada semua pihak yang bersedia membantu,” katanya. “Bukan sebagai perintah. Biarkan setiap Fragmen memilih penjaganya sendiri.”
+
+Sylvara membuka Gema Pengetahuan. Zevaron menghubungi sisa legiun yang masih mempercayainya. Raska memanggil kawanan yang memilih keluar dari ritual. Zireth membuka jaringan Nexus dan Logam Bintang.
+
+Untuk pertama kalinya, perjalanan menuju dua belas Fragmen tidak akan dilakukan oleh Kael seorang.
+
+Seluruh dunia harus bergerak.
+
+Pada peta, denyut-detak itu kembali berbunyi serempak.
+
+Di antara dua belas suara, pola Sang Arsitek tersenyum tanpa wajah.
