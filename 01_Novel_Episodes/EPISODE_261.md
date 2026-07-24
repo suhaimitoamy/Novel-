@@ -1,25 +1,49 @@
 # Episode 261 — Jejak Vanguard Beastmen
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di Meat Forest Garundrax. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Vanguard Beastmen bergerak melalui Hutan Daging Garundrax seperti satu tubuh besar.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mengubah serbuan Beastmen menjadi aliansi rakyat. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Pepohonannya tidak terbuat dari kayu, melainkan serat merah yang berdenyut. Akar-akar besar bergerak di bawah tanah dan mengikuti langkah pasukan. Setiap Beastmen membawa tanda Bulan Darah pada dahi, menyala lebih terang ketika mendekati Fragmen.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan pemimpin muda Beastmen dan panah penenang Sylvara, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael, Sylvara, Zireth, dan Zevaron mencegat mereka di jalur sempit sebelum dataran pusat.
 
-Kael memusatkan napas dan menggunakan pembatalan frekuensi pada hormon perang. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik Ritual Bulan Darah dan panglima pemburu.
+Panglima pemburu bernama Kharvok berdiri di depan ribuan pasukan. Tubuhnya besar, dipenuhi luka lama, dan zirahnya menanam serpihan Fragmen Garundrax langsung ke tulang dada.
 
-Denyut Vanguard Beastmen segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Furyborn pembawa Neraka,” katanya. “Minggir. Bangsa kami tidak akan menunggu Elf, Dwarf, atau Celestial memutuskan nasib dunia.”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di Vanguard Beastmen, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael tidak mengangkat senjata.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan pemimpin muda Beastmen dan panah penenang Sylvara, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+“Fragmen itu jangkar. Kalau dicabut, hutan dan tubuh kalian ikut kehilangan hukum yang menjaga bentuk.”
 
-Di balik penghalang Vanguard Beastmen, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa Meat Forest Garundrax melupakan bentuk alaminya.
+Kharvok menggeram. “Kata-kata bangsa yang selalu menyuruh kami menunggu.”
 
-“Kita sudah melewati pintu Vanguard Beastmen, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Di belakang panglima, seorang Beastmen muda memandang Kael dengan ragu. Namanya Raska, pemimpin regu pengintai yang menemukan banyak prajuritnya berubah liar setelah ritual terakhir.
 
-Suara pertama dari Ritual Bulan Darah dan panglima pemburu datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Dia mendekat diam-diam saat perundingan berlangsung.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Vanguard Beastmen terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+“Pasukan kami tidak tidur,” bisiknya. “Semua mendengar detak dari hutan. Semakin dekat Bulan Darah, semakin sulit menolak perintah Kharvok.”
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama Ritual Bulan Darah dan panglima pemburu muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Vanguard Beastmen baru saja dimulai.
+Kael menempelkan tongkat Eira ke tanah.
+
+Denyut Hutan Daging masuk ke tubuhnya. Di bawah irama alami jantung, napas, dan naluri Beastmen terdapat satu pulsa yang terlalu teratur. Ia bergerak dari Fragmen Garundrax menuju tanda pada dahi setiap prajurit.
+
+Bukan sekadar semangat perang.
+
+Naluri mereka dipaksa secara biologis.
+
+Sylvara menyiapkan panah penenang yang diracik dari getah hutan. Tanpa cahaya, dia mengandalkan racun ringan dan ketepatan biasa. Zireth memetakan jalur pulsa dengan lengan bintang.
+
+Kael mengirim pembatalan frekuensi sangat kecil kepada Raska.
+
+Tanda Bulan Darah di dahinya padam sesaat. Matanya langsung kehilangan kabut merah.
+
+“Itu bukan kemarahanmu,” kata Kael.
+
+Raska memandang pasukannya dengan ngeri.
+
+Kharvok merasakan gangguan tersebut. Dia mengangkat kapak dan meraung.
+
+Seluruh hutan menjawab. Tanda pada ribuan Beastmen menyala bersamaan, memaksa tubuh mereka maju.
+
+Kael tidak dapat membatalkan pulsa untuk semuanya sekaligus tanpa mengambil alih sistem saraf mereka.
+
+Untuk menghentikan serbuan, dia harus mencapai altar Bulan Darah di pusat hutan—melewati pasukan yang sedang dipaksa memburunya.
