@@ -1,27 +1,55 @@
 # Episode 224 — Harga yang Dituntut Gerbang Arwah
 
-Butiran cahaya melayang seperti abu dari bintang mati di jembatan tulang menuju lapisan terdalam. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Mesin pengadilan membuka pusatnya.
 
-Mereka telah kehilangan ruang untuk bergerak. Penjaga Gerbang yang memakai wajah ibu Kael menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Di dalamnya tersimpan ribuan jawaban pahlawan terdahulu. Sebagian menyatakan ingin menyelamatkan dunia. Sebagian ingin kembali kepada keluarga. Banyak yang berjanji tidak akan menyalahgunakan kekuatan.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael harus mengakui bahwa sebagian dirinya menikmati kehancuran. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Sistem menandai jawaban-jawaban tersebut sebagai patuh, lalu mengirim para pahlawan kembali ke dunia atas untuk dipakai lagi.
 
-“Kita mundur dari Gerbang Arwah. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Mereka yang mengaku marah, takut, egois, atau ragu dianggap cacat dan dibuang lebih dalam ke Neraka.
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan kejujuran Sylvara yang menolak menghibur dengan kebohongan. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Gerbang tidak mencari kejujuran,” kata Sylvara. “Ia mencari jawaban yang mudah dikendalikan.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan resonansi emosional tanpa pelepasan energi untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Penjaga mengembalikan wajah ibu Kael.
 
-Penjaga Gerbang yang memakai wajah ibu Kael bereaksi liar di pusat Gerbang Arwah. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Berikan jawaban yang benar dan kau boleh pulang.”
 
-Kael menemukan benang kendali milik Penjaga Gerbang yang memakai wajah ibu Kael. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh jembatan tulang menuju lapisan terdalam.
+“Apa jawaban yang benar?”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Gerbang Arwah akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+“Bahwa kau hidup demi dunia dan bersedia menyerahkan dirimu kepada Sistem.”
 
-“Tidak,” kata Kael di hadapan Gerbang Arwah, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Kael tertawa tanpa kegembiraan.
 
-Serangan mereka melalui kejujuran Sylvara yang menolak menghibur dengan kebohongan tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Api entropi dalam Pulse menyukai gagasan menghancurkan seluruh mesin. Bagian tersebut terasa bersih dan memuaskan—satu ledakan, satu musuh berakhir.
 
-Saat debu Gerbang Arwah turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael harus mengakui bahwa sebagian dirinya menikmati kehancuran. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Kael mengakuinya di hadapan Sylvara dan Eira.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Gerbang Arwah terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Sebagian diriku ingin menghancurkan Gerbang hanya karena aku bisa.”
+
+Sylvara mengangguk. “Lalu apa yang dipilih bagian lain?”
+
+“Memberi semua jiwa hak keluar tanpa lulus ujian kepatuhan.”
+
+Kael menggunakan resonansi emosional, bukan entropi. Dia membuka arsip jawaban dan mengembalikannya kepada pemilik masing-masing. Roh-roh korban kembali merasakan alasan hidup yang pernah mereka ucapkan sebelum Sistem mengubahnya menjadi nilai kelayakan.
+
+Gerbang menyerang dengan seluruh kekuatan. Jembatan tulang pecah. Wajah ibu Kael berteriak bahwa dia akan kehilangan satu-satunya kesempatan melihatnya lagi.
+
+Kael tidak memalingkan mata.
+
+“Aku ingin wajah ini nyata. Karena itu aku tidak akan mengubah kebohongan menjadi ibuku hanya agar rasa sakit berhenti.”
+
+Dia memutus hubungan antara wajah tersebut dan mesin.
+
+Ilusi pecah.
+
+Di baliknya tidak ada ibu Kael, hanya inti logam yang dibangun dari janji-janji pahlawan yang telah dirampas.
+
+Kael, Sylvara, Eira, dan roh-roh Furyborn menyerang simpul kendali bersama. Mesin tidak dihancurkan; fungsi pengadilan kepatuhan dipisahkan dari pintu perpindahan jiwa.
+
+Gerbang menjadi jalan, bukan hakim.
+
+Namun pengakuan Kael tidak dapat ditarik kembali. Sylvara dan Eira kini mengetahui bahwa bagian dirinya menikmati kehancuran.
+
+Rasa malu tidak hilang. Begitu pula naluri tersebut.
+
+Harga Gerbang adalah hidup tanpa lagi bersembunyi di balik citra pahlawan yang sepenuhnya suci.
