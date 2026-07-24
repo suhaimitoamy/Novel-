@@ -1,27 +1,59 @@
 # Episode 249 — Harga yang Dituntut Dua Belas Panji
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di Dataran Terbelah. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Dua belas jenderal batu mengepung cekungan.
 
-Mereka telah kehilangan ruang untuk bergerak. Dua belas pasukan dan para jenderal Celestial menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Masing-masing memakai teknik bangsa yang panjinya dibawa: sihir pohon Aelarion, meriam rune Dwarf, badai Celestial, kutukan Warlock, dan kekuatan lain yang disalin Sistem dari sejarah perang Zerath.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael dituduh membawa Neraka ke permukaan. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Kael dan Zevaron bertahan di dekat Fragmen.
 
-“Kita mundur dari Dua Belas Panji. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zevaron. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Tanpa entropi murni, Kael tidak dapat menghapus tubuh-tubuh tersebut. Dia harus memisahkan setiap teknik dari perintah yang memakainya.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan upaya mediasi Zevaron yang rapuh. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Di luar cekungan, pasukan mulai memilih pihaknya sendiri. Prajurit Elf melindungi regu Dwarf dari jenderal batu Aelarion. Beastmen menahan meriam tiruan agar tidak menghantam barisan manusia. Kerja sama tersebut rapuh, tetapi setiap pilihan melemahkan nubuat palsu.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pembacaan residu kausal pada nubuat untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Sistem mengubah sasaran.
 
-Dua belas pasukan dan para jenderal Celestial bereaksi liar di pusat Dua Belas Panji. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zevaron berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Seluruh suara leluhur menuduh Kael sebagai penyebab Gerbang Neraka terbuka. Gambaran pasukan iblis di The Core disiarkan ke seluruh medan.
 
-Kael menemukan benang kendali milik dua belas pasukan dan para jenderal Celestial. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Dataran Terbelah.
+“Dia membawa Neraka ke permukaan.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Dua Belas Panji akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+“Setiap bencana mengikuti langkahnya.”
 
-“Tidak,” kata Kael di hadapan Dua Belas Panji, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Bunuh Furyborn itu sebelum jangkar hancur.”
 
-Serangan mereka melalui upaya mediasi Zevaron yang rapuh tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zevaron; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Tuduhan tersebut tidak sepenuhnya kosong. Recoil pertempuran melawan Voidmaker memang membuka segel Neraka. Kael telah memasuki dunia bawah dan mengubah sistemnya. Dia tidak dapat menjawab dengan penyangkalan sederhana.
 
-Saat debu Dua Belas Panji turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael dituduh membawa Neraka ke permukaan. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Zevaron berdiri di depan ketika beberapa pahlawan terpilih mengarahkan senjata.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Dua Belas Panji terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Kael terlibat dalam terbukanya Gerbang,” katanya melalui saluran umum. “Dia juga membebaskan jiwa yang dipenjara para dewa. Kalian boleh mengadili tindakannya setelah dunia tidak lagi berada di ambang kehancuran.”
+
+Seorang jenderal Celestial memerintahkannya mundur.
+
+Zevaron menolak.
+
+Mediasi tersebut menghancurkan kedudukannya di antara sebagian pasukan Rhythor. Beberapa legiun menurunkan lambang keluarga pangeran dari zirahnya.
+
+Harga tidak hanya jatuh pada Kael.
+
+Zireth menemukan pusat nubuat di bawah Fragmen. Sylvara menandai dua belas jalur yang menghubungkannya ke panji. Kael membentuk Frekuensi Penyangkal pada simpul tersebut.
+
+Sistem memantulkan Pulse dan mencoba membuat seluruh dataran percaya bahwa Kael sedang mencabut Fragmen.
+
+Dia membuka semua pembacaan melalui Gema Pengetahuan. Tidak ada data yang disembunyikan, termasuk perannya dalam Gerbang Neraka dan kehilangan entropi.
+
+“Kalian tidak harus percaya kepadaku,” kata Kael. “Lihat prosesnya. Pilih setelah melihat siapa yang sedang menggerakkan ketakutan kalian.”
+
+Satu demi satu pasukan memutus sambungan panjinya dengan Sistem.
+
+Jenderal-jenderal batu retak. Fragmen turun perlahan kembali ke tanah dan menanamkan dirinya pada jangkar materi.
+
+Perang besar tidak terjadi hari itu.
+
+Namun Kael meninggalkan Dataran Terbelah dengan tuduhan resmi dari beberapa kekaisaran: pembawa Neraka, perusak Sistem, dan ancaman terhadap tatanan dewa.
+
+Zevaron kehilangan dukungan sebagian legiun. Sylvara tetap tanpa cahaya. Kael tidak lagi memiliki entropi untuk memaksa jalan keluar.
+
+Di kejauhan, dua belas pasukan mundur sambil membawa kecurigaan yang belum selesai.
+
+Nubuat palsu telah dibongkar.
+
+Kebencian yang dibangunkannya tidak ikut hilang.
