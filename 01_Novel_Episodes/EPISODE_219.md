@@ -1,27 +1,63 @@
 # Episode 219 — Harga yang Dituntut Roh Furyborn
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di perkampungan arwah tanpa matahari. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Simpul tanpa nama menyerang kesadaran Kael secara langsung.
 
-Mereka telah kehilangan ruang untuk bergerak. Roh yang kehilangan identitas dan iri pada tubuh hidup menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Ia tidak mencoba mengambil tubuh. Makhluk itu menghapus batas yang membuat Kael mengenali dirinya sendiri.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Nama Kael mulai terkikis dari ingatannya sendiri. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Nama Kael Drayven terdengar asing.
 
-“Kita mundur dari Roh Furyborn. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Aranyel menjadi lokasi tanpa hubungan. Sylvara dan Eira berubah menjadi dua sosok yang dia tahu penting, tetapi tidak lagi memahami alasannya.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Sylvara yang mengulang nama dan sejarah Kael. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Kael!” Sylvara terus memanggil.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan penguncian identitas melalui frekuensi suara untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Dia menatapnya tanpa mengenali suara tersebut.
 
-Roh yang kehilangan identitas dan iri pada tubuh hidup bereaksi liar di pusat Roh Furyborn. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Makhluk seribu wajah menawarkan kelegaan. Tanpa nama, tidak ada tanggung jawab, rasa bersalah, atau janji yang harus dipenuhi.
 
-Kael menemukan benang kendali milik roh yang kehilangan identitas dan iri pada tubuh hidup. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh perkampungan arwah tanpa matahari.
+Ragnarok Pulse mulai mengikuti kekosongan itu.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Roh Furyborn akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Sylvara tidak berhenti mengulang sejarah mereka.
 
-“Tidak,” kata Kael di hadapan Roh Furyborn, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Kau membakar jalan keluar dari Aranyel. Kau menolak Rowan. Kau memilih meninggalkan Fragmen kelima. Kau menutup Gerbang Es. Kau keras kepala, menyebalkan, dan selalu mencoba menanggung semuanya sendiri.”
 
-Serangan mereka melalui Sylvara yang mengulang nama dan sejarah Kael tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Beberapa bagian kembali dalam bentuk rasa, bukan gambar.
 
-Saat debu Roh Furyborn turun, mereka sadar kemenangan kecil itu menuntut harga permanen: nama Kael mulai terkikis dari ingatannya sendiri. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Eira memukul tongkat ke lantai.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Roh Furyborn terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Dan kau bocah yang merusak saraf sendiri daripada menyerahkan tubuh kepada Voidmaker. Jangan berani melupakan kebodohan sebesar itu.”
+
+Kael merasakan sesuatu menyerupai tawa.
+
+Dia belum mengingat seluruhnya, tetapi ada pilihan yang tetap menempel lebih dalam daripada nama: menolak menjadikan orang lain alat.
+
+Kael memakai pilihan tersebut sebagai jangkar.
+
+Frekuensi suara Sylvara mengunci identitasnya dari luar. Eira menyebut nama-nama Furyborn yang telah diselamatkan. Para roh kampung ikut menambahkan kesaksian tentang Kael selama berada di Neraka.
+
+Nama bukan sekadar kata.
+
+Ia adalah hubungan yang dibangun dari ingatan banyak orang.
+
+Simpul tanpa nama mencoba menghapus semua suara sekaligus. Kael membentuk Frekuensi Penyangkal dan memisahkan dorongan penghapusan dari rasa kehilangan yang mendasarinya.
+
+Makhluk itu retak.
+
+Roh-roh di dalamnya terlepas tanpa mendapatkan kembali identitas penuh, tetapi tidak lagi dipaksa menjadi satu kerumunan.
+
+Kael jatuh pada lutut.
+
+“Apa namamu?” tanya Sylvara.
+
+Dia membuka mulut. Beberapa detik berlalu sebelum kata tersebut datang.
+
+“Kael.”
+
+“Lengkap.”
+
+“Kael Drayven.”
+
+Nama itu kembali, tetapi terasa lebih tipis. Sebagian hubungannya telah terkikis permanen. Dia harus meminjam ingatan orang lain untuk menjaga dirinya tetap utuh.
+
+Di pusat kampung, Gerbang Arwah terbuka.
+
+Rune pada permukaannya meminta satu nama sebagai pembayaran agar mereka dapat kembali ke dunia atas.
