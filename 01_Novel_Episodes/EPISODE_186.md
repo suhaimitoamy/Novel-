@@ -1,25 +1,41 @@
 # Episode 186 — Jejak Benteng The Core
 
-Bayangan-bayangan memanjang meski tak ada matahari di cincin pertahanan Inti Planet. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jalan menuju The Core telah terhapus.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: mendirikan garis pertahanan terakhir. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Nexus membangun jalur darurat melalui cincin pertahanan Inti Planet. Pasukan Dwarf memasang meriam rune di sepanjang tepi, sementara legiun Celestial yang dipimpin Zevaron tiba dari Rhythor.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zevaron. Kael mengangguk. Mereka mengambil posisi dengan legiun Celestial Zevaron dan meriam Dwarf, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+“Kau akhirnya datang,” kata Kael.
 
-Kael memusatkan napas dan menggunakan isolasi vakum elektromagnetik bertingkat. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik gelombang antimateri dan pasukan tanpa bayangan.
+Zevaron memandang wadah vakum berisi abu antimateri. “Aku tidak akan membiarkan apa pun yang lahir dari tubuhku atau kesalahanku menyentuh Iskali lagi.”
 
-Denyut Benteng The Core segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zevaron mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Cincin pertahanan berbentuk lorong raksasa yang mengelilingi inti planet. Di luar dinding transparan, ruang kosong berputar dengan serpihan materi yang belum memiliki koordinat.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Di Benteng The Core, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael menggunakan isolasi vakum elektromagnetik untuk membuka jalur aman.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan legiun Celestial Zevaron dan meriam Dwarf, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Setiap lapis perisai menahan antimateri, tetapi juga menarik energi kehidupan dari pembuatnya.
 
-Di balik penghalang Benteng The Core, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa cincin pertahanan Inti Planet melupakan bentuk alaminya.
+Zireth membaca sistem benteng. “Fragmen-fragmen Zerath terhubung ke cincin ini. Mereka menjaga konstanta materi planet tetap stabil.”
 
-“Kita sudah melewati pintu Benteng The Core, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zevaron. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+“Jika satu Fragmen hancur?” tanya Zevaron.
 
-Suara pertama dari gelombang antimateri dan pasukan tanpa bayangan datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Sebagian hukum fisik dapat ikut runtuh.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Benteng The Core terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kael memahami skala ancaman. Sang Arsitek dan Voidmaker tidak perlu menghancurkan seluruh dunia secara langsung. Cukup merusak jangkar yang membuat batu tetap batu, air tetap cair, dan tubuh memiliki bentuk.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama gelombang antimateri dan pasukan tanpa bayangan muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Benteng The Core baru saja dimulai.
+Alarm berbunyi.
+
+Pasukan tanpa bayangan muncul dari bagian jalur yang terhapus. Tubuh mereka menyerupai prajurit berbagai ras, tetapi permukaannya kosong dan tidak memantulkan cahaya.
+
+Meriam Dwarf menembak. Sebagian serangan menghilang sebelum menyentuh sasaran.
+
+Zevaron memimpin legiun Celestial maju. Angin dan petir menciptakan ruang bagi Kael untuk memperkuat perisai.
+
+“Benteng ini garis terakhir sebelum The Core,” kata Sosok Berhelm melalui komunikasi. “Jika runtuh, gelombang antimateri mencapai jaringan Fragmen.”
+
+Kael melihat pasukan tanpa bayangan terus muncul.
+
+Di belakang mereka bergerak gelombang gelap yang jauh lebih besar.
+
+Voidmaker tidak lagi hanya mengirim abu.
+
+Ia sedang mencoba masuk melalui jalan yang telah dihapusnya sendiri.
