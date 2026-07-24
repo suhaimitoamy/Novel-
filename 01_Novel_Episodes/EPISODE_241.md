@@ -1,25 +1,43 @@
 # Episode 241 — Jejak Kebenaran Furyborn
 
-Debu bergerak melawan arah angin di inti arsip Neraka Zerath. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Inti arsip Neraka mulai menghapus dirinya sendiri setelah sistem penjara dibuka.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membawa bukti eksperimen para dewa kembali ke dunia. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Rak-rak kristal memutih. Nama eksperimen hilang dari satu halaman ke halaman berikutnya. Para dewa telah menanam protokol terakhir agar bukti asal Furyborn tidak pernah mencapai dunia atas.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan Gema Pengetahuan dan sisa denyut Eira, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael dan Sylvara bergerak di antara lorong yang terus menghilang.
 
-Kael memusatkan napas dan menggunakan kompresi data jiwa ke dalam Gema Pengetahuan. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik protokol penghapus Neraka.
+Gema Pengetahuan hanya mampu menampung sebagian kecil data. Setiap catatan jiwa terlalu padat untuk disalin sebagai tulisan biasa.
 
-Denyut Kebenaran Furyborn segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Kita tidak dapat membawa semuanya,” kata Sylvara.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di Kebenaran Furyborn, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Kalau memilih sendiri, kita juga menentukan korban mana yang pantas diingat.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan Gema Pengetahuan dan sisa denyut Eira, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael memakai kompresi data jiwa. Dia tidak menyalin seluruh kehidupan, hanya pola kesaksian: nama jika masih ada, pilihan terakhir, perlakuan Sistem, dan hubungan dengan percobaan anti-Voidmaker.
 
-Di balik penghalang Kebenaran Furyborn, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa inti arsip Neraka Zerath melupakan bentuk alaminya.
+Sisa denyut Fury Eira yang tertanam dalam Frekuensi Penyangkal menjadi kalibrator. Irama kasarnya membedakan kesaksian hidup dari data palsu para dewa.
 
-“Kita sudah melewati pintu Kebenaran Furyborn, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Protokol penghapus menyadari tindakan mereka.
 
-Suara pertama dari protokol penghapus Neraka datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Cahaya putih menyapu lorong. Setiap bagian arsip yang disentuh tidak sekadar hancur; seluruh bukti bahwa catatan tersebut pernah ada ikut hilang.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Kebenaran Furyborn terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kael membangun simpul nol agar proses penghapusan kehilangan hubungan dengan Gema Pengetahuan. Sylvara menjaga artefak tanpa sihir cahaya, memakai tubuh dan busurnya untuk menahan puing yang runtuh.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama protokol penghapus Neraka muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Kebenaran Furyborn baru saja dimulai.
+Mereka mencapai ruang pusat.
+
+Di sana tersimpan catatan subjek yang tidak diberi nomor. Diagramnya sama dengan struktur Kael: darah campuran, Fragmen hidup, luka primordial, dan resonansi yang berada di luar sebab-akibat Sistem.
+
+Statusnya berbeda dari semua percobaan lain.
+
+**LAHIR TANPA OTORISASI.**
+
+Kael membaca baris berikutnya.
+
+**FURYBORN PERTAMA YANG TIDAK DICIPTAKAN SISTEM.**
+
+Dia bukan hasil akhir program para dewa. Keberadaannya lahir di luar rancangan yang mereka buat, meski menggunakan bahan-bahan yang pernah mereka eksploitasi.
+
+“Karena itu Sistem tidak pernah dapat mengklaimmu sepenuhnya,” kata Sylvara.
+
+Protokol penghapus mengunci seluruh ruang.
+
+Untuk membawa bukti tersebut keluar, Kael harus memasukkannya ke Gema Pengetahuan sebelum pusat arsip menghapus dirinya dan semua orang di dalamnya.
