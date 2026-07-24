@@ -1,25 +1,45 @@
 # Episode 172 — Suara dari Tiga Mesin Takdir
 
-Keheningan datang seperti tangan yang menutup tenggorokan di Katedral Waktu, Menara Memori, dan Danau Jiwa. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+The Core menghubungkan kesadaran mereka ke tiga lokasi sekaligus.
 
-Sejak benturan sebelumnya, pola Master Waktu, Penjaga Memori, dan Pendeta Jiwa terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk mematikan tiga mesin pengendali sebelum mereka menulis ulang kemenangan di Rhythor, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Kael berdiri di satu ruangan, tetapi melihat Katedral Waktu di kiri, Menara Memori di kanan, dan Danau Jiwa tepat di bawah kakinya.
 
-“Ada lapisan lain di bawah Tiga Mesin Takdir. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Master Waktu mengangkat jam tanpa jarum.
 
-Ia mengalirkan denyut berantai pada tiga jangkar kausal melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+*Rhythor akan dikembalikan pada keadaan stabil sebelum pemberontakan Wadah.*
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Gema Pengetahuan dan kalkulasi jarak jauh Zireth. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Penjaga Memori membuka buku kosong.
 
-Kael menyentuh rekaman Tiga Mesin Takdir. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+*Semua ingatan tentang kebebasan Roh Es akan dihapus.*
 
-Ia memutus kontak dengan rekaman Tiga Mesin Takdir sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Pendeta Jiwa menyentuh air hitam.
 
-“Ini bukan hanya jejak serangan di Tiga Mesin Takdir,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+*Jiwa para korban akan dikembalikan ke fungsi yang ditetapkan.*
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Master Waktu, Penjaga Memori, dan Pendeta Jiwa telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Sylvara mengepalkan Gema Pengetahuan. “Mereka ingin membuat pengorbanan Roh Es seolah tidak pernah terjadi.”
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—ketiga mesin adalah satu failsafe yang tersebar.
+Zireth membaca hubungan ketiga mesin. “Mematikan satu saja tidak cukup. Dua yang tersisa akan membangun ulang fungsi yang hilang.”
 
-“Kalau petunjuk tentang Tiga Mesin Takdir ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Kael mengirim denyut berantai melalui tiga pintu. Resonansi kembali membawa struktur failsafe: satu inti kausal yang dipecah menjadi waktu, ingatan, dan jiwa.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan Master Waktu, Penjaga Memori, dan Pendeta Jiwa berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+“Jadi kita harus menghantam ketiganya pada denyut yang sama.”
+
+“Jarak dan hukum masing-masing berbeda,” kata Zireth. “Selisih sepersekian detik akan membuat yang lain mengoreksi kerusakan.”
+
+Gema Pengetahuan memancarkan cahaya dan menampilkan arsip lama.
+
+Tiga Mesin Takdir awalnya dibangun para dewa untuk menjaga sejarah Zerath dari manipulasi luar. Setelah Sistem Pahlawan dibajak, mesin-mesin itu diubah menjadi alat untuk menghapus pemberontakan, kegagalan, dan kebenaran yang mengancam kekuasaan.
+
+Kael memandang ketiga penjaga.
+
+“Kita tidak boleh menghancurkan fungsi aslinya.”
+
+Sylvara memahami maksudnya. “Putuskan perintah Sang Arsitek dan para dewa, tetapi biarkan mesin menjaga sejarah.”
+
+Tiga penjaga bergerak serentak.
+
+*Variabel menolak koreksi. Prosedur pemusnahan dimulai.*
+
+Jarum waktu muncul. Halaman buku dipenuhi nama mereka. Danau Jiwa membentuk tangan-tangan hitam.
+
+Pertarungan dimulai pada tiga tempat sekaligus.
