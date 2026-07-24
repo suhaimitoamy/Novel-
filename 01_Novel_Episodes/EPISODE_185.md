@@ -1,27 +1,47 @@
 # Episode 185 — Nama-Nama yang Lenyap
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di kota perbatasan Valerium. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael kembali ke alun-alun sambil mengulang satu kalimat.
 
-Semua jalan di kota perbatasan Valerium berakhir pada satu pusat. Di sanalah manifestasi kecil Voidmaker menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menyelamatkan warga tanpa menyentuhkan materi pada abu mustahil dilakukan.
+“Dua orang mengorbankan diri untuk anak-anak mereka.”
 
-“Kita mencapai pusat Abu Antimateri bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada panah medan Sylvara dan evakuasi Zireth. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Nama mereka sudah hilang. Wajahnya pun semakin sulit dipertahankan. Namun pilihan terakhir mereka masih dapat diingat.
 
-Mereka bergerak serempak. Sekutunya menggunakan panah medan Sylvara dan evakuasi Zireth untuk memecah lapisan luar, sedangkan Kael menyusupkan perisai Lorentz untuk membelokkan partikel bermuatan ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Sylvara membawa dua anak ke luar kota, sementara Zireth menyelesaikan evakuasi. Kael berdiri sendiri di depan pusat manifestasi.
 
-Kael tidak melawan semua lapisan Abu Antimateri. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Tubuh Voidmaker kecil itu membesar dari seluruh abu yang tersisa. Setiap gerakannya menghapus tulisan, simbol, dan arsip di sekitar. Daftar penduduk pada balai kota berubah menjadi halaman kosong.
 
-Di pusat jaring Abu Antimateri itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Kael membangun jangkar dari hubungan yang tidak dapat diukur materi.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di pusat Abu Antimateri, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Dia memanggil suara warga yang merasa kehilangan meski tidak tahu siapa. Gema Pengetahuan memperkuat kesedihan tersebut dan memberinya bentuk.
 
-Manifestasi kecil Voidmaker mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Satu demi satu bayangan korban muncul dalam cahaya.
 
-Tidak ada ledakan besar. Manifestasi kecil Voidmaker retak dalam keheningan kota perbatasan Valerium. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Tidak semua memiliki nama. Sebagian hanya berupa siluet dan perasaan yang tertinggal.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: korban annihilation ikut hilang dari ingatan orang terdekat. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Itu cukup.
 
-Kael memandangi sisa-sisa pusat kendali Abu Antimateri. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Manifestasi mencoba menelan mereka. Kael memakai perisai Lorentz untuk membelokkan partikel, sementara Pulse biru menjaga jejak emosional tetap utuh.
 
-Sylvara menurunkan senjata, tetapi Kael belum bergerak. Keheningan di pusat Abu Antimateri memiliki irama baru. Beberapa detik kemudian mereka memahami alasannya. Separuh jalan menuju The Core lenyap.
+Zireth kembali setelah warga aman. “Jalur ke The Core ikut terhapus. Separuh jalan sudah tidak memiliki koordinat.”
 
-Mereka membawa luka dan bukti dari Abu Antimateri menuju jalur berikut. Kael tidak merasa lebih dekat pada kemenangan; ia hanya memahami harga kekalahan dengan lebih jelas.
+“Kita selesaikan ini dahulu.”
+
+Sylvara menembakkan panah penanda ke pusat geometris. Kael dan Zireth menyerang bukan untuk menghancurkan materi, tetapi memutus pola yang membuat annihilation merambat ke ingatan.
+
+Benang putih Sang Arsitek terbuka.
+
+Kael memotongnya dengan satu Pulse pendek.
+
+Manifestasi kehilangan bentuk. Abu perak terkumpul menjadi bola kecil tanpa arah, lalu Zireth menguncinya dalam wadah vakum bintang.
+
+Valerium selamat.
+
+Namun daftar korban tetap memiliki ruang kosong. Tak seorang pun mampu mengembalikan nama yang telah terhapus sepenuhnya.
+
+Kael membawa dua anak ke tempat aman. Mereka tidak mengingat wajah orang tuanya, tetapi masih merasa bahwa seseorang pernah memeluk dan melindungi mereka.
+
+“Perasaan itu jangan dibuang,” kata Kael. “Bahkan kalau nama mereka tidak kembali.”
+
+Di luar kota, mereka menemukan bahwa jalan menuju The Core berhenti di tengah dataran. Tanah, jembatan, dan koordinat setelah titik tersebut telah lenyap.
+
+Untuk pulang, mereka harus membangun jalur baru melewati cincin pertahanan Inti Planet.
