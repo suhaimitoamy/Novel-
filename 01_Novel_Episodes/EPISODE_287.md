@@ -1,25 +1,43 @@
 # Episode 287 — Suara dari Kael-Kael Paralel
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di kota cermin Aranyel. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Mereka berlindung di rumah Aranyel yang tidak dimiliki satu dunia pun.
 
-Sejak benturan sebelumnya, pola lima versi Kael dengan pilihan berbeda terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membedakan kemungkinan hidup dari penyusup Umbral, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Ashen memeriksa segel Tahanan. Rian duduk jauh dari semua sumber energi. Sang raja berdiri di jendela, menatap kota seakan masih memiliki hak memerintahnya.
 
-“Ada lapisan lain di bawah Kael-Kael Paralel. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Kael mencoba mengunci identitas mereka melalui recoil. Polanya jelas, tetapi tidak ada dua luka yang sama.
 
-Ia mengalirkan penguncian identitas melalui pola recoil unik melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Aku kehilangan Sylvara ketika memilih menyerang lebih dulu,” kata Ashen.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan gema suara Sylvara melintasi dimensi. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Sang raja menoleh. “Aku menyelamatkannya karena mengambil alih semua pasukan.”
 
-Kael menyentuh rekaman Kael-Kael Paralel. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Dan berapa orang yang kau bunuh agar mereka patuh?”
 
-Ia memutus kontak dengan rekaman Kael-Kael Paralel sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+“Lebih sedikit daripada yang mati dalam keraguanmu.”
 
-“Ini bukan hanya jejak serangan di Kael-Kael Paralel,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Pertengkaran itu bukan tentang benar atau salah. Mereka masing-masing membawa dunia yang membuktikan pilihannya sekaligus menghukumnya.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Lima versi Kael dengan pilihan berbeda telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Suara Sylvara masuk melalui retakan dimensi. Tidak semua versi mendengarnya dengan nada sama. Bagi Ashen, suara itu milik orang mati. Bagi sang raja, ia terdengar seperti pengkhianat. Bagi Rian, seperti orang asing.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—tak satu pun masa depan memiliki hak menjadi satu-satunya kebenaran.
+Kael menyadari sesuatu.
 
-“Kalau petunjuk tentang Kael-Kael Paralel ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Umbral tidak perlu menyamar sempurna. Ia hanya perlu membuat mereka yakin bahwa pengalaman sendiri adalah satu-satunya ukuran kebenaran.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan lima versi Kael dengan pilihan berbeda berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Penyusup muncul pada cermin di dinding. Wajahnya berganti mengikuti siapa yang menatap.
+
+“Pilih Kael yang layak dipertahankan,” bisiknya.
+
+Kael memukul cermin dengan tongkat Eira.
+
+“Tidak ada masa depan yang berhak menjadi satu-satunya kebenaran.”
+
+Cermin retak, tetapi penyusup berpindah ke lantai. Ia menyerang Rian karena tubuh tanpa Pulse paling mudah dihuni.
+
+Empat Kael bergerak bersamaan. Ashen menahan bayangan, Tahanan memakai segelnya sebagai perangkap, sang raja memutus jalur keluar, dan Kael asli mengunci identitas Rian melalui detak jantung alaminya.
+
+Mereka berhasil memaksa penyusup keluar.
+
+Kerja sama itu hanya bertahan beberapa detik, namun cukup untuk membuktikan bahwa mereka tidak harus sepakat tentang masa lalu agar dapat melindungi seseorang pada masa kini.
+
+Penyusup melarikan diri menuju alun-alun.
+
+Di sana lima takhta telah tumbuh dari cermin, masing-masing menunggu satu Kael mengklaim dirinya sebagai hasil yang paling benar.

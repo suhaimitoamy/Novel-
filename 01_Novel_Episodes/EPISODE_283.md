@@ -1,25 +1,37 @@
 # Episode 283 — Benturan Retakan Realitas
 
-Suhu berubah setiap kali Kael menarik napas di Zerath yang terbelah menjadi lapisan. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pusat lapisan berbentuk kota tanpa langit.
 
-Serangan anomali waktu dan kota yang tumpang tindih datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Jalan-jalannya bertumpuk vertikal. Bangunan tumbuh dari dinding, sementara sungai mengalir dalam lingkaran. Di tengah semua itu, Zireth tergantung di dalam medan gravitasi yang terus berpindah antara tiga realitas.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan kompas massa buatan Zireth yang tersisa, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael dan Zevaron masuk melalui jalur sempit.
 
-Kael menerapkan navigasi fase pada koordinat superposisi. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Anomali menyerang dengan seluruh kota sebagai senjata. Sebuah menara muncul dari masa depan dan menabrak jalan masa kini. Kael menggeser fase mereka sepersekian detik sebelum benturan.
 
-“Sekarang, Kael! Simpul Retakan Realitas ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Kompasnya!” teriak Zireth.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Zerath yang terbelah menjadi lapisan sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Alat buatan Zireth berada di bawah tubuhnya, menahan tiga koordinat agar tidak menyatu. Bila rusak, lapisan akan menekan satu sama lain.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Dalam benturan Retakan Realitas, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Zevaron membuka medan cahaya untuk menjaga jangkar masa kini. Kael bergerak melalui superposisi, muncul dan hilang di antara lapisan. Setiap perpindahan merobek luka lama pada sarafnya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Retakan Realitas tetap memiliki batas yang tak boleh dilanggar.
+Dia mencapai Zireth, tetapi anomali menciptakan tiga salinan tubuh itu.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan kompas massa buatan Zireth yang tersisa untuk menghantam pusat kendali yang baru terlihat.
+Satu meminta diselamatkan. Satu menyuruh Kael menghancurkan kompas. Yang terakhir tidak mengatakan apa-apa.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: setiap retakan memuat hasil berbeda dari keputusan lama. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael menyentuh tangan masing-masing. Dua tidak memiliki recoil kecil dari lengan bintang. Dia memilih yang ketiga.
 
-Kael merasakan kemenangan kecil atas lapisan luar Retakan Realitas, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Zerath yang terbelah menjadi lapisan menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Begitu Zireth dibebaskan, seluruh kota bergetar. Anomali membentuk sosok dari bangunan dan waktu—wajahnya berubah mengikuti dunia yang sedang dominan.
 
-“Kita membangunkan pusat Retakan Realitas,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama anomali waktu dan kota yang tumpang tindih mulai bergerak dari kedalaman.
+Kael tidak menyerang tubuh tersebut. Dia mengirim navigasi fase ke benang pengendali dan memisahkan koordinatnya dari kota-kota yang terperangkap.
+
+Zevaron menahan masa kini. Zireth mengunci massa. Kael mengubah fase.
+
+Tiga tindakan itu bertemu pada satu titik.
+
+Anomali retak, tetapi gelombang balik membuka pemandangan yang tidak pernah ingin Kael lihat.
+
+Di sisi lain terdapat Zerath yang tenang. Tidak ada perang Fragmen, tidak ada Neraka terbuka, dan tidak ada kota yang hancur karena Ragnarok Pulse.
+
+Tidak ada seorang pun mengenal Kael.
+
+Dunia itu menjadi damai karena dia tidak pernah menyelamatkan siapa pun.

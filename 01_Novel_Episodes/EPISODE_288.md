@@ -1,25 +1,43 @@
 # Episode 288 — Benturan Kael-Kael Paralel
 
-Udara bergetar sebelum suara apa pun sempat lahir di kota cermin Aranyel. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Lima takhta menyalakan lima medan berbeda.
 
-Serangan lima versi Kael dengan pilihan berbeda datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Takhta Ashen memanggil abu perang. Takhta sang raja membentuk rantai cahaya. Takhta Tahanan mengaktifkan segel. Takhta Rian menyerap semua energi. Takhta Kael asli memantulkan luka yang pernah dia hindari.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan gema suara Sylvara melintasi dimensi, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Penyusup Umbral berdiri di tengahnya.
 
-Kael menerapkan penguncian identitas melalui pola recoil unik. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Duduklah,” katanya. “Satu dari kalian harus menjadi pusat.”
 
-“Sekarang, Kael! Simpul Kael-Kael Paralel ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Sang raja melangkah lebih dulu.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh kota cermin Aranyel sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael menghalanginya. “Kau tahu itu jebakan.”
 
-Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Dalam benturan Kael-Kael Paralel, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Aku tahu dunia tidak bertahan tanpa keputusan.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Kael-Kael Paralel tetap memiliki batas yang tak boleh dilanggar.
+Mereka bertarung. Sang raja memakai Pulse tanpa ragu, tetapi recoil-nya nyata. Kael menahan serangan dengan tongkat Eira, sementara Ashen mencoba menghancurkan takhta dari samping.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan gema suara Sylvara melintasi dimensi untuk menghantam pusat kendali yang baru terlihat.
+Rian terseret oleh medan penyerap. Tahanan memotong rantainya sendiri untuk menariknya keluar.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: tak satu pun masa depan memiliki hak menjadi satu-satunya kebenaran. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Penyusup memperbesar konflik. Setiap Kael melihat korban yang disebabkan versi lain. Kael asli menyaksikan kota-kota yang bisa diselamatkan bila dia lebih kejam. Ashen melihat keluarganya hidup di bawah pemerintahan sang raja.
 
-Kael merasakan kemenangan kecil atas lapisan luar Kael-Kael Paralel, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh kota cermin Aranyel menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Sylvara masuk ke alun-alun dan berteriak, “Kalian semua salah dalam sesuatu. Itu tidak membuat salah satu dari kalian palsu.”
 
-“Kita membangunkan pusat Kael-Kael Paralel,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama lima versi Kael dengan pilihan berbeda mulai bergerak dari kedalaman.
+Kalimat itu mematahkan pola Umbral.
+
+Kael mengunci identitas melalui recoil unik. Bukan untuk menentukan siapa paling benar, melainkan membuktikan bahwa setiap tubuh memikul akibat sendiri.
+
+Lima takhta kehilangan alasan memilih satu penguasa.
+
+Penyusup mencoba mengambil tubuh sang raja. Kael, Ashen, Rian, dan Tahanan menahannya bersama. Sang raja dapat membiarkan mereka hancur dan mengambil pusat, tetapi dia justru memutus rantai takhtanya.
+
+Bayangan terlempar keluar.
+
+Sylvara menembak simpulnya. Kael menurunkan amplitudo Pulse dan memisahkan Umbral dari kemungkinan hidup yang dipakainya.
+
+Alun-alun retak.
+
+Mereka menang, tetapi kota menuntut satu pengakuan dari Kael asli: ada kesalahan yang tidak bisa diperbaiki dengan menemukan dunia lain.
+
+Dia melihat wajah setiap versi dirinya.
+
+Tidak satu pun dapat menghapus korban dari dunianya.

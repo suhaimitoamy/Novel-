@@ -1,25 +1,49 @@
 # Episode 297 — Suara dari Penyelamatan Sylvara
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di Aranyel pada malam kehancurannya. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Lingkar isolasi menutup di sekitar menara.
 
-Sejak benturan sebelumnya, pola kenangan hidup ibu Kael dan api masa lalu terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membawa Sylvara keluar tanpa mengubah sejarah, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Kael menurunkan amplitudo Pulse sampai denyutnya hampir tidak terasa. Kekuatan besar akan membuat sejarah bereaksi. Dia harus bekerja seperti seseorang mencabut satu benang dari kain tanpa mengubah pola keseluruhan.
 
-“Ada lapisan lain di bawah Penyelamatan Sylvara. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Sylvara berdiri di tengah api yang terus mengulang.
 
-Ia mengalirkan isolasi kausal pada lingkar peristiwa tetap melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+“Apa yang kau lihat di rumah?” tanyanya.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan kepercayaan Sylvara pada pilihan Kael. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+“Ibuku.”
 
-Kael menyentuh rekaman Penyelamatan Sylvara. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Apakah dia nyata?”
 
-Ia memutus kontak dengan rekaman Penyelamatan Sylvara sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+“Cukup nyata untuk terluka.”
 
-“Ini bukan hanya jejak serangan di Penyelamatan Sylvara,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Api menampilkan hasil yang diinginkan Kael. Aranyel selamat. Ibunya keluar dari kota. Sylvara tidak pernah terjebak. Namun setiap pemandangan diikuti masa kini yang berubah: Zireth tidak pernah bergabung, Eira mati lebih awal, dan dua belas Fragmen jatuh ke tangan Sistem.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Kenangan hidup ibu Kael dan api masa lalu telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Retakan memancing Kael untuk menyelamatkan masa lalu dengan harga masa kini.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—retakan memancing Kael untuk menyelamatkan masa lalu dengan harga masa kini.
+“Itu bukan pilihan,” kata Sylvara.
 
-“Kalau petunjuk tentang Penyelamatan Sylvara ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+“Rasanya tetap seperti pilihan.”
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan kenangan hidup ibu Kael dan api masa lalu berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+“Karena kau masih orang yang ingin menyelamatkan mereka.”
+
+Kael menemukan simpul yang mengikat Sylvara pada hari kehancuran. Simpul itu terbentuk dari satu hal: rasa bersalahnya sendiri. Selama dia percaya dapat memperbaiki Aranyel, peristiwa memiliki alasan menahannya di sana.
+
+Kael menyentuh api.
+
+“Aku tidak datang untuk mengubah hari ini.”
+
+Kota bergetar.
+
+“Aku datang untuk membawa seseorang yang bukan bagian dari hari ini.”
+
+Simpul melemah.
+
+Sylvara melangkah menuju batas, tetapi suara ibu Kael kembali memanggil dari jalan. Api membuka jalur lurus menuju rumah.
+
+Kael tidak menoleh.
+
+Bukan karena dia tidak mencintainya.
+
+Karena cinta itu tidak memberi hak untuk menukar seluruh masa kini dengan satu keselamatan pribadi.
+
+Sylvara mencapai batas isolasi.
+
+Saat tangannya menyentuh tangan Kael, hari kehancuran menyerang mereka dengan seluruh kenangan hidupnya.

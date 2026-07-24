@@ -1,25 +1,35 @@
 # Episode 281 — Jejak Retakan Realitas
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di Zerath yang terbelah menjadi lapisan. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Retakan pertama membelah langit di atas Dataran Terbelah. Retakan kedua muncul di bawah kaki mereka.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menemukan jalur tempat Sylvara dan Zireth terlempar. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Dalam satu kedipan, Kael melihat tiga kota menempati tempat yang sama. Menara Celestial menembus pasar manusia. Jalan batu Dwarf berakhir di tengah hutan Beastmen. Bayangan orang-orang dari dunia berbeda saling menembus tanpa menyadari keberadaan satu sama lain.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zevaron. Kael mengangguk. Mereka mengambil posisi dengan kompas massa buatan Zireth yang tersisa, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Sylvara dan Zireth tidak lagi berada di sisinya.
 
-Kael memusatkan napas dan menggunakan navigasi fase pada koordinat superposisi. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik anomali waktu dan kota yang tumpang tindih.
+“Kompas Zireth masih mengirim massa,” kata Zevaron. Lengan bintangnya memegang alat kecil yang bergetar tak teratur. “Tetapi koordinatnya berada di tiga tempat sekaligus.”
 
-Denyut Retakan Realitas segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zevaron mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Kael menempelkan tongkat Eira pada tanah. Gema yang kembali membawa suhu, berat, dan waktu berbeda. Realitas bukan sekadar retak; lapisannya bertumpuk.
 
-Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Di Retakan Realitas, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Mereka memasuki celah paling stabil. Setiap langkah mengubah usia bangunan di sekitar mereka. Sebuah rumah baru menjadi reruntuhan, lalu kembali utuh sebelum Kael melewatinya.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan kompas massa buatan Zireth yang tersisa, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Di kejauhan, sosok Sylvara terlihat berlari di atas jembatan cahaya. Kael memanggilnya. Sosok itu menoleh, tetapi wajahnya milik seseorang yang jauh lebih tua.
 
-Di balik penghalang Retakan Realitas, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa Zerath yang terbelah menjadi lapisan melupakan bentuk alaminya.
+“Bukan dia,” ujar Zevaron.
 
-“Kita sudah melewati pintu Retakan Realitas, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zevaron. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael tidak segera setuju. Frekuensi tubuh perempuan itu menyerupai Sylvara, hanya sejarahnya berbeda.
 
-Suara pertama dari anomali waktu dan kota yang tumpang tindih datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Anomali pertama menyerang dari sebuah kota yang belum pernah dibangun. Prajurit berzirah hitam muncul di antara dinding, menebas bayangan orang-orang yang hidup pada lapisan lain.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Retakan Realitas terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kael menghindari serangan tanpa membalas penuh. Satu Pulse salah arah dapat menembus beberapa dunia sekaligus.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama anomali waktu dan kota yang tumpang tindih muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Retakan Realitas baru saja dimulai.
+Dia menggunakan navigasi fase, menggeser keberadaan tubuhnya mengikuti lapisan dengan tekanan paling rendah. Teknik itu membawa mereka melewati pasukan, tetapi setiap perpindahan meninggalkan rasa dingin pada tulang.
+
+Kompas Zireth berputar semakin cepat.
+
+Satu sinyal berasal dari bawah kota. Sinyal lain datang dari masa depan kota yang sama. Yang ketiga muncul dari dunia tempat Kael tidak pernah tiba di Zerath.
+
+Kael memandang retakan yang membentang seperti luka di udara.
+
+Untuk menemukan Sylvara dan Zireth, dia harus memilih jalur.
+
+Namun setiap jalur memuat orang-orang yang menganggap dunianya satu-satunya yang nyata.

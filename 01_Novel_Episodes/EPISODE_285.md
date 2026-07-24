@@ -1,27 +1,51 @@
 # Episode 285 — Lelaki dengan Wajah yang Sama
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di Zerath yang terbelah menjadi lapisan. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Setelah dunia damai dipisahkan, lapisan-lapisan kota mulai kembali ke jalurnya.
 
-Semua jalan di Zerath yang terbelah menjadi lapisan berakhir pada satu pusat. Di sanalah anomali waktu dan kota yang tumpang tindih menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat menemukan jalur tempat Sylvara dan Zireth terlempar mustahil dilakukan.
+Zireth menstabilkan kompas massa. Zevaron menjaga masa kini, sementara Kael menutup benang pengendali satu per satu. Tidak ada ledakan. Bangunan hanya memudar dari tempat yang bukan miliknya.
 
-“Kita mencapai pusat Retakan Realitas bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Zevaron. Kael menatap Zevaron, lalu pada kompas massa buatan Zireth yang tersisa. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Sylvara muncul melalui celah terakhir. Dia jatuh ke jalan dan langsung mengangkat busur sebelum mengenali mereka.
 
-Mereka bergerak serempak. Sekutunya menggunakan kompas massa buatan Zireth yang tersisa untuk memecah lapisan luar, sedangkan Kael menyusupkan navigasi fase pada koordinat superposisi ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+Kael membantunya berdiri.
 
-Kael tidak melawan semua lapisan Retakan Realitas. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+“Kau terlambat,” katanya.
 
-Di pusat jaring Retakan Realitas itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+“Berapa lama?”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Di pusat Retakan Realitas, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Zevaron tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+“Di tempatku, tiga hari.”
 
-Anomali waktu dan kota yang tumpang tindih mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Bagi Kael, belum lewat satu jam.
 
-Tidak ada ledakan besar. Anomali waktu dan kota yang tumpang tindih retak dalam keheningan Zerath yang terbelah menjadi lapisan. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Zevaron menahannya sebelum kepalanya membentur tanah.
+Mereka menemukan kebenaran di pusat lapisan: setiap retakan adalah hasil berbeda dari keputusan lama. Tidak ada satu pun yang palsu, tetapi benang asing memaksa semua hasil itu bertabrakan agar lahir satu dunia dominan.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: setiap retakan memuat hasil berbeda dari keputusan lama. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+Kael memutus benang terakhir.
 
-Kael memandangi sisa-sisa pusat kendali Retakan Realitas. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Kota tanpa langit mulai runtuh ke bentuk alaminya. Jalur pulang terbuka di antara dua menara.
 
-Kael mengira pusat Retakan Realitas akhirnya sunyi. Ia keliru. Di balik sunyi itu, sebuah peristiwa baru bergerak mendekat. Kael lain muncul di sisi retakan.
+Mereka hampir mencapainya ketika seseorang melangkah keluar dari retakan yang belum tertutup.
 
-Mereka keluar dari Zerath yang terbelah menjadi lapisan dalam diam. Tak ada jaminan bahwa pilihan mereka benar, hanya kepastian bahwa pilihan itu dibuat tanpa rantai.
+Wajahnya sama dengan Kael, tetapi tubuhnya lebih tua. Rambutnya dipenuhi uban dan satu matanya diganti kristal hitam. Dia membawa tongkat yang terbuat dari tulang Fragmen.
+
+Sylvara mengarahkan panah.
+
+Lelaki itu tidak melawan. “Aku bukan Kembaran yang kalian kalahkan.”
+
+“Semua orang dengan wajahku berkata begitu akhir-akhir ini,” jawab Kael.
+
+Pria tua itu tertawa pendek. Ada kelelahan yang tidak dapat ditiru data.
+
+“Aku datang dari dunia tempat kau menutup semua retakan dengan membunuh siapa pun yang menyentuhnya.”
+
+Kael merasakan recoil pada tubuhnya. Tidak sama persis, tetapi cukup dekat untuk menunjukkan kehidupan nyata.
+
+“Kenapa datang?”
+
+“Karena lima versi lain juga menemukan jalan ke sini. Salah satunya membawa Umbral. Yang lain hanya ingin pulang.”
+
+Di belakang pria itu, empat retakan baru terbuka.
+
+Siluet Kael berdiri pada masing-masing celah: seorang raja, seorang pengembara, seorang tahanan, dan seorang lelaki tanpa Pulse.
+
+Pria tua itu menatap Kael asli.
+
+“Kita harus menentukan siapa yang masih manusia dan siapa yang sudah menjadi pintu.”

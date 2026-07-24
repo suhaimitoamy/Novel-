@@ -1,25 +1,47 @@
 # Episode 293 — Benturan Tabrakan Waktu
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di jalur masa lalu dan masa depan yang berimpit. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jam tanpa jarum pecah dan melepaskan badai kronal.
 
-Serangan badai kronal dan prajurit dari perang yang belum terjadi datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Masa lalu menghantam masa depan seperti dua gelombang. Rumah sakit berubah menjadi medan perang, lalu menjadi ladang, lalu kembali menjadi kuburan dalam beberapa napas.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan Zevaron menjaga jangkar masa kini, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Zevaron menahan jangkar masa kini. Sayapnya yang tersisa bergetar di bawah tekanan.
 
-Kael menerapkan interferensi temporal dengan pulsa beramplitudo rendah. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Kael, pilih satu waktu!”
 
-“Sekarang, Kael! Simpul Tabrakan Waktu ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+“Tidak. Tahan batasnya.”
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh jalur masa lalu dan masa depan yang berimpit sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael menyebarkan interferensi temporal beramplitudo rendah. Denyut itu tidak menghentikan badai, hanya membuat gelombang yang saling berlawanan kehilangan sinkronisasi.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Tabrakan Waktu, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Sylvara membawa pasien melewati celah. Prajurit masa depan mengejar, tetapi tubuh mereka berkedip setiap kali sejarah berubah.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Tabrakan Waktu tetap memiliki batas yang tak boleh dilanggar.
+Di tengah pertempuran, Kael melihat dirinya sendiri hidup bahagia di satu jalur waktu. Aranyel selamat. Ibunya hidup. Sylvara berada di sisinya tanpa perang yang memisahkan mereka.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan Zevaron menjaga jangkar masa kini untuk menghantam pusat kendali yang baru terlihat.
+Jalur tersebut menjadi jangkar badai paling kuat.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: menyelamatkan satu masa dapat membunuh masa lain. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Selama Kael mempertahankannya, masa lain terus bertabrakan.
 
-Kael merasakan kemenangan kecil atas lapisan luar Tabrakan Waktu, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh jalur masa lalu dan masa depan yang berimpit menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Badai tahu apa yang tidak ingin dia lepaskan.
 
-“Kita membangunkan pusat Tabrakan Waktu,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama badai kronal dan prajurit dari perang yang belum terjadi mulai bergerak dari kedalaman.
+Kael masuk ke jalur bahagia itu. Dia berjalan melewati rumahnya, melihat meja makan, mendengar tawa yang pernah hilang. Versi dirinya di sana menatapnya dengan ketakutan.
+
+“Jangan lakukan ini,” kata versi itu. “Kami tidak menyakiti siapa pun.”
+
+Kael tahu.
+
+Namun dunia itu tidak berdiri sendiri. Ia menjadi simpul yang menyerap masa lain agar terus ada di pusat tabrakan.
+
+Kael menurunkan amplitudo Pulse dan memutus hubungan simpul tersebut dengan badai.
+
+Dia tidak menghancurkan dunia bahagia. Dia membiarkannya kembali ke jalurnya sendiri, meski itu berarti kehilangan akses selamanya.
+
+Versi Kael di sana memegang pintu rumah ketika celah menutup.
+
+“Apakah semua ini sepadan?”
+
+Kael tidak memiliki jawaban.
+
+Jalur bahagia lenyap dari pandangan. Badai kehilangan pusatnya dan pecah menjadi arus-arus kecil.
+
+Namun satu arus menarik Sylvara sebelum siapa pun sempat meraihnya.
+
+Dia menghilang ke dalam hari kehancuran Aranyel.

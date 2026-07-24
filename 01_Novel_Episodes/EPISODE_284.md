@@ -1,27 +1,43 @@
 # Episode 284 — Harga yang Dituntut Retakan Realitas
 
-Butiran cahaya melayang seperti abu dari bintang mati di Zerath yang terbelah menjadi lapisan. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael berdiri di depan dunia yang tidak mengenalnya.
 
-Mereka telah kehilangan ruang untuk bergerak. Anomali waktu dan kota yang tumpang tindih menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Aranyel tetap utuh. Anak-anak bermain di jalan. Ibunya hidup sampai tua di rumah kecil yang tidak pernah terbakar. Tidak ada patung, lagu perang, atau cerita tentang Furyborn.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael melihat dunia tempat ia tak pernah menyelamatkan siapa pun. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Zerath selamat tanpa dirinya.
 
-“Kita mundur dari Retakan Realitas. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zevaron. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Jangan menyentuh retakan,” kata Zireth.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan kompas massa buatan Zireth yang tersisa. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Kael sudah tahu. Dunia itu bukan masa lalu yang dapat diperbaiki. Ia adalah hasil lengkap dari keputusan berbeda. Bila Kael masuk, dua riwayat akan saling menekan sampai salah satunya runtuh.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan navigasi fase pada koordinat superposisi untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Namun dia melihat wajah-wajah yang mati dalam dunianya berjalan hidup di sana.
 
-Anomali waktu dan kota yang tumpang tindih bereaksi liar di pusat Retakan Realitas. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zevaron berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Zevaron berdiri beberapa langkah di belakang. “Kau tidak menyebabkan semua penderitaan yang terjadi setelah kedatanganmu.”
 
-Kael menemukan benang kendali milik anomali waktu dan kota yang tumpang tindih. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Zerath yang terbelah menjadi lapisan.
+“Aku juga tidak bisa berpura-pura tidak menjadi bagian darinya.”
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Retakan Realitas akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Anomali memakai keraguan itu. Retakan melebar, menawarkan pertukaran sederhana: biarkan dunia damai menggantikan dunia mereka.
 
-“Tidak,” kata Kael di hadapan Retakan Realitas, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Tidak perlu pertempuran. Tidak perlu menutup luka satu per satu. Cukup terima bahwa hasil tanpa Kael lebih baik.
 
-Serangan mereka melalui kompas massa buatan Zireth yang tersisa tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zevaron; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Kael menempelkan tongkat Eira ke tepi celah. Dia merasakan jutaan kehidupan di kedua sisi. Tidak ada cara menghitung mana yang lebih berharga.
 
-Saat debu Retakan Realitas turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael melihat dunia tempat ia tak pernah menyelamatkan siapa pun. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+“Aku tidak berhak menghapus mereka,” katanya.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Retakan Realitas terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+“Yang mana?” tanya Zireth.
+
+“Keduanya.”
+
+Kael memisahkan benang pengendali dari retakan, bukan menutup dunianya. Dunia damai tetap ada, tetapi hubungannya dengan Zerath dilemahkan sampai tidak lagi saling menekan.
+
+Tindakan itu membuatnya kehilangan akses pada jalur termudah. Dia tidak dapat lagi memakai dunia tersebut sebagai bukti bahwa semua kesalahannya bisa dihapus.
+
+Sebelum celah menutup, Kael melihat ibunya berdiri di depan rumah. Perempuan itu menoleh seakan merasakan tatapannya, lalu tersenyum kepada seseorang yang berada di luar pandangan.
+
+Bukan kepadanya.
+
+Retakan menjadi garis tipis.
+
+Kael tidak menangis. Rasa sakitnya terlalu tenang untuk keluar sebagai air mata.
+
+Dia menerima kenyataan yang lebih berat daripada hukuman: mungkin ada dunia yang lebih bahagia tanpa dirinya, dan itu tidak membatalkan tanggung jawabnya terhadap dunia yang memilih hidup bersamanya.

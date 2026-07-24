@@ -1,25 +1,31 @@
 # Episode 291 — Jejak Tabrakan Waktu
 
-Bau ozon dan batu hangus menyambut Kael lebih dulu di jalur masa lalu dan masa depan yang berimpit. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kabut kronal menelan separuh Dataran Terbelah.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menyelamatkan warga tanpa mengubah asal mereka. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Di dalamnya, Kael melihat pasukan dari perang yang belum terjadi bergerak melewati warga dari masa lalu. Sebagian prajurit mengenali namanya. Sebagian mencoba membunuhnya sebelum dia membuat keputusan yang mereka benci.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Zevaron. Kael mengangguk. Mereka mengambil posisi dengan Zevaron menjaga jangkar masa kini, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Zevaron menancapkan tombak cahaya pada tanah. “Aku akan menjaga masa kini. Jangan biarkan medan menggeser jangkar ini.”
 
-Kael memusatkan napas dan menggunakan interferensi temporal dengan pulsa beramplitudo rendah. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik badai kronal dan prajurit dari perang yang belum terjadi.
+Zireth memeriksa prajurit muda yang jatuh. Pada zirahnya tertulis tanggal tujuh hari dari sekarang.
 
-Denyut Tabrakan Waktu segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Zevaron mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Tubuhnya memiliki tiga usia jaringan berbeda,” katanya. “Dia sudah hidup melalui perang, kembali ke masa ini, lalu terjebak dalam pengulangan.”
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di Tabrakan Waktu, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+Kael memasuki kabut bersama Sylvara.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan Zevaron menjaga jangkar masa kini, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Setiap langkah membawa mereka ke hari berbeda. Pada satu jalan, kota belum dibangun. Beberapa meter kemudian, reruntuhan yang sama sudah ditumbuhi pohon berusia puluhan tahun.
 
-Di balik penghalang Tabrakan Waktu, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa jalur masa lalu dan masa depan yang berimpit melupakan bentuk alaminya.
+Seorang ibu memeluk anaknya di tengah dua masa. Bila mereka menarik sang ibu ke masa kini, anak itu mungkin tidak pernah lahir. Bila dibiarkan, badai kronal akan menghapus keduanya.
 
-“Kita sudah melewati pintu Tabrakan Waktu, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Zevaron. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael memakai Pulse beramplitudo rendah untuk menahan batas tanpa memindahkan asal mereka. Dia membuat lorong sempit yang mengembalikan setiap orang ke waktu tempat tubuhnya memiliki hubungan paling kuat.
 
-Suara pertama dari badai kronal dan prajurit dari perang yang belum terjadi datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Teknik itu bekerja, tetapi lambat.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Tabrakan Waktu terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Prajurit masa depan menyerang. Mereka percaya Kael akan membuka perang pada hari ketujuh. Salah satu dari mereka meneriakkan nama Sylvara sebagai korban pertama.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama badai kronal dan prajurit dari perang yang belum terjadi muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Tabrakan Waktu baru saja dimulai.
+Kael menahan pukulan tanpa membunuh.
+
+Di balik badai, dia merasakan pusat tarikan waktu. Seseorang menyatukan masa lalu dan masa depan agar Kael melihat akibat sebelum membuat keputusan.
+
+Bukan untuk memperingatkan.
+
+Untuk memaksanya takut memilih.

@@ -1,27 +1,51 @@
 # Episode 299 — Harga yang Dituntut Penyelamatan Sylvara
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di Aranyel pada malam kehancurannya. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Jalur pulang berhenti beberapa langkah sebelum tertutup.
 
-Mereka telah kehilangan ruang untuk bergerak. Kenangan hidup ibu Kael dan api masa lalu menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Kael masih dapat melihat rumahnya melalui celah. Api belum mencapai atap. Ibunya berdiri di jalan dengan wajah yang kini dia ingat lebih jelas daripada sebelumnya.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael memilih kembali kehilangan rumahnya. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Sylvara melepaskan tangannya. “Kau bisa mengatakan sesuatu.”
 
-“Kita mundur dari Penyelamatan Sylvara. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Kael mendekati batas, tetapi tidak menyeberang.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan kepercayaan Sylvara pada pilihan Kael. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+“Aku minta maaf,” katanya.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan isolasi kausal pada lingkar peristiwa tetap untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Ibunya tersenyum. “Untuk apa?”
 
-Kenangan hidup ibu Kael dan api masa lalu bereaksi liar di pusat Penyelamatan Sylvara. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kael memiliki terlalu banyak jawaban.
 
-Kael menemukan benang kendali milik kenangan hidup ibu Kael dan api masa lalu. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh Aranyel pada malam kehancurannya.
+Karena tidak datang lebih cepat. Karena bertahan hidup. Karena terus menjadikan kematiannya alasan untuk menyakiti diri. Karena berharap satu retakan dapat menghapus semua tahun setelahnya.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Penyelamatan Sylvara akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+“Aku tidak tahu.”
 
-“Tidak,” kata Kael di hadapan Penyelamatan Sylvara, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+“Itu jawaban yang jujur.”
 
-Serangan mereka melalui kepercayaan Sylvara pada pilihan Kael tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Api mencapai jalan.
 
-Saat debu Penyelamatan Sylvara turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael memilih kembali kehilangan rumahnya. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Kael dapat membuka Pulse dan menghentikannya. Dia merasakan cukup energi untuk mengubah satu rumah, satu kematian, mungkin seluruh kota.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Penyelamatan Sylvara terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Tetapi masa kini di belakangnya mulai memudar setiap kali amplitudo naik.
+
+Zireth, Zevaron, para komandan, dan jutaan orang yang hidup karena rangkaian keputusan setelah kehancuran Aranyel kehilangan bentuk.
+
+Kael menurunkan tangannya.
+
+“Aku harus pergi.”
+
+“Aku tahu.”
+
+“Dan aku tetap memilihmu, meski tidak bisa membawamu.”
+
+Ibunya mengangguk.
+
+Jalur menutup di antara mereka.
+
+Kael kembali kehilangan rumahnya. Kali ini bukan karena dia tidak cukup kuat, melainkan karena dia memilih tidak memakai kekuatan untuk mencuri masa kini dari orang lain.
+
+Harga itu lebih tajam daripada ketidakberdayaan.
+
+Sylvara berdiri di sampingnya tanpa berkata apa-apa. Setelah beberapa saat, Kael mengizinkannya menggenggam tangan kanannya.
+
+Mereka meninggalkan lingkar peristiwa.
+
+Di belakang Kael tidak ada lagi jalan ke rumah. Hanya satu kenangan yang akhirnya diterima sebagai miliknya, bukan sebagai utang yang harus dibayar dunia.

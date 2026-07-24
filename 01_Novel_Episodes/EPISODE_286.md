@@ -1,25 +1,45 @@
 # Episode 286 — Jejak Kael-Kael Paralel
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di kota cermin Aranyel. Kael berhenti setelah satu langkah. Napasnya tersangkut oleh nyeri yang tak dapat dijangkau sihir penyembuh, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Lima Kael berdiri di kota cermin Aranyel.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membedakan kemungkinan hidup dari penyusup Umbral. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Kota itu terbentuk dari potongan dunia yang saling menempel: rumah dari satu masa, jalan dari masa lain, dan langit yang berubah warna setiap kali salah satu dari mereka bergerak.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan gema suara Sylvara melintasi dimensi, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael tua menyebut dirinya Ashen. Kael tanpa Pulse bernama Rian. Sang raja tidak memberikan nama. Tahanan hanya mengenalkan nomor pada lehernya. Yang terakhir terus tersenyum tanpa pernah berkedip.
 
-Kael memusatkan napas dan menggunakan penguncian identitas melalui pola recoil unik. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik lima versi Kael dengan pilihan berbeda.
+Sylvara mengamati mereka satu per satu. “Yang tersenyum terlalu tenang.”
 
-Denyut Kael-Kael Paralel segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+“Bisa jadi trauma,” kata Zireth.
 
-Ragnarok Pulse menjawab amarah dengan mudah; belas kasih selalu menuntut perhitungan yang lebih rumit. Di Kael-Kael Paralel, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Bisa jadi Umbral.”
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan gema suara Sylvara melintasi dimensi, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Kael merasakan pola recoil mereka. Setiap versi memiliki luka berbeda. Ashen kehilangan setengah paru-paru. Rian tidak memiliki Pulse. Sang raja menahan energi dengan disiplin sempurna. Tahanan membawa segel pada tulang belakang.
 
-Di balik penghalang Kael-Kael Paralel, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa kota cermin Aranyel melupakan bentuk alaminya.
+Sosok yang tersenyum tidak menunjukkan harga apa pun.
 
-“Kita sudah melewati pintu Kael-Kael Paralel, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael mendekatinya. “Dari dunia mana kau datang?”
 
-Suara pertama dari lima versi Kael dengan pilihan berbeda datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+“Dunia tempat semua keputusanmu benar.”
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Kael-Kael Paralel terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Jawaban itu cukup.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama lima versi Kael dengan pilihan berbeda muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Kael-Kael Paralel baru saja dimulai.
+Sosok tersebut pecah menjadi bayangan dan mencoba masuk ke tubuh Rian. Kael mengunci identitas melalui pola recoil, memaksa penyusup keluar sebelum mencapai jantung.
+
+Empat Kael lain langsung menyerang—bukan hanya penyusup, tetapi satu sama lain.
+
+Sang raja menuduh Ashen membawa perang. Tahanan percaya Rian adalah umpan. Rian ingin semua pengguna Pulse menjauh darinya.
+
+Sylvara menembakkan panah ke tanah di tengah mereka.
+
+“Berhenti. Kalian semua bertingkah seperti versi paling buruk dari orang yang sama.”
+
+Untuk sesaat, bahkan sang raja diam.
+
+Penyusup Umbral melarikan diri ke pusat kota. Bangunan-bangunan cermin mengikutinya, membentuk lorong dari ingatan masing-masing Kael.
+
+Kael asli menatap empat wajah yang membawa sejarah berbeda.
+
+Mereka bukan salinan.
+
+Mereka adalah orang-orang yang benar-benar hidup dengan akibat pilihan yang tidak pernah dia buat.
+
+Dan salah satu dari mereka mungkin masih menjadi pintu bagi Umbral.

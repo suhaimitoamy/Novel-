@@ -1,25 +1,47 @@
 # Episode 298 — Benturan Penyelamatan Sylvara
 
-Langit di atasnya tampak terlalu dekat dan terlalu berat di Aranyel pada malam kehancurannya. Kael berhenti setelah satu langkah. Penglihatannya berbayang merah di tepi, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Api Aranyel berubah menjadi makhluk tanpa wajah.
 
-Serangan kenangan hidup ibu Kael dan api masa lalu datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Ia memakai suara korban, tubuh prajurit lama, dan bayangan rumah yang pernah terbakar. Setiap serangan membawa kenangan yang membuat Kael ragu menangkis.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan kepercayaan Sylvara pada pilihan Kael, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Sylvara belum sepenuhnya keluar dari lingkar. Separuh tubuhnya berada pada masa lalu, separuh pada jalur pulang.
 
-Kael menerapkan isolasi kausal pada lingkar peristiwa tetap. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+“Jangan lepaskan,” katanya.
 
-“Sekarang, Kael! Simpul Penyelamatan Sylvara ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael menggenggam tangannya dengan satu tangan dan menahan tongkat Eira dengan tangan lain. Dia menggunakan isolasi kausal, memisahkan Sylvara dari peristiwa satu lapis demi satu lapis.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh Aranyel pada malam kehancurannya sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Api menyerang dari belakang dengan wajah ibunya.
 
-Dulu ia takut menjadi monster. Kini ia lebih takut terbiasa dipanggil penyelamat. Dalam benturan Penyelamatan Sylvara, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Kael tidak menghancurkannya. Dia menggeser fase agar serangan melewati tubuh mereka tanpa menyentuh struktur hari.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Penyelamatan Sylvara tetap memiliki batas yang tak boleh dilanggar.
+Setiap penghindaran membuat rumah di kejauhan terbakar sesuai sejarah.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan kepercayaan Sylvara pada pilihan Kael untuk menghantam pusat kendali yang baru terlihat.
+Sylvara melihat wajah Kael. “Kau tidak harus menonton.”
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: retakan memancing Kael untuk menyelamatkan masa lalu dengan harga masa kini. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Aku sudah terlalu lama hidup dengan versi yang kubuat sendiri.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Penyelamatan Sylvara, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh Aranyel pada malam kehancurannya menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Dia menonton.
 
-“Kita membangunkan pusat Penyelamatan Sylvara,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama kenangan hidup ibu Kael dan api masa lalu mulai bergerak dari kedalaman.
+Menara runtuh. Jalan dipenuhi asap. Orang-orang berlari ke arah yang tidak akan menyelamatkan mereka. Ibunya kembali ke rumah untuk mengambil sesuatu yang tidak pernah diketahui Kael.
+
+Lingkar peristiwa mencoba menariknya.
+
+Kael menurunkan amplitudo Pulse dan membiarkan api menyentuh kenangannya tanpa mengubah fakta. Rasa sakit itu menjadi recoil yang mengunci dirinya pada masa kini.
+
+Sylvara akhirnya terlepas.
+
+Namun jalur pulang mulai menutup. Kael dapat melompat sekarang atau berlari ke rumah untuk satu percakapan terakhir.
+
+Ibunya berdiri di ambang pintu dan menatapnya dari jauh.
+
+Dia tidak memanggil.
+
+Kael memahami bahwa kenangan tersebut tidak meminta diselamatkan. Ia hanya meminta diakui.
+
+Kael membawa Sylvara melewati batas.
+
+Di belakang mereka, Aranyel kembali menuju kehancuran yang sama.
+
+Hari itu tidak berubah.
+
+Kael berubah karena memilih meninggalkannya lagi.

@@ -1,27 +1,51 @@
 # Episode 300 — Rumah yang Ditinggalkan Lagi
 
-Udara bergetar sebelum suara apa pun sempat lahir di Aranyel pada malam kehancurannya. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Aranyel terbakar untuk kedua kalinya di dalam ingatan Kael.
 
-Semua jalan di Aranyel pada malam kehancurannya berakhir pada satu pusat. Di sanalah kenangan hidup ibu Kael dan api masa lalu menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat membawa Sylvara keluar tanpa mengubah sejarah mustahil dilakukan.
+Namun ketika dia dan Sylvara kembali ke masa kini, kota itu tidak lagi terasa seperti luka yang terus memerintah setiap pilihan. Ia tetap kehilangan. Ia tetap sakit. Hanya saja Kael berhenti memperlakukannya sebagai pintu yang suatu hari harus dibuka kembali.
 
-“Kita mencapai pusat Penyelamatan Sylvara bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada kepercayaan Sylvara pada pilihan Kael. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+Zireth dan Zevaron menunggu di tepi retakan.
 
-Mereka bergerak serempak. Sekutunya menggunakan kepercayaan Sylvara pada pilihan Kael untuk memecah lapisan luar, sedangkan Kael menyusupkan isolasi kausal pada lingkar peristiwa tetap ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Kalian mengubah sesuatu?” tanya Zireth.
 
-Kael tidak melawan semua lapisan Penyelamatan Sylvara. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Sylvara menatap Kael.
 
-Di pusat jaring Penyelamatan Sylvara itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+“Tidak pada sejarah,” jawabnya.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di pusat Penyelamatan Sylvara, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Kompas massa menunjukkan jalur waktu telah stabil. Hari kehancuran kembali menjadi satu masa tertutup. Kenangan hidup ibunya dan api masa lalu tidak lagi dapat menarik dunia lain ke dalamnya.
 
-Kenangan hidup ibu Kael dan api masa lalu mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Kebenaran yang mereka bawa sederhana: retakan tidak hanya menghubungkan tempat. Ia memancing orang memilih masa lalu dengan harga masa kini.
 
-Tidak ada ledakan besar. Kenangan hidup ibu Kael dan api masa lalu retak dalam keheningan Aranyel pada malam kehancurannya. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Kael menancapkan tongkat Eira ke tanah. Benda itu kini memiliki dua retakan panjang, tetapi masih berdiri.
 
-Kemenangan membuka kebenaran yang selama ini dijaga: retakan memancing Kael untuk menyelamatkan masa lalu dengan harga masa kini. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+“Aku tidak akan kembali ke sana,” katanya.
 
-Kael memandangi sisa-sisa pusat kendali Penyelamatan Sylvara. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+Tidak ada sumpah besar. Tidak ada cahaya yang menjawab. Hanya keputusan yang harus dia pilih lagi setiap kali rindu berubah menjadi godaan.
 
-Debu Penyelamatan Sylvara belum menyentuh tanah saat peringatan berikutnya tiba. Zireth memanggil dari Labirin Dimensi. Kael dan Sylvara saling pandang; keduanya tahu perjalanan tak memberi mereka waktu berkabung.
+Sylvara memeriksa busurnya. “Bagus. Aku tidak suka kota yang mencoba membunuhku memakai kenangan ibumu.”
 
-Kael menutup pintu pusat Penyelamatan Sylvara. Ia tidak menutup ingatan tentang apa yang terjadi di sana. Ingatan itulah yang dibawanya sebagai batas bagi kekuatan sendiri.
+Kael hampir tersenyum.
+
+Lalu lengan bintang Zireth menyala dengan sinyal darurat.
+
+Suara Zireth sendiri terdengar dari saluran, tetapi berasal dari tempat lain.
+
+“Jangan ikuti peta biasa. Labirin mengubah pintu setiap kali seseorang mengingat tujuan.”
+
+Zireth yang berdiri di depan mereka membeku.
+
+“Aku belum pernah mengirim pesan itu.”
+
+Sinyal kedua masuk. Kali ini suaranya lebih tua.
+
+“Kael, cepat. Ada sesuatu di dalam Labirin Dimensi yang memakai semua jalan yang kita tutup.”
+
+Koordinat muncul di kompas massa, lalu berpindah sebelum dapat dicatat.
+
+Di kejauhan, sebuah pintu berdiri sendirian di tengah udara. Di baliknya terlihat lorong yang membelok ke arah mustahil.
+
+Kael memandang sekali ke tempat retakan Aranyel telah tertutup.
+
+Dia tidak menoleh lagi.
+
+Bersama Sylvara, Zireth, dan Zevaron, dia melangkah menuju pintu berikutnya.
