@@ -1,25 +1,25 @@
 # Episode 403 — Benturan Pasukan Fury
 
-Suhu berubah setiap kali Kael menarik napas di kamp para terbuang di Dead Zone. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Pemburu dewa menutup kamp dari tiga sisi.
 
-Serangan amukan tanpa identitas dan pemburu dewa datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Senjata mereka tidak memotong daging. Ia menghapus hubungan antara nama dan tubuh. Seorang Furyborn terkena satu tembakan dan langsung lupa mengapa dia bertarung.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Sylvara. Yang lain membalas dari sudut berbeda dengan ritual nama yang dipimpin Sylvara, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael memperluas sinkronisasi tanpa menyeragamkan amplitudo. Setiap orang mempertahankan ritme sendiri, sementara jaringan hanya membawa satu pesan: kau masih dikenali.
 
-Kael menerapkan sinkronisasi tanpa menyeragamkan amplitudo. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Pemburu menyalakan pemutus identitas.
 
-“Sekarang, Kael! Simpul Pasukan Fury ini hanya bisa kutahan beberapa detik,” seru Sylvara. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Seluruh kamp jatuh ke dalam amukan.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh kamp para terbuang di Dead Zone sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Kael menerima rasa sakit dari jaringan agar Furyborn lain tetap mampu membedakan kawan dan lawan. Puluhan trauma memenuhi tubuhnya—penjara, eksperimen, keluarga yang dibunuh, dan ketakutan menjadi monster.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Dalam benturan Pasukan Fury, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Sylvara memimpin ritual nama di tengah pertempuran. Satu demi satu Furyborn kembali sadar dan menghancurkan alat pemburu tanpa membantai pemakainya.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Pasukan Fury tetap memiliki batas yang tak boleh dilanggar.
+Kael hampir kehilangan namanya sendiri.
 
-Sylvara hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan ritual nama yang dipimpin Sylvara untuk menghantam pusat kendali yang baru terlihat.
+Suara Sylvara menariknya kembali.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: setiap Furyborn memiliki frekuensi luka berbeda. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+“Kael. Bukan senjata. Bukan dewa. Kael.”
 
-Kael merasakan kemenangan kecil atas lapisan luar Pasukan Fury, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh kamp para terbuang di Dead Zone menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Jaringan stabil.
 
-“Kita membangunkan pusat Pasukan Fury,” kata Sylvara pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama amukan tanpa identitas dan pemburu dewa mulai bergerak dari kedalaman.
+Pemburu terakhir mundur menuju tangga yang baru muncul di langit.

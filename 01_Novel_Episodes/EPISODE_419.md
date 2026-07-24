@@ -1,27 +1,21 @@
 # Episode 419 — Harga yang Dituntut Kawah Kehendak
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di dasar arena tempat doa dilebur. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael membawa suara Kawah Kehendak keluar bersamanya.
 
-Mereka telah kehilangan ruang untuk bergerak. Lautan suara yang mempertahankan para dewa menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Dia mendengar rasa takut orang-orang yang menganggapnya ancaman lebih besar daripada para dewa. Sebagian pernah kehilangan keluarga karena perang yang mengikuti langkahnya. Sebagian hanya mengenalnya dari cerita yang dipelintir.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Kael mendengar orang-orang memohon dewa menyelamatkan mereka darinya. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Kael tidak dapat membuktikan semuanya salah.
 
-“Kita mundur dari Kawah Kehendak. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Sylvara. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+Harga kawah permanen: dia terus mendengar orang-orang memohon dewa menyelamatkan mereka darinya.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan Sylvara berbicara kepada suara-suara tanpa menghakimi. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Sylvara menawarkan menutup hubungan melalui Gema Pengetahuan.
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan pemisahan informasi keyakinan dari energi untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+Kael menolak penutupan total. Suara-suara itu adalah akibat nyata, bukan gangguan yang harus dibungkam. Namun dia membatasi aliran agar tidak menghancurkan pikirannya.
 
-Lautan suara yang mempertahankan para dewa bereaksi liar di pusat Kawah Kehendak. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Sylvara berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+Kawah tenang.
 
-Kael menemukan benang kendali milik lautan suara yang mempertahankan para dewa. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh dasar arena tempat doa dilebur.
+Keyakinan tetap ada tanpa menjadi bahan bakar otomatis. Para penganut dapat memberi energi secara sadar, menariknya, atau mengubah hubungan mereka.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Kawah Kehendak akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Kael tidak keluar sebagai orang yang dicintai semua pihak.
 
-“Tidak,” kata Kael di hadapan Kawah Kehendak, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
-
-Serangan mereka melalui Sylvara berbicara kepada suara-suara tanpa menghakimi tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Sylvara; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
-
-Saat debu Kawah Kehendak turun, mereka sadar kemenangan kecil itu menuntut harga permanen: Kael mendengar orang-orang memohon dewa menyelamatkan mereka darinya. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
-
-Di tengah kerusakan, satu jalur terakhir menuju pusat Kawah Kehendak terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Dia keluar dengan pemahaman bahwa kebebasan juga memberi orang hak untuk takut dan menolaknya.

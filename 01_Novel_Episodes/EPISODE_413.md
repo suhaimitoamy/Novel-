@@ -1,25 +1,23 @@
 # Episode 413 — Benturan Arena Keabadian
 
-Tanah mengeluarkan dengung rendah yang lebih terasa di tulang daripada didengar di lingkar duel di luar waktu. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael memutus ritme loop dengan gangguan periodisitas.
 
-Serangan champion dari tiga zaman datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Satu langkah dibuat terlalu cepat. Satu serangan sengaja tidak dilepaskan. Satu luka diterima pada sisi yang berbeda.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan serangan Zevaron pada jeda satu nanodetik, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Arena mencoba memperbaiki, tetapi variasi menumpuk.
 
-Kael menerapkan gangguan periodisitas pada loop temporal. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Champion masa lalu kehilangan ingatan tentang putaran sebelumnya. Champion masa depan melihat terlalu banyak hasil sekaligus. Champion masa kini tetap paling berbahaya karena hanya mengikuti tubuh Kael.
 
-“Sekarang, Kael! Simpul Arena Keabadian ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael membiarkannya menang sekali lagi.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh lingkar duel di luar waktu sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Saat arena bergerak mengulang momen sebelum kematian, Zevaron melepaskan serangan pada jeda satu nanodetik.
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Dalam benturan Arena Keabadian, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+Tombak cahaya menembus mekanisme loop.
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Arena Keabadian tetap memiliki batas yang tak boleh dilanggar.
+Waktu tidak kembali.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan serangan Zevaron pada jeda satu nanodetik untuk menghantam pusat kendali yang baru terlihat.
+Kael tetap terbaring dengan luka yang biasanya dihapus. Dia harus bangun dalam satu kehidupan yang tidak memberi percobaan ulang.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: keabadian mereka berasal dari pengulangan momen sebelum kematian. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Champion mengerti keabadiannya telah berakhir.
 
-Kael merasakan kemenangan kecil atas lapisan luar Arena Keabadian, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh lingkar duel di luar waktu menjawab dengan satu denyut yang membuat gigi mereka bergetar.
-
-“Kita membangunkan pusat Arena Keabadian,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama champion dari tiga zaman mulai bergerak dari kedalaman.
+Pertarungan terakhir dimulai tanpa cadangan.

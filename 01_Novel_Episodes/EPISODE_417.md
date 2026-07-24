@@ -1,25 +1,21 @@
 # Episode 417 — Suara dari Kawah Kehendak
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di dasar arena tempat doa dilebur. Kael berhenti setelah satu langkah. Rasa logam memenuhi lidahnya setiap kali Pulse bergerak, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Sylvara mendengar semua suara satu per satu melalui Gema Pengetahuan.
 
-Sejak benturan sebelumnya, pola lautan suara yang mempertahankan para dewa terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk membebaskan kehendak jutaan penganut, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Seorang ibu berdoa kepada Aelarion karena cahaya pernah menyembuhkan anaknya. Seorang penambang memuja Zhorak karena gunung tidak runtuh. Seorang pelarian memanggil Malgorath karena hanya bayangan memberinya tempat bersembunyi.
 
-“Ada lapisan lain di bawah Kawah Kehendak. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Kepercayaan mereka tidak palsu hanya karena para dewa memanfaatkannya.
 
-Ia mengalirkan pemisahan informasi keyakinan dari energi melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+Kael memisahkan informasi keyakinan dari energi. Doa tetap menjadi hubungan emosional, tetapi tidak lagi otomatis memperkuat tubuh ilahi.
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan Sylvara berbicara kepada suara-suara tanpa menghakimi. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Sebagian suara menolak.
 
-Kael menyentuh rekaman Kawah Kehendak. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+“Kami ingin memberi kekuatan kepada mereka.”
 
-Ia memutus kontak dengan rekaman Kawah Kehendak sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Ia ingin percaya bahwa bertahan hidup cukup untuk membenarkan pilihannya, tetapi wajah para korban menolak diam. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Kael menghormati pilihan tersebut, tetapi memastikan mereka memahami bahwa energi itu dapat dipakai membunuh orang lain.
 
-“Ini bukan hanya jejak serangan di Kawah Kehendak,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+Ketika informasi dibuka, banyak yang menarik persetujuan. Sebagian tetap bertahan.
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Lautan suara yang mempertahankan para dewa telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Lautan suara terbagi.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—doa dipanen sebagai energi kausal.
-
-“Kalau petunjuk tentang Kawah Kehendak ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
-
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan lautan suara yang mempertahankan para dewa berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Para dewa menggabungkan suara yang tersisa menjadi gelombang untuk menenggelamkan Kael dan Sylvara.
