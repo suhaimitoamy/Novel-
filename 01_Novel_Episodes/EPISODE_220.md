@@ -1,27 +1,61 @@
 # Episode 220 — Harga Sebuah Nama
 
-Keheningan datang seperti tangan yang menutup tenggorokan di perkampungan arwah tanpa matahari. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Gerbang Arwah berdiri di tengah perkampungan.
 
-Semua jalan di perkampungan arwah tanpa matahari berakhir pada satu pusat. Di sanalah roh yang kehilangan identitas dan iri pada tubuh hidup menunggu, dikelilingi lapisan energi yang saling mengunci. Kael bisa merasakan bahwa tidak akan ada kesempatan kedua. Kegagalan di tempat ini akan membuat mendengar kesaksian para pengguna Pulse terdahulu mustahil dilakukan.
+Tulisan pada lengkungannya sederhana:
 
-“Kita mencapai pusat Roh Furyborn bersama. Jangan mengambil seluruh beban hanya karena kau yang bisa mendengar frekuensinya,” kata Sylvara. Kael menatap Sylvara, lalu pada Sylvara yang mengulang nama dan sejarah Kael. Ia mengangguk. Kali ini rencananya tidak menempatkan semua orang sebagai pelindung di belakangnya.
+**SATU NAMA UNTUK SATU JALAN PULANG.**
 
-Mereka bergerak serempak. Sekutunya menggunakan Sylvara yang mengulang nama dan sejarah Kael untuk memecah lapisan luar, sedangkan Kael menyusupkan penguncian identitas melalui frekuensi suara ke celah yang terbuka. Musuh membalas dengan tekanan berlapis. Setiap lapisan memiliki irama sendiri, seolah puluhan hukum berbeda berusaha menolak keberadaan mereka.
+“Bukan darah, energi, atau jiwa,” kata Eira. “Gerbang ini meminta identitas.”
 
-Kael tidak melawan semua lapisan Roh Furyborn. Ia memilih satu denyut dasar dan menyelaraskan tubuhnya dengannya. Nyeri menyambar dari dada ke tengkuk. Harga benturan sebelumnya masih menempel pada sarafnya, tetapi untuk beberapa detik ia dapat melihat seluruh struktur sebagai jaring cahaya.
+Sylvara langsung menggeleng. “Kita cari jalan lain.”
 
-Di pusat jaring Roh Furyborn itu ada benang kendali. Kael mengangkat tangan. Pulse merah memisahkan materi, biru menahan pelepasan energi, dan violet mengurai pola asing. Ketiganya hampir saling memusnahkan sampai ia menempatkan Keseimbangan sebagai hubungan, bukan sebagai kekuatan yang memerintah.
+Di kejauhan, pasukan iblis bergerak menuju kampung. Jalan lain tidak akan terbuka sebelum mereka tiba.
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Di pusat Roh Furyborn, ia membiarkan yang lain mengisi bagian yang tak sanggup ditahannya sendiri. Serangan Sylvara tiba pada waktu yang tepat. Jaringan musuh berguncang, dan satu demi satu simpulnya padam.
+Kael memandang roh-roh yang baru terpisah dari kerumunan. Banyak di antara mereka belum memiliki nama. Memberikan satu nama kepada gerbang berarti menghapus jejak seseorang dari seluruh jaringan arwah.
 
-Roh yang kehilangan identitas dan iri pada tubuh hidup mengerahkan bentuk terakhirnya. Ruang melengkung ke dalam. Cahaya hilang. Untuk sesaat, Kael hanya mendengar detak jantungnya dan suara orang-orang yang mempercayainya. Ia mengikuti kedua suara itu pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+“Pakai namaku,” katanya.
 
-Tidak ada ledakan besar. Roh yang kehilangan identitas dan iri pada tubuh hidup retak dalam keheningan perkampungan arwah tanpa matahari. Kendali asing terlepas seperti benang terbakar, sementara energi alami wadahnya tetap hidup. Kael terjatuh, tetapi tangan Sylvara menahannya sebelum kepalanya membentur tanah.
+Sylvara mencengkeram kerah bajunya. “Kau baru hampir kehilangan identitas. Jangan mengucapkan itu seolah tidak berarti.”
 
-Kemenangan membuka kebenaran yang selama ini dijaga: para dewa sengaja menciptakan Furyborn gagal untuk mencari wadah anti-Voidmaker. Tidak ada sorak. Mereka memahami bahwa pengetahuan itu mengubah makna seluruh perjalanan dan membuat lawan berikutnya jauh lebih besar.
+“Kalau gerbang mengambil nama Kael Drayven, mungkin aku tetap dapat hidup dengan hubungan yang kalian ingat.”
 
-Kael memandangi sisa-sisa pusat kendali Roh Furyborn. Ia tidak merasa lebih kuat. Ia hanya merasa lebih bertanggung jawab. Luka-luka baru pada tubuhnya menjadi catatan bahwa ia pernah memilih membatasi kehancuran ketika jalan mudah tersedia.
+“Dan mungkin kau berubah menjadi wadah kosong lagi.”
 
-Debu Roh Furyborn belum menyentuh tanah saat peringatan berikutnya tiba. Gerbang Arwah meminta satu nama sebagai pembayaran. Kael dan Sylvara saling pandang; keduanya tahu perjalanan tak memberi mereka waktu berkabung.
+Eira memeriksa rune. “Gerbang tidak meminta nama hidup secara khusus. Ia hanya membutuhkan identitas yang diberikan dengan sukarela.”
 
-Kael menutup pintu pusat Roh Furyborn. Ia tidak menutup ingatan tentang apa yang terjadi di sana. Ingatan itulah yang dibawanya sebagai batas bagi kekuatan sendiri.
+Roh Furyborn pertama muncul dari antara rumah kenangan. Wajahnya terbentuk dari api merah tua.
+
+*Namaku telah lama dihapus Sistem,* katanya. *Namun Eira membawanya kembali tadi malam.*
+
+Dia menyebut satu nama kuno yang tidak dapat diucapkan lidah manusia tanpa berubah menjadi gema.
+
+Eira menatapnya. “Kalau kau memberikannya, kami tidak akan dapat mengingatmu lagi.”
+
+*Bukan benar-benar hilang. Pilihanku akan tinggal pada jalan yang kubuka.*
+
+Kael ingin menolak pengorbanan tersebut. Roh itu mengangkat tangan.
+
+*Jangan curi hak memilih kami setelah berkhotbah tentang kebebasan.*
+
+Kata-kata yang sama kembali menghentikannya.
+
+Roh Furyborn berjalan ke gerbang dan menyerahkan namanya. Cahaya merah memenuhi rune. Wajahnya memudar, lalu seluruh kampung lupa siapa yang baru saja berdiri di sana.
+
+Hanya rasa kehilangan hangat yang tersisa.
+
+Gerbang terbuka.
+
+Kael menulis satu kalimat pada Gema Pengetahuan sebelum ingatan terakhir lenyap:
+
+**Seseorang memilih membuka jalan bagi kami. Jangan biarkan ketiadaan namanya mengubah pilihan itu menjadi tidak pernah ada.**
+
+Eira, Sylvara, dan Kael melewati gerbang bersama roh-roh yang memilih ikut ke siklus dunia. Mereka yang ingin tinggal tetap berada di kampung, kini bebas dari mesin pembersihan.
+
+Saat jalur menutup, pasukan iblis mencapai perkampungan dan berhenti di depan rune yang padam.
+
+Kael kembali ke dunia atas dengan satu utang kepada seseorang yang tidak lagi dapat dia ingat.
+
+Di The Core, pertempuran masih berlangsung.
+
+Dan pasukan Neraka kini memiliki pemimpin yang sedang menaiki gerbang menuju Zerath.
