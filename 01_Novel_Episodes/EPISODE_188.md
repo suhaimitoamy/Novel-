@@ -1,25 +1,51 @@
 # Episode 188 — Benturan Benteng The Core
 
-Butiran cahaya melayang seperti abu dari bintang mati di cincin pertahanan Inti Planet. Kael berhenti setelah satu langkah. Detak kedua di dadanya terlambat setengah ketukan, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Lapisan pertama benteng runtuh.
 
-Serangan gelombang antimateri dan pasukan tanpa bayangan datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Gelombang antimateri menyapu cincin pertahanan dan menghapus meriam Dwarf sebelum para penembaknya sempat mundur. Pasukan tanpa bayangan bergerak melalui celah tersebut.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Zevaron. Yang lain membalas dari sudut berbeda dengan legiun Celestial Zevaron dan meriam Dwarf, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+Kael memperluas isolasi vakum menjadi beberapa lapisan tipis. Setiap lapisan membelokkan sebagian gelombang ke ruang kosong, tetapi membuat tubuhnya menua dan melemah sedikit demi sedikit.
 
-Kael menerapkan isolasi vakum elektromagnetik bertingkat. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Zevaron memimpin serangan balasan.
 
-“Sekarang, Kael! Simpul Benteng The Core ini hanya bisa kutahan beberapa detik,” seru Zevaron. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Badai petir Celestial menahan pasukan, sementara para Dwarf memindahkan meriam yang tersisa ke posisi baru. Zireth mengatur seluruh medan melalui lengan bintangnya.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh cincin pertahanan Inti Planet sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+“Jangan bertahan terlalu lama,” teriak Zevaron kepada Kael. “Perisai itu memakanmu.”
 
-Kael tidak membutuhkan nubuat untuk mengetahui bahwa pilihan berikutnya akan meninggalkan luka. Dalam benturan Benteng The Core, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Aku tahu.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Benteng The Core tetap memiliki batas yang tak boleh dilanggar.
+Voidmaker kembali berbicara melalui detak dingin.
 
-Zevaron hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan legiun Celestial Zevaron dan meriam Dwarf untuk menghantam pusat kendali yang baru terlihat.
+*Buka jalan. Kehidupan singkatmu akan menjadi sunyi tanpa rasa sakit.*
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: Fragmen-fragmen mempertahankan konstanta materi Zerath. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Kael menutup saluran mental dan mencari bagian gelombang yang diarahkan oleh Sang Arsitek. Di antara kekacauan alami antimateri terdapat pola geometris kecil yang memaksa serangan fokus pada jaringan Fragmen.
 
-Kael merasakan kemenangan kecil atas lapisan luar Benteng The Core, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh cincin pertahanan Inti Planet menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Dia tidak dapat melawan seluruh Voidmaker.
 
-“Kita membangunkan pusat Benteng The Core,” kata Zevaron pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama gelombang antimateri dan pasukan tanpa bayangan mulai bergerak dari kedalaman.
+Namun dia dapat memutus penunjuk sasarannya.
+
+Kael bergerak ke garis depan. Zevaron menutup sisi kanan, legiun Celestial menahan kiri, dan meriam Dwarf menciptakan celah pada pusat gelombang.
+
+Zireth menghitung momen ketika pola geometris paling terbuka.
+
+“Sekarang.”
+
+Kael mengirim Pulse rendah melalui lapisan isolasi. Merah memisahkan penanda dari gelombang. Biru menjaga benteng tidak runtuh. Ungu mengurai koordinat The Core dari jalur serangan.
+
+Penanda retak.
+
+Gelombang antimateri kehilangan fokus dan menyebar ke cincin kosong, tetapi pasukan tanpa bayangan tetap menyerang.
+
+Salah satu dari mereka muncul di belakang Zevaron.
+
+Kael memutar perisai tipis dan menahan tebasan yang seharusnya menghapus tubuh rivalnya. Pandangannya memutih dan kulit pada lengannya menua beberapa tahun dalam sekejap.
+
+Zevaron menghancurkan penyerang dengan petir.
+
+“Kenapa selalu kau yang menanggung?”
+
+“Karena kali ini aku yang melihatnya lebih dulu.”
+
+Mereka kembali berdiri berdampingan.
+
+Pusat gelombang Voidmaker terbuka untuk sesaat. Di dalamnya terdapat suara yang bergerak di antara atom, mencari jalan masuk ke dunia.
