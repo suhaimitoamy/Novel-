@@ -1,25 +1,55 @@
 # Episode 203 — Benturan Frekuensi Penyangkal
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di laboratorium darurat Eira. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Percobaan kedua dilakukan tanpa jeda panjang.
 
-Serangan sisa Voidmaker dalam darah Kael datang sebelum mereka menemukan perlindungan. Ruang di depan Kael terpelintir, lalu melepaskan tekanan seperti palu tak terlihat. Ia menyilangkan kedua lengan. Pulse meledak pendek dari tubuhnya, menahan benturan hanya sejengkal dari wajah.
+Kael berdiri dengan tongkat pada tangan kanan. Kaki kanannya diikat penyangga logam agar tidak roboh ketika saraf kehilangan respons. Eira menolak memberinya obat penghilang rasa sakit.
 
-Lantai pecah di bawah tumitnya. Kael bergeser ke samping agar serangan berikutnya tidak mengarah pada Eira. Yang lain membalas dari sudut berbeda dengan pengalaman Eira dan kalkulasi Zireth, memaksa musuh membagi perhatian. Untuk sesaat, irama pertempuran berada di pihak mereka.
+“Rasa sakit memberitahumu kapan tubuh mulai rusak,” katanya. “Jangan membungkam satu-satunya saksi yang jujur.”
 
-Kael menerapkan gelombang berdiri dengan simpul energi nol. Ia mencari frekuensi alami target, bukan untuk menghancurkannya, melainkan untuk menemukan bagian yang dikendalikan dari luar. Di antara jutaan getaran kecil, satu nada terdengar terlalu sempurna. Nada itulah simpul kendali yang mereka cari.
+Zireth mengaktifkan simulasi residu Voidmaker dalam beberapa tingkat. Bayangan kecil berkembang menjadi jaringan hitam yang memenuhi dinding laboratorium.
 
-“Sekarang, Kael! Simpul Frekuensi Penyangkal ini hanya bisa kutahan beberapa detik,” seru Eira. Kael mengubah fase Pulse seratus delapan puluh derajat. Dua gelombang bertemu. Cahaya di sekitar musuh padam, dan selubung pertahanannya retak dari dalam.
+Kael membentuk Frekuensi Penyangkal.
 
-Namun apa yang tampak sebagai kelemahan ternyata jebakan. Energi yang terlepas tidak menghilang; ia berpindah ke dinding dan menjadikan seluruh laboratorium darurat Eira sebagai tubuh baru musuh. Permukaan di sekeliling mereka mengangkat bilah, tangan, atau rahang dari material yang sama.
+Dua gelombang berdiri bertemu pada simpul nol. Serangan bayangan masuk ke wilayah tersebut dan kehilangan kemampuan berubah menjadi tindakan. Sulur-sulurnya berhenti beberapa sentimeter dari wajah Kael.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Dalam benturan Frekuensi Penyangkal, Kael menahan amarahnya dan memilih sasaran terkecil yang dapat mengubah keadaan. Ia menghantam titik sambungan tepat ketika gelombang kendali melewatinya. Ledakan pendek mengguncang ruang, membuka lorong di antara serangan tanpa meruntuhkan struktur utama.
+“Stabil empat detik,” kata Zireth. “Lima.”
 
-Mereka bergerak melalui celah itu. Kael menangkis, menendang, dan memotong aliran energi dengan sisi telapak tangan. Setiap gerakan meninggalkan rasa panas di sarafnya. Tubuhnya mengingatkan bahwa pertarungan di Frekuensi Penyangkal tetap memiliki batas yang tak boleh dilanggar.
+Pada detik keenam, residu menyesuaikan diri.
 
-Eira hampir terkena serangan dari belakang. Kael memutar Pulse menjadi perisai tipis. Benturan membuat pandangannya putih sesaat, tetapi yang lain memanfaatkan jeda dengan pengalaman Eira dan kalkulasi Zireth untuk menghantam pusat kendali yang baru terlihat.
+Ia tidak lagi mengirim energi. Bayangan berpindah melalui impuls saraf Kael sendiri dan menggerakkan lengan lumpuhnya seperti boneka.
 
-Pusat itu pecah. Di dalamnya tidak ada inti monster, hanya jaringan simbol dan sebuah rekaman: resonansi dapat memisahkan pola kendali tanpa menambah entropi. Musuh telah dibangun untuk menjaga kebohongan itu tetap terkubur.
+Tangan kiri Kael terangkat dan mencengkeram tenggorokannya.
 
-Kael merasakan kemenangan kecil atas lapisan luar Frekuensi Penyangkal, tetapi tak ada kelegaan. Pecahnya pusat kendali justru mengirim sinyal lebih dalam. Seluruh laboratorium darurat Eira menjawab dengan satu denyut yang membuat gigi mereka bergetar.
+Eira hendak memutus simulasi.
 
-“Kita membangunkan pusat Frekuensi Penyangkal,” kata Eira pelan. Kael menatap cahaya yang menjalar menjauh seperti urat. “Bukan. Ia sudah bangun. Sekarang ia tahu kita bisa melukainya.” Bentuk utama sisa Voidmaker dalam darah Kael mulai bergerak dari kedalaman.
+“Jangan.” Kael menahan pergelangan tangannya sendiri dengan tangan kanan. “Kalau berhenti sekarang, kita tidak akan tahu cara menahannya.”
+
+Dia memisahkan impuls saraf dari kehendak. Frekuensi Penyangkal diperluas bukan hanya pada ruang di luar tubuh, melainkan pada jalur antara perintah dan gerakan.
+
+Lengan kiri berhenti.
+
+Namun residu berpindah ke laboratorium. Dinding, meja, dan kumparan berubah menjadi anggota tubuh baru bagi makhluk tersebut. Bilah hitam tumbuh dari lantai dan menyerang Eira.
+
+Kael menggeser simpul nol ke jalur serangan. Bilah tersebut berhenti tanpa pecah.
+
+Zireth membuka pusat kendalinya melalui kalkulasi fase. Eira menghantam titik itu dengan kapak.
+
+Bayangan bergetar.
+
+Kael menahan diri agar tidak menyelesaikannya dengan ledakan. Dia memisahkan pola kendali dari energi yang dipakai sebagai wadah.
+
+Jaringan hitam terlepas dari laboratorium dan kembali menjadi residu kecil dalam lingkaran.
+
+Simulasi padam.
+
+Kael jatuh pada satu lutut. Frekuensi Penyangkal bertahan sebelas detik.
+
+“Cukup untuk menghentikan satu perintah besar,” kata Zireth.
+
+“Belum cukup untuk manifestasi utama,” jawab Eira.
+
+Alarm The Core berbunyi sebelum mereka dapat memulai percobaan berikutnya.
+
+Sesuatu telah menembus cincin pertahanan.
+
+Dan pola energinya sama dengan residu yang baru mereka pelajari.
