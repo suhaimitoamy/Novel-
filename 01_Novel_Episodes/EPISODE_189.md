@@ -1,27 +1,57 @@
 # Episode 189 — Harga yang Dituntut Benteng The Core
 
-Langkah pertama Kael membuat seluruh ruangan menjawab di cincin pertahanan Inti Planet. Kael berhenti setelah satu langkah. Bekas luka di bawah tulang selangka terasa sedingin ruang hampa, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Kael mempertahankan lapisan isolasi saat pasukan mundur ke cincin kedua.
 
-Mereka telah kehilangan ruang untuk bergerak. Gelombang antimateri dan pasukan tanpa bayangan menutup jalur depan dan belakang, sementara tekanan dari atas terus meningkat. Kael mencoba pola yang berhasil sebelumnya, tetapi musuh telah menyesuaikan diri. Pulse-nya dipantulkan kembali dan menghantam dada seperti pukulan dari dalam.
+Setiap lapis perisai mengambil sesuatu dari tubuhnya. Rambut pada pelipis mulai memutih. Luka lama terasa kembali terbuka. Napasnya menjadi lebih pendek.
 
-Ia jatuh pada satu lutut. Darah menetes ke permukaan dan segera membentuk pola mengikuti medan di bawahnya. Setiap lapis perisai memakan umur Kael. Harga itu bukan ancaman di masa depan lagi; ia sudah hadir di tubuh dan wajah orang-orang di sekelilingnya.
+Zireth menampilkan pembacaan biologis. “Hentikan. Kau kehilangan umur dalam jumlah yang tidak dapat dihitung.”
 
-“Kita mundur dari Benteng The Core. Tidak ada kemenangan yang sepadan kalau kau mati di sini,” desak Zevaron. Kael ingin setuju. Sebagian dirinya bahkan merasa lega mendengar izin untuk berhenti. Namun jalur mundur sudah berubah menjadi perangkap bagi siapa pun yang akan datang setelah mereka.
+“Kalau perisai turun, The Core tersentuh.”
 
-Ia bisa menghancurkan penghalang itu. Pertanyaan yang lebih sulit adalah apa yang ikut hancur bersamanya. Ia menutup mata selama satu tarikan napas, mendengarkan semua frekuensi sekaligus. Di bawah kebisingan pertempuran terdapat nada kecil yang goyah setiap kali sekutunya mengerahkan legiun Celestial Zevaron dan meriam Dwarf. Nada itu bukan kelemahan musuh. Itu adalah sesuatu di dalamnya yang masih berusaha melawan.
+Zevaron mengambil posisi di sampingnya dan mengalirkan badai elemen ke lapisan luar. “Bagi bebannya.”
 
-Kael mengubah tujuan. Ia tidak lagi mencoba menang cepat. Ia menggunakan isolasi vakum elektromagnetik bertingkat untuk membuat ruang aman bagi bagian yang terperangkap. Setiap gelombang diatur setipis mungkin, memisahkan kendali dari wadah tanpa mengoyak keduanya.
+“Antimateri akan menghapus energimu.”
 
-Gelombang antimateri dan pasukan tanpa bayangan bereaksi liar di pusat Benteng The Core. Permukaan pecah, udara menjerit, dan tekanan membuat darah keluar dari telinga Kael. Zevaron berdiri di depannya, menahan serangan yang tak dapat ia lihat seluruhnya. “Lakukan,” katanya. “Kalau ini pilihanmu, selesaikan.” Kepercayaan itu terasa lebih berat daripada luka.
+“Biarkan aku memilih risiko sendiri.”
 
-Kael menemukan benang kendali milik gelombang antimateri dan pasukan tanpa bayangan. Benang tersebut dingin, geometris, dan terhubung pada tempat yang jauh di luar jangkauan inderanya. Ia menariknya bukan dengan tangan, melainkan dengan perubahan fase. Sekali. Dua kali. Pada tarikan ketiga, benang itu menjerit melalui seluruh cincin pertahanan Inti Planet.
+Kael tidak membantah.
 
-Sebuah gambaran dari benturan sebelumnya dipaksakan kembali ke benaknya. Bersamaan dengannya datang tawaran—lepaskan semua kendali, gunakan entropi penuh, dan rasa sakit di Benteng The Core akan berhenti. Ragnarok Pulse merespons godaan itu dengan denyut lapar.
+Mereka membangun pertahanan bersama. Energi Zevaron menjaga lapisan luar tetap bergerak, lengan bintang Zireth mengatur fase, dan Kael menahan pusat tanpa perlu memikul seluruh tekanan.
 
-“Tidak,” kata Kael di hadapan Benteng The Core, lebih kepada dirinya sendiri daripada kepada musuh. Ia menurunkan amplitudo justru ketika semua nalurinya menyuruh meningkatkan kekuatan. Benang kendali mulai retak karena tidak dapat memahami penolakan tersebut.
+Laju penuaan melambat, tetapi tidak berhenti.
 
-Serangan mereka melalui legiun Celestial Zevaron dan meriam Dwarf tiba pada retakan yang sama. Musuh terhuyung, tetapi gelombang balik menyapu mereka. Kael berhasil menangkap Zevaron; ia tidak berhasil menyelamatkan semuanya. Sesuatu yang penting tertinggal di balik runtuhan.
+Pasukan tanpa bayangan menerobos di beberapa titik. Dwarf dan Celestial bertahan bersama, menutup celah menggunakan meriam, petir, serta tubuh mereka sendiri.
 
-Saat debu Benteng The Core turun, mereka sadar kemenangan kecil itu menuntut harga permanen: setiap lapis perisai memakan umur Kael. Tak ada mantra yang dapat mengembalikan keadaan seperti semula. Kael berdiri dengan tubuh gemetar dan menerima kenyataan tersebut tanpa memberi dirinya pengampunan murah.
+Kael menemukan benang geometris yang masih menghubungkan gelombang dengan Sang Arsitek.
 
-Di tengah kerusakan, satu jalur terakhir menuju pusat Benteng The Core terbuka. Kael mengambil langkah pertama meski setiap sarafnya meminta berhenti. Bila ia harus membayar lagi, setidaknya kali ini ia tahu untuk apa.
+Dia mencoba menguraikannya.
+
+Voidmaker menyentuh detak dingin di dadanya.
+
+*Tubuhmu akan berakhir. Bukalah jalan dan umur tidak lagi berarti.*
+
+“Tidak hidup juga membuat umur tidak berarti.”
+
+Kael menurunkan amplitudo dan menarik benang tersebut sedikit demi sedikit. Sang Arsitek meningkatkan tekanan, berharap Kael memakai entropi penuh dan menyalakan suar yang lebih besar.
+
+Dia menolak.
+
+Zireth menembakkan medan bintang ke celah. Zevaron mengarahkan petir pada titik yang sama.
+
+Benang kendali retak.
+
+Gelombang utama melemah dan pasukan tanpa bayangan kehilangan koordinasi. Pertahanan The Core menutup jalur masuk.
+
+Kael jatuh pada satu lutut.
+
+Sylvara tiba dari jalur evakuasi dan menangkap bahunya. Tatapannya berhenti pada rambut putih serta kerutan tipis yang baru muncul di wajahnya.
+
+“Berapa banyak yang hilang?”
+
+Kael tidak memiliki jawaban.
+
+Beberapa tahun, mungkin puluhan. Tubuhnya masih bergerak, tetapi waktu yang seharusnya menjadi miliknya telah dibakar menjadi benteng.
+
+The Core selamat.
+
+Harga pertahanan tersebut akan tinggal pada setiap hari yang tidak lagi dapat Kael jalani.
