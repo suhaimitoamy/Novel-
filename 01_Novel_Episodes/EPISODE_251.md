@@ -1,25 +1,43 @@
 # Episode 251 — Jejak Dataran Terbelah
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di zona nol antara empat kekaisaran. Kael berhenti setelah satu langkah. Ujung jari kirinya tetap mati rasa sejak benturan terakhir, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Perang tidak pecah serentak di seluruh Zerath.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: membuka jalur kemanusiaan di tengah perang. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Ia muncul sebagai garis-garis kecil pada peta: satu meriam ditembakkan, satu benteng dibalas, satu desa dituduh membantu musuh. Di zona nol antara empat kekaisaran, garis tersebut bertemu dan membelah tanah sampai cakrawala.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan jaringan pengungsi Sylvara dan Zireth, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+Kael, Sylvara, dan Zireth datang bukan untuk merebut wilayah.
 
-Kael memusatkan napas dan menggunakan penyeimbangan medan gravitasi lokal. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik artileri Fragmen dan tanah bergravitasi liar.
+Mereka membuka jalur kemanusiaan bagi pengungsi yang terjebak di antara empat garis artileri.
 
-Denyut Dataran Terbelah segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Dataran tidak lagi mengikuti gravitasi normal. Batu melayang, sungai mengalir miring, dan beberapa orang jatuh ke langit ketika medan berubah mendadak.
 
-Setiap kemenangan memperbesar ruang yang harus ia jaga agar tidak diisi kesombongan. Di Dataran Terbelah, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+“Meriam Fragmen merusak jangkar fisika di bawah wilayah ini,” kata Zireth setelah membaca tanah dengan lengan bintang.
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan jaringan pengungsi Sylvara dan Zireth, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+Setiap kekaisaran menggunakan senjata yang mengambil sebagian kecil resonansi Fragmen. Satu tembakan tidak terasa besar. Ribuan tembakan telah membuat hukum gravitasi di medan kehilangan kesepakatan.
 
-Di balik penghalang Dataran Terbelah, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa zona nol antara empat kekaisaran melupakan bentuk alaminya.
+Sylvara mengatur jaringan pengungsi melalui busur tanpa cahaya. Panah biasa diberi pita warna untuk menandai jalur yang aman selama beberapa menit.
 
-“Kita sudah melewati pintu Dataran Terbelah, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Kael menyeimbangkan medan gravitasi lokal dengan Pulse merah dan biru. Tanpa entropi murni, dia tidak dapat merobek penghalang ketika jalur tertutup. Dia harus membentuk pijakan satu per satu.
 
-Suara pertama dari artileri Fragmen dan tanah bergravitasi liar datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Rombongan pertama berhasil lewat.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Dataran Terbelah terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Kemudian artileri dari utara menembak ke arah selatan. Peluru melewati koridor dan mengubah gravitasi menjadi pusaran.
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama artileri Fragmen dan tanah bergravitasi liar muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Dataran Terbelah baru saja dimulai.
+Kael menahan gelombang, sementara Zireth menanam jangkar bintang. Sylvara mengevakuasi anak-anak dan orang tua ke sisi lain.
+
+“Siapa yang menembak jalur kemanusiaan?” tanya Kael.
+
+Tidak ada pihak mengaku.
+
+Residu kausal pada peluru menunjukkan pola yang lebih buruk. Sistem Pahlawan telah mengubah koordinat sasaran setelah tembakan dilepaskan, memastikan proyektil jatuh tepat di jalur pengungsi dan memicu saling tuduh.
+
+Dataran kembali retak.
+
+Di bawahnya terlihat ruang tanpa dasar tempat ribuan prajurit dari pertempuran sebelumnya masih terperangkap dalam gravitasi terbalik.
+
+Mereka bukan mayat.
+
+Mereka terus jatuh tanpa pernah mencapai dasar.
+
+Kael memandang koridor pengungsi, empat garis artileri, dan celah yang menyimpan ribuan orang.
+
+Membuka jalur kemanusiaan kini berarti menyelamatkan mereka yang tidak lagi berdiri pada sisi mana pun.
