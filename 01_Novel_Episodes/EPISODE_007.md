@@ -1,87 +1,237 @@
 # Episode 007 — Sekolah Para Penyihir Hitam
 
-Gerbang batu yang retak berdiri setengah terbuka di hadapan Kael dan Sylvara. Rune tua terukir pada lengkungannya:
+Akademi Vorth Aereth berdiri di balik bukit batu, setengah tersembunyi oleh kabut hijau.
+
+Bangunannya tidak menyerupai sekolah.
+
+Menara-menara hitam tumbuh dari tanah dengan bentuk yang berbeda-beda. Sebagian miring. Sebagian terhubung oleh jembatan besi sempit. Rune merah bergerak di sepanjang dinding seperti urat yang hidup.
+
+Gerbang utamanya retak di bagian tengah.
+
+Di atasnya terukir kalimat besar.
 
 **AKADEMI VORTH AERETH — TEMPAT DI MANA ILMU AKAN MENGGUNAKANMU KEMBALI**
 
-“Kita sudah sampai,” kata Sylvara. “Akademi ini menerima orang-orang yang ditolak lembaga sihir resmi.”
+Kael membaca tulisan itu sambil berdiri di luar gerbang.
 
-Begitu melewati gerbang, Kael mengerti maksudnya.
+“Tempat yang meyakinkan,” katanya.
 
-Murid dari berbagai ras memenuhi halaman. Manusia, Elf gelap, Beastmen, dan sosok-sosok yang sulit dikenali berlatih tanpa aturan yang jelas. Sebagian mencampur alkimia terlarang. Yang lain memanggil mayat, menguji serpihan Fragmen, atau membentuk bayangan menjadi senjata.
+Sylvara memeriksa jalan di belakang mereka.
 
-Bekas luka bakar sihir terlihat hampir di setiap wajah. Beberapa murid memakai topeng untuk menutupi kerusakan yang lebih parah.
+“Kita tidak punya banyak pilihan. Para Warden sudah menyebarkan gambarmu ke seluruh wilayah elf.”
 
-“Tempat ini lebih mirip rumah sakit jiwa daripada sekolah,” bisik Kael.
+“Dan tempat ini menerima buronan?”
 
-“Karena ilmu di sini tidak disaring oleh moralitas,” jawab Sylvara.
+“Tempat ini menerima siapa pun yang berguna.”
 
-Seorang wanita tua menunggu mereka di lobi yang remang-remang. Tanduk kecil melengkung dari dahinya, sementara kedua matanya tertutup kain hitam.
+“Entah kenapa itu tidak membuatku lebih tenang.”
 
-“Selamat datang, darah campuran,” katanya. “Kami telah menunggumu.”
+Mereka masuk.
 
-Kael berhenti. “Anda tahu aku akan datang?”
+Halaman akademi dipenuhi murid dari berbagai ras. Seorang beastman bertanduk sedang menahan bola api dengan tangan kosong. Dua elf gelap berdebat sambil membedah makhluk kecil yang masih bergerak. Di sudut lain, seorang manusia tanpa bayangan mencoba memanggil sesuatu dari lingkaran rune.
 
-“Fragmen di dalam dirimu berteriak lebih keras daripada apa pun di tempat terkutuk ini.”
+Tidak ada yang tampak terkejut melihat Kael membawa pedang hitam dan retakan merah di lengan.
 
-Wanita itu memperkenalkan diri sebagai Melkisha, kepala Akademi Vorth Aereth. Dia memberi Kael sebuah kamar batu sederhana dan menunjuk murid senior bernama Zireth sebagai pengawasnya.
+Untuk pertama kalinya sejak meninggalkan Aranyel, dia bukan orang paling aneh di sekitarnya.
 
-Zireth bertubuh kokoh dan dipenuhi bekas luka. Lengan kirinya telah diganti dengan prostetik rumit dari logam dan rune Magitek yang berdenyut pelan.
+Seorang murid berwajah penuh bekas luka melirik cahaya di dada Kael.
 
-“Namaku Zireth,” katanya datar. “Tugasku memastikan kau tidak mati terlalu cepat.”
+“Pembawa Fragmen,” gumamnya.
 
-Kael menatapnya sesaat. “Terima kasih, kurasa.”
+Bisikan menyebar di halaman.
 
-Kelas pertamanya adalah Pengendalian Fragmen Emosional. Setiap murid harus memanggil proyeksi energinya di depan cermin ilusi besar.
+Beberapa orang mundur. Yang lain justru mendekat untuk melihat lebih jelas.
 
-“Jangan takut pada bayangan energimu,” ujar guru kurus bermata hijau. “Namun jangan pernah mempercayainya sepenuhnya.”
+Sylvara berdiri di depan Kael.
 
-Saat Kael berdiri di depan cermin, Fragmen di dadanya langsung bereaksi.
+“Jangan sentuh dia.”
 
-Api merah membentuk siluet naga. Wajah makhluk itu perlahan berubah menjadi wajah Kael sendiri.
+“Tenang.” Suara wanita tua terdengar dari tangga utama. “Murid-muridku hanya belum belajar membedakan rasa ingin tahu dan keinginan mati.”
 
-*Berapa banyak lagi yang harus kau bunuh sebelum berhenti takut pada darahmu?*
+Wanita itu berjalan turun.
 
-Rasa sakit menusuk kepalanya. Kael jatuh sebelum sempat menjawab.
+Tubuhnya kecil, tetapi semua orang langsung memberi jalan. Dua tanduk pendek melengkung dari dahinya. Kedua matanya tertutup kain hitam yang dipenuhi tulisan rune.
 
-Dalam kegelapan, dia melihat penjara raksasa. Di balik jeruji berdiri berbagai versi dirinya: Kael kecil yang menangis, monster bersisik, prajurit berzirah naga, dan sosok menyerupai dewa api.
+“Aku Melkisha,” katanya. “Kepala akademi ini.”
 
-“Apa ini?” teriak Kael.
+Tatapannya seharusnya tidak dapat menembus kain, tetapi Kael merasa wanita tersebut melihat seluruh tubuhnya.
 
-*Semua kemungkinan takdirmu,* jawab suara dari kegelapan. *Dan tak satu pun dari kami sepakat siapa yang pantas keluar.*
+“Kael dari Aranyel,” lanjut Melkisha. “Pembawa Fragmen Bara Pertama. Darah elf dari pihak ibu dan darah Drakelyn dari pihak ayah.”
 
-Kael tersadar dengan napas memburu dan tubuh basah oleh keringat dingin. Melkisha berdiri di sudut kamarnya.
+Kael meletakkan tangan pada gagang Zerath's Fang.
 
-“Kau belum siap memegang kekuatan Fragmen ketiga,” katanya.
+“Semua orang tampaknya tahu lebih banyak tentang keluargaku daripada aku.”
 
-“Aku harus menjadi lebih kuat.”
+“Itu karena keluargamu berusaha keras menghapus dirinya dari sejarah.”
 
-Senyum tipis muncul di wajah Melkisha. “Kalau begitu, kita akan melihat seberapa dalam luka jiwamu mampu membuka gerbang menuju kekuatan.”
+“Bisa kau jelaskan?”
 
-Di atap menara tertinggi, Rowan mengawasi akademi melalui rune komunikasi.
+“Bisa.” Melkisha berbalik menuju pintu. “Setelah kau membuktikan bahwa tubuhmu tidak akan meledakkan akademiku.”
 
-“Bagaimana kondisinya?” tanyanya.
+Kael dan Sylvara dibawa ke ruang pemeriksaan di bawah menara utama.
 
-“Stabil,” jawab Zireth dari sisi lain. “Tapi dia mulai meragukan dirinya sendiri.”
+Lingkaran rune memenuhi lantai. Rantai perak menggantung dari langit-langit, masing-masing terhubung dengan kristal penahan.
 
-“Bagus. Berarti dia mendekati titik kritis.”
+Seorang pria bertubuh besar menunggu di dalam.
 
-Malam itu, Kael duduk sendirian di kamarnya. Tangannya bergerak tanpa dia sadari, menggoreskan kalimat pada dinding batu:
+Lengan kirinya terbuat dari logam hitam. Rune biru berdenyut di sepanjang sambungannya.
 
-**Yang telah pecah dapat dibentuk kembali. Namun serpihan tajam tetap melukai siapa pun yang menyentuhnya.**
+“Zireth,” kata Melkisha. “Pengawas calon murid yang terlalu berbahaya untuk dibiarkan sendiri.”
 
-Kael memandang tulisan itu, lalu jarinya sendiri.
+Zireth memandang Kael dari kepala hingga kaki.
 
-Apakah dia sedang menyatu dengan Fragmen, atau perlahan dihancurkan olehnya?
+“Kelihatannya kurus.”
 
-Kilatan ungu membelah langit di atas akademi.
+“Aku bisa mendengarmu,” kata Kael.
 
-Sebuah Fragmen liar jatuh dari robekan dimensi menuju hutan di kejauhan. Semua orang yang mampu merasakan energi menoleh ke arah yang sama.
+“Bagus. Berarti telingamu masih bekerja.”
 
-Melkisha tersenyum dari jendelanya.
+Melkisha menunjuk pusat lingkaran.
 
-“Fragmen ketiga telah datang mencari pemiliknya.”
+“Berdiri di sana.”
 
-Di atas menara, Rowan ikut tersenyum.
+Kael menurut.
 
-“Dan Kael akan datang untuk mengambilnya.”
+Begitu kedua kakinya masuk ke dalam pola rune, kristal-kristal di atas menyala. Cahaya merah ditarik keluar dari dadanya dan membentuk bola kecil di udara.
+
+Kael menahan rasa panas yang merambat ke tenggorokan.
+
+Melkisha menggerakkan jari.
+
+Bola cahaya tersebut terbelah menjadi beberapa lapisan.
+
+Bagian terluar berwarna merah seperti api. Di bawahnya ada garis-garis gelap yang bergerak seperti retakan. Pada pusatnya, ruang tampak melengkung.
+
+Zireth mendekat.
+
+“Ini bukan Fragmen api biasa.”
+
+“Memang tidak ada Fragmen biasa,” jawab Melkisha. “Namun yang satu ini memiliki inti bertekanan sangat tinggi. Ia tidak sekadar menghasilkan panas. Ia mencari frekuensi benda di sekitarnya, lalu memaksanya bergetar sampai hancur.”
+
+Kael teringat Shadowblood Beast dan patung di Lyrenith.
+
+“Jadi yang kulakukan bukan sihir api?”
+
+“Api adalah akibatnya. Bukan sumbernya.”
+
+Melkisha menutup tangannya. Cahaya kembali masuk ke dada Kael.
+
+“Untuk sementara, kita akan menyebut kemampuanmu Ragnarok Pulse.”
+
+Nama itu membuat Fragmen bereaksi.
+
+Satu denyut kuat mengguncang lingkaran rune.
+
+Zireth langsung mengaktifkan lengan mekanisnya. Perisai biru muncul di depan tubuh Kael sebelum energi sempat menyebar.
+
+Retakan kecil tetap muncul pada lantai.
+
+Melkisha tersenyum.
+
+“Setidaknya ia menyukai namanya.”
+
+Kael keluar dari lingkaran dengan napas berat.
+
+“Rowan bilang dia membawa Fragmen kedua yang bangkit. Apakah itu benar?”
+
+Senyum Melkisha menghilang.
+
+“Rowan memang terikat pada Fragmen lain.”
+
+“Kenapa kau mengenalnya?”
+
+“Karena dia pernah belajar di sini.”
+
+“Pernah?”
+
+“Dia meninggalkan akademi setelah membunuh gurunya dan membawa hasil penelitian terlarang.”
+
+Sylvara melipat tangan.
+
+“Dan kau baru mengatakan ini sekarang?”
+
+“Kalian tidak bertanya.”
+
+Kael mulai memahami kenapa tempat itu tidak diterima oleh lembaga sihir resmi.
+
+Melkisha berjalan menuju pintu.
+
+“Kalian boleh tinggal. Kael akan menjalani pelatihan pengendalian. Sylvara boleh menggunakan perpustakaan dan lapangan panah.”
+
+“Apa imbalannya?” tanya Kael.
+
+Melkisha berhenti.
+
+“Kau cepat belajar.”
+
+Dia menoleh sedikit.
+
+“Fragmen ketiga yang diketahui aktif baru saja terbangun di reruntuhan utara. Bukan Fragmen ketiga di dalam tubuhmu—jangan salah mengerti. Maksudku, itu Fragmen ketiga yang terdeteksi bangkit pada zaman ini, setelah milikmu dan milik Rowan.”
+
+“Dan kau ingin aku mengambilnya.”
+
+“Aku ingin mengetahui kenapa kebangkitannya terjadi tepat setelah kau tiba.”
+
+Kael tidak menyukai jawabannya, tetapi setidaknya wanita itu tidak menyembunyikan kepentingannya.
+
+Malam itu, Zireth membawa Kael ke kamar batu kecil di menara timur.
+
+Tidak ada jendela. Hanya ranjang, meja, dan dinding yang dipenuhi bekas goresan.
+
+“Bekas apa itu?” tanya Kael.
+
+“Penghuni sebelumnya mencoba keluar saat kehilangan kendali.”
+
+“Dia berhasil?”
+
+“Sebagian tubuhnya berhasil.”
+
+Zireth menutup pintu.
+
+Kael duduk di tepi ranjang.
+
+Dia seharusnya lelah, tetapi Fragmen tidak berhenti bergerak sejak pemeriksaan.
+
+Ketika menyentuh dinding, pikirannya jatuh ke dalam kegelapan.
+
+Kael berdiri di depan penjara besar.
+
+Di balik jeruji terdapat berbagai versi dirinya.
+
+Kael kecil yang menangis.
+
+Sosok bersisik dengan mata naga.
+
+Prajurit berzirah hitam.
+
+Dan makhluk tinggi yang tubuhnya terbakar cahaya merah.
+
+“Apa ini?” tanya Kael.
+
+Semua sosok menoleh bersamaan.
+
+*Kemungkinan,* jawab suara dari kegelapan.
+
+“Mana yang akan terjadi?”
+
+*Yang kau beri makan.*
+
+Kael terbangun dengan napas memburu.
+
+Tangannya masih menempel pada dinding. Tanpa sadar, kukunya telah menggores satu kalimat baru.
+
+**Yang pecah dapat dibentuk kembali, tetapi setiap serpihan tetap memiliki sisi tajam.**
+
+Alarm akademi berbunyi.
+
+Bukan lonceng biasa, melainkan getaran rendah yang membuat seluruh menara bergetar.
+
+Kael berlari keluar kamar.
+
+Murid-murid memenuhi koridor dan menatap langit melalui jendela besar.
+
+Di kejauhan, cahaya biru menembus awan di atas reruntuhan utara.
+
+Fragmen ketiga telah benar-benar bangun.
+
+Dan dari dalam dada Kael, Fragmen Bara Pertama menjawab panggilannya.
