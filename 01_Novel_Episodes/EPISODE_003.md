@@ -1,71 +1,293 @@
 # Episode 003 — Buronan Dimensi
 
-Kael dan Sylvara berlari di atas jalur bebatuan yang licin. Hujan turun semakin deras, mengaburkan pepohonan di depan mereka.
+Hujan turun sebelum Kael dan Sylvara mencapai ujung hutan.
 
-“Sedikit lagi,” ujar Sylvara di sela napas. “Begitu melewati batas Aranyel, pengejaran mereka akan melambat.”
+Tanah berubah licin. Air mengalir di antara akar, membawa abu dari Aranyel yang masih menempel pada pakaian Kael.
 
-“Lalu kita aman?”
+Sylvara berlari beberapa langkah di depan. Dia tidak pernah ragu memilih jalan, seolah setiap batu dan pohon di wilayah itu sudah dikenalnya.
 
-Sylvara belum sempat menjawab ketika kilatan sihir merah menghantam jalan di belakang mereka. Batu pecah dan serpihannya melesat melewati kepala Kael.
+Kael berusaha mengikuti.
 
-“Mereka membawa Void Hunter,” desis Sylvara. “Cepat sekali.”
+“Seberapa jauh lagi?” tanyanya sambil terengah-engah.
 
-Kael terhuyung. Fragmen di dadanya berdenyut liar, membuat pandangannya terbelah dua. Suara yang selama ini bersembunyi di balik pikirannya kembali terdengar.
+“Gerbangnya ada di balik bukit.”
 
-*Lari bukanlah pilihan. Hadapi bentuk pertamamu.*
+“Setelah itu kita aman?”
 
-“Kepalaku...” Kael menekan pelipis. “Suara itu kembali.”
+Sylvara menoleh singkat.
 
-Sylvara meraih lengannya dan menyeretnya menuju reruntuhan gerbang batu yang tertutup kabut.
+“Tidak.”
 
-“Masuk. Ini jalan menuju Zona Fragmented. Para pemburu tidak akan mengikuti kecuali mereka siap kehilangan kewarasan.”
+Sebuah cahaya putih melintas dari belakang.
 
-Begitu melewati gerbang, dunia berubah.
+Sylvara menjatuhkan tubuhnya ke tanah. Kael ikut menunduk sesaat sebelum tombak sihir menembus pohon di samping mereka.
 
-Tanah melayang dalam bongkahan-bongkahan besar. Sungai mengalir ke atas, menembus langit yang terbalik. Setiap langkah terasa ringan sesaat, lalu mendadak berat ketika gravitasi bergeser tanpa pola.
+Batangnya pecah dan jatuh melintang di jalan.
 
-Kael memandangi tempat itu dengan tengkuk meremang. “Dunia ini seperti sudah pecah.”
+“Cepat!”
 
-“Ini celah di antara dunia yang nyata dan dunia yang seharusnya tidak ada,” jawab Sylvara. Mereka meniti lempeng batu yang melayang di atas kehampaan. “Fragmen aktif dapat merobek lapisan dimensi. Banyak orang masuk ke sini. Sedikit yang menemukan jalan pulang.”
+Mereka melompati batang tersebut.
 
-Anehnya, Kael tidak merasa asing.
+Suara geraman terdengar dari balik hujan.
 
-Tempat itu kacau, tetapi denyut di dadanya justru menjadi lebih teratur. Seolah-olah sebagian dari dirinya mengenali kerusakan di sekeliling mereka.
+Kael menoleh dan melihat seekor makhluk berkaki empat menerobos semak. Tubuhnya dilapisi pelat logam putih, sementara kepalanya tertutup topeng tanpa mata. Dari sela sambungan besi keluar asap hitam.
 
-Auman rendah mengguncang udara.
+Seorang Warden menungganginya.
 
-Dari pusaran gelap di langit, seekor makhluk bermata tiga turun dengan tubuh yang berubah-ubah seperti asap.
+“Apa itu?”
 
-“Shadowblood Beast!” Sylvara menarik panah rune dan melepaskannya.
+“Void Hunter,” jawab Sylvara. “Mereka dilatih mencium jejak energi Fragmen.”
 
-Anak panah itu menembus tubuh makhluk tersebut tanpa meninggalkan luka.
+Makhluk itu mengangkat kepala.
 
-“Ilusi,” katanya cepat. “Ia membaca ketakutanmu. Jangan biarkan—”
+Walaupun tidak memiliki mata, wajahnya tepat mengarah kepada Kael.
 
-Wujud makhluk itu mencair sebelum berubah menjadi seorang perempuan dengan kulit hangus dan pakaian yang terbakar.
+Kemudian ia berlari.
 
-Kael membeku.
+Tanah bergetar di bawah setiap langkahnya.
+
+Kael dan Sylvara mencapai puncak bukit. Di bawah sana berdiri dua pilar batu yang condong satu sama lain. Ruang di antara keduanya dipenuhi kabut gelap yang berputar perlahan.
+
+“Itu gerbangnya?”
+
+“Ya.”
+
+“Kelihatannya tidak seperti jalan.”
+
+“Memang bukan.”
+
+Void Hunter melompat dari belakang mereka.
+
+Sylvara berbalik dan melepaskan dua anak panah. Anak panah pertama menghantam pelat leher makhluk itu. Anak panah kedua meledakkan rune kecil pada kakinya.
+
+Void Hunter terhuyung, tetapi tidak berhenti.
+
+Warden di punggungnya mengangkat tongkat.
+
+“Serahkan pembawa Fragmen!”
+
+Sylvara mendorong Kael ke arah gerbang.
+
+“Masuk!”
+
+Kael menabrak kabut.
+
+Tubuhnya terasa ditarik dari berbagai arah.
+
+Untuk sesaat, dia tidak tahu mana atas dan mana bawah. Hujan menghilang. Suara langkah lenyap. Cahaya merah di dadanya memanjang menjadi garis tipis, seolah tubuhnya sedang dibelah menjadi bagian-bagian kecil.
+
+Lalu kakinya menghantam tanah.
+
+Kael jatuh berlutut dan muntah.
+
+Sylvara muncul beberapa langkah di belakangnya. Wajahnya pucat, tetapi dia masih berdiri.
+
+“Jangan bergerak dulu,” katanya. “Tubuhmu perlu menyesuaikan diri.”
+
+Kael mengangkat kepala.
+
+Dunia di depan mereka tidak masuk akal.
+
+Bongkahan tanah melayang di udara tanpa penyangga. Sungai mengalir dari bawah menuju langit. Di kejauhan, sebuah gunung terlihat terbalik, puncaknya menggantung tepat di atas kehampaan.
+
+Cahaya datang dari berbagai arah, tetapi tidak ada matahari.
+
+“Ini Zona Fragmented?”
+
+Sylvara mengangguk.
+
+“Retakan yang terbentuk ketika Fragmen merusak ruang di sekitarnya.”
+
+Kael berdiri perlahan.
+
+Tubuhnya terasa ringan, lalu mendadak berat. Lututnya hampir menyentuh tanah lagi.
+
+“Gravitasinya berubah,” kata Sylvara. “Ikuti langkahku. Jangan menginjak batu yang memantulkan bayanganmu.”
+
+“Kenapa?”
+
+“Karena itu bukan batu.”
+
+Kael memutuskan tidak bertanya lebih jauh.
+
+Mereka meniti jalur sempit yang terbentuk dari lempengan-lempengan batu. Di bawahnya tidak ada tanah, hanya kabut hitam yang bergerak tanpa dasar.
+
+Setiap beberapa langkah, pemandangan di sekitar mereka bergeser. Pohon muncul lalu menghilang. Langit berubah dari ungu menjadi merah, kemudian kembali gelap.
+
+Anehnya, rasa panas di dada Kael mulai tenang.
+
+Denyut Fragmen mengikuti perubahan di sekelilingnya.
+
+Dia bisa merasakan getaran halus dari setiap batu yang diinjak. Masing-masing memiliki irama berbeda. Ada yang stabil. Ada yang bergetar tidak teratur, seperti sesuatu di dalamnya hampir pecah.
+
+Kael berhenti.
+
+“Aku bisa merasakan tempat ini.”
+
+Sylvara menatapnya.
+
+“Merasakan bagaimana?”
+
+“Seperti...” Kael mencari kata yang tepat. “Seperti mendengar suara, tapi bukan lewat telinga.”
+
+Dia menunjuk batu di depan.
+
+“Yang itu akan runtuh.”
+
+Sylvara mengambil kerikil kecil dan melemparkannya.
+
+Begitu kerikil menyentuh permukaan, lempengan batu tersebut retak dan jatuh ke dalam kabut.
+
+Sylvara menatap Kael lebih lama dari sebelumnya.
+
+“Fragmenmu membaca getaran ruang.”
+
+“Aku tidak mengerti.”
+
+“Tidak perlu sekarang. Yang penting, dengarkan naluri itu.”
+
+Auman panjang mengguncang udara.
+
+Kabut di atas mereka membentuk pusaran.
+
+Seekor makhluk bermata tiga turun perlahan. Tubuhnya tidak tetap. Sesaat terlihat seperti serigala besar, lalu berubah menjadi sosok manusia kurus dengan lengan terlalu panjang.
+
+Sylvara menarik busurnya.
+
+“Shadowblood Beast.”
+
+Dia melepaskan anak panah rune.
+
+Anak panah menembus dada makhluk itu tanpa melukainya.
+
+Tubuhnya berubah menjadi asap, lalu terbentuk kembali.
+
+“Jangan percaya bentuknya,” kata Sylvara. “Ia mengambil sesuatu dari pikiranmu.”
+
+Makhluk itu menoleh kepada Kael.
+
+Kulit gelapnya meleleh.
+
+Wajah seorang wanita muncul dari balik asap.
+
+Pakaian wanita itu terbakar. Rambutnya dipenuhi abu.
+
+Kael berhenti bernapas.
 
 “Ibu?”
 
-*Kaulah penyebabnya,* bisik sosok itu dengan suara yang sangat dia kenal. *Kau membakar kami semua.*
+Sosok itu mengangkat wajah.
 
-Api merah menyembur dari dada Kael dan membungkus tubuhnya. Panasnya memaksa Sylvara mundur.
+“Kenapa kau kembali ke pohon itu?”
 
-“Diam!”
+Suaranya sama.
 
-Ledakan energi menghantam bayangan itu hingga tercerai-berai. Kael berdiri di tengah kobaran api, tubuhnya gemetar, tetapi tatapannya tidak lagi menghindar.
+Tidak hanya mirip. Sama persis dengan suara ibunya.
 
-“Aku akan mencari tahu siapa diriku,” katanya. “Dan tak akan kubiarkan siapa pun memakai ingatanku untuk mengendalikanku.”
+“Kau seharusnya pergi,” lanjutnya. “Semua orang mati karena kau tidak mendengarkan.”
 
-Api di kulitnya belum padam. Ia bergerak liar, seolah masih mencari sesuatu untuk dibakar.
+Kael mundur.
 
-Sylvara mengamatinya dengan hati-hati. “Kau baru menyentuh potensi tingkat pertama. Masalahnya, Fragmen itu tampaknya menginginkan lebih.”
+“Tidak.”
 
-Kael menatap nyala api di telapak tangannya.
+“Lihat tanganmu.”
 
-“Biarkan ia mencoba. Aku tidak akan tunduk.”
+Darah muncul di telapak Kael. Api merah menyala di sela jari-jarinya.
 
-Jauh di luar Zona Fragmented, Rowan berdiri di atas batu tinggi. Jubah hitamnya berkibar diterpa angin.
+“Kaulah yang membakar kami.”
 
-“Awal yang bagus, Kael,” gumamnya. “Tapi suatu hari nanti, kau sendiri yang akan memohon agar beban itu dilepaskan.”
+Sylvara berdiri di antara mereka.
+
+“Itu bukan ibumu.”
+
+Makhluk tersebut tersenyum.
+
+“Kau juga akan mati karena dia.”
+
+Tubuhnya memanjang dan menyerang.
+
+Sylvara menangkis cakarnya dengan busur. Benturan itu melemparkannya ke tepi jalur.
+
+Kael melihat kakinya tergelincir.
+
+Tanpa berpikir, dia mengulurkan tangan.
+
+Panas di dadanya menyebar ke lengan.
+
+Namun kali ini tidak langsung meledak.
+
+Kael mendengar getaran makhluk tersebut.
+
+Di balik suara ibunya, di balik bentuk yang berubah-ubah, ada irama kasar yang terus berulang. Satu bagian bergetar lebih kuat daripada yang lain.
+
+Sebuah titik lemah.
+
+*Tekan lebih dalam,* bisik Fragmen.
+
+Kael memusatkan perhatian pada getaran itu.
+
+Udara di depan telapak tangannya beriak.
+
+Satu denyut keluar.
+
+Tidak besar. Tidak menyala seperti ledakan di Aranyel.
+
+Namun ketika denyut tersebut menyentuh dada Shadowblood Beast, tubuh makhluk itu berhenti bergerak.
+
+Retakan merah menyebar dari dalam.
+
+Wajah ibunya pecah lebih dulu.
+
+Kemudian seluruh tubuh makhluk itu hancur menjadi asap.
+
+Kael segera menarik Sylvara menjauh dari tepi.
+
+Mereka jatuh bersama di atas lempengan batu.
+
+Beberapa saat tidak ada yang berbicara.
+
+Sylvara menatap tempat makhluk itu menghilang.
+
+“Kau tidak membakarnya.”
+
+“Aku hanya mencari bagian yang bergetar paling keras.”
+
+“Lalu kau menghancurkannya dari dalam.”
+
+Kael memandang telapak tangannya.
+
+Api merah kecil masih menyala, tetapi ruang di sekitarnya tampak bergelombang.
+
+Kemampuan itu terasa lebih mengerikan daripada ledakan biasa.
+
+“Apa semua pembawa Fragmen bisa melakukan ini?”
+
+“Tidak.” Sylvara bangkit. “Kekuatan setiap Fragmen berbeda. Tapi yang ada di dalam tubuhmu mungkin bukan sekadar api.”
+
+Suara geraman kembali terdengar dari arah gerbang.
+
+Void Hunter berhasil masuk.
+
+Tubuhnya muncul di kejauhan, diikuti dua Warden yang berjalan dengan susah payah karena perubahan gravitasi.
+
+Sylvara menunjuk jalur batu yang mengarah ke sebuah celah cahaya.
+
+“Itu jalan keluar.”
+
+Kael berdiri.
+
+Kakinya masih gemetar, tetapi pikirannya tidak lagi kosong.
+
+Dia belum mampu mengendalikan Fragmen.
+
+Namun untuk pertama kalinya, dia memahami sedikit cara kerjanya.
+
+Bukan api yang menjadi kekuatan utamanya.
+
+Api hanya bekas dari sesuatu yang jauh lebih dalam.
+
+Kael dan Sylvara berlari menuju celah cahaya.
+
+Sesaat sebelum melewatinya, suara dari dalam dadanya kembali berbisik.
+
+*Sekarang kau mulai mendengar denyut kehancuran.*
