@@ -1,67 +1,127 @@
 # Episode 050 — Arah Baru, Luka Lama
 
-Kembali di Pos Kragmar, Kael, Sylvara, dan Zireth tidak lagi ditempatkan di sel. Kapten Garn memberi mereka kamar tamu, perawatan, dan perbekalan baru sebagai balasan atas kejadian di Puncak Beku.
+Kragmar menerima mereka sebagai tamu kali ini.
 
-Zireth menghubungkan lengan mekanisnya yang rusak ke konsol arsip Dwarf.
+Perubahan dari sel batu ke kamar dengan kasur sungguhan terasa cukup besar sampai Sylvara tertidur sebelum makan malam.
 
-“Garn memberi akses terbatas pada peta utara.” Data bergerak di layar. “Arah pada peta bintangmu kemungkinan menuju Puncak Aethelgard.”
+Kael tidak seberuntung itu.
 
-Sylvara mendekat. “Wilayah Celestial Lykaros?”
+Lengan kirinya mati rasa sejak puncak.
 
-“Perbatasan kuno antara Iskali dan kekaisaran mereka yang hilang.”
+Zireth menghubungkan alat pemindai ke konsol Dwarf dan menampilkan hasil di udara. Garis merah, biru, dan ungu membentuk pola yang terlalu rapi.
 
-“Kupikir Lykaros hanya dongeng Elf.”
+"Kabar buruk dulu?" tanya Kael.
 
-“Tidak sepenuhnya.” Zireth membuka catatan tua. “Karag Thürm pernah berhubungan dengan bangsa Celestial ribuan tahun lalu. Setelah itu mereka dikatakan naik ke bintang atau menghilang.”
+"Aku belum menemukan kabar baik."
 
-Kael duduk di sudut ruangan, masih merasakan sisa pertempuran pada tubuhnya.
+"Bagus. Konsisten."
 
-Fragmen di dada terasa lebih stabil setelah menyelaraskan Gerbang Es. Sebaliknya, lengan kirinya seperti menyimpan sesuatu yang baru—bukan sekadar rasa sakit, melainkan ruang asing yang terus berkembang.
+Zireth memperbesar bagian lengan.
 
-“Berarti petunjuk berikutnya berada di reruntuhan Celestial?”
+"Void tidak lagi menyebar seperti infeksi."
 
-“Bisa jadi Fragmen, bisa juga informasi,” jawab Zireth. “Kita tidak akan tahu sebelum sampai.”
+"Itu terdengar baik."
 
-Kael memandang peta.
+"Karena struktur Fragmenmu mulai memasukkannya ke jaringan tetap."
 
-“Rowan, Sang Arsitek, Gerbang Es, Nyanyian Kehampaan... Semua ini lebih besar daripada perburuan dua belas Fragmen.”
+Kael menatap pola ungu di kulit.
 
-Tangannya mengepal.
+"Jadi bukan sembuh."
 
-“Aku tidak bisa terus mengikuti petunjuk seperti bidak yang digerakkan orang lain.”
+"Bukan."
 
-“Apa rencanamu?” tanya Sylvara.
+"Lebih seperti tubuhku menyerah?"
 
-“Kita tetap menuju Aethelgard. Tapi tujuan kita bukan hanya mencari kekuatan. Kita akan mencari sejarah Lykaros dan apa pun yang menjelaskan rencana Sang Arsitek.”
+"Lebih seperti tubuhmu mengubah definisi tentang apa yang dianggap asing."
 
-Zireth mengangguk. “Wilayah itu tidak dipetakan selama ribuan tahun.”
+Kalimat itu jauh lebih mengganggu.
 
-“Jalan Keempat memang tidak pernah mudah.”
+Sylvara masuk membawa mangkuk sup.
 
-Rasa sakit menusuk lengan kiri Kael.
+"Garn mengizinkan kita melihat peta utara."
 
-Dia membungkuk sambil mencengkeramnya. Retakan hitam menyala ungu jauh lebih terang daripada sebelumnya.
+Zireth mengganti proyeksi.
 
-“Kael!” Sylvara segera mendekat.
+Jalur dari Kragmar menuju gletser Iskali muncul. Lebih jauh, pada area yang hampir kosong dari catatan modern, terdapat satu simbol menara.
 
-Sebuah suara muncul di dalam pikirannya.
+Aethelgard.
 
-Bukan bisikan kacau Void. Suara itu dingin, datar, dan teratur.
+"Peta bintangmu menunjuk ke sana," kata Zireth.
 
-*Struktur diterima. Integrasi tingkat primer dimulai.*
+Kael memandang simbol tersebut.
 
-Kael menahan napas. “Integrasi apa?”
+"Lykaros?"
 
-Zireth mengarahkan pemindai ke lengan tersebut. Pembacaan energi membuat wajahnya berubah.
+"Catatan Dwarf menyebut mereka bangsa Celestial yang pernah berdagang dengan Karag Thürm. Lalu hubungan berhenti. Tidak ada penjelasan yang konsisten."
 
-“Korupsi Void-nya tidak lagi hanya merusak.”
+"Mungkin mereka tahu tentang Drakelyn," kata Sylvara.
 
-Pola rune ungu tipis muncul di sepanjang retakan dan menyatu dengan kulit Kael.
+Nama itu membuat Kael diam.
 
-“Energi itu sedang menggabungkan diri dengan struktur Fragmenmu,” lanjut Zireth. “Membentuk pola baru yang stabil.”
+Pulau terbelah.
 
-Kael memandangi lengannya.
+Sang Arsitek.
 
-Kekuatan dan korupsi yang selama ini saling melawan telah memasuki tahap baru.
+Jaringan salinan.
 
-Dan tak seorang pun tahu apakah perubahan itu akan menyelamatkannya atau menyelesaikan kehancuran yang telah dimulai.
+Gerbang Es.
+
+Semua tampak terpisah, tetapi simbol dan istilah yang sama terus muncul di antara mereka.
+
+"Kita ke Aethelgard," katanya.
+
+Sylvara duduk. "Untuk Fragmen berikutnya?"
+
+Kael menggeleng.
+
+"Bukan itu prioritasnya. Aku mau tahu siapa yang membuat jaringan Echo, apa hubungan Vorthax dengan gerbang, dan kenapa nama Drakelyn sudah ada sebelum aku lahir."
+
+Zireth mematikan sebagian proyeksi.
+
+"Akhirnya sebuah rencana yang bukan 'ikuti benda bercahaya'."
+
+"Aku berkembang."
+
+Rasa sakit tiba-tiba menembus lengan kiri.
+
+Kael jatuh dari kursi.
+
+Sylvara menjatuhkan mangkuk dan berlutut di sampingnya.
+
+Rune ungu di kulit menyala satu demi satu.
+
+Bukan menyebar.
+
+Menyusun.
+
+Zireth mengarahkan pemindai.
+
+Wajahnya berubah.
+
+"Kael. Ada pola informasi aktif di dalam energi itu."
+
+Suara muncul di kepala Kael.
+
+Dingin.
+
+Datar.
+
+Tidak seperti bisikan Fragmen atau Nyanyian Kehampaan.
+
+*Struktur diterima.*
+
+Kael menahan napas.
+
+*Integrasi primer dimulai.*
+
+"Integrasi apa?"
+
+Sylvara menatapnya. "Siapa yang kau ajak bicara?"
+
+Kael tidak sempat menjawab.
+
+Untuk sepersekian detik, lengan kirinya tidak terasa seperti bagian tubuh.
+
+Ia terasa seperti pintu.
+
+Dan sesuatu baru saja mengetahui cara membukanya dari dalam.

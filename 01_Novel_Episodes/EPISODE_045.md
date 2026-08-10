@@ -1,57 +1,99 @@
 # Episode 045 — Hati Gerbang Es
 
-Kael berdiri sendirian menghadapi amukan Nyanyian Kehampaan.
+Kael menghindari cakar dengan berguling ke bawah tubuh makhluk.
 
-Badai es Void menutup pandangan dan menguras tenaga dari setiap tarikan napas. Pecahan es hitam melesat seperti pedang.
+Dari dekat, inti ungu tampak bukan seperti kristal biasa.
 
-Kael menghindar dan menangkis dengan Zerath's Fang. Setiap benturan mengguncang lengannya hingga tulang terasa retak.
+Ia berdenyut mengikuti retakan Gerbang Es.
 
-*Hancur. Pewaris. Luka.*
+Satu ke satu.
 
-Makhluk itu terlalu kuat untuk dia lawan sendiri.
+Setiap kali gerbang mengirim pulsa, inti mengembang. Setiap kali tubuh makhluk terluka, energi kembali ke gerbang lalu dipantulkan lagi.
 
-Kael melirik Gerbang Es di belakangnya. Energi yang menghidupi tubuh raksasa tersebut terus mengalir dari retakan. Selama gerbang tetap terbuka, serangan apa pun hanya akan menunda kekalahannya.
+Sirkuit tertutup.
 
-Di sisi lain medan, Zireth melepaskan gelombang elektromagnetik dari lengan yang telah rusak. Beberapa makhluk es berhenti bergerak dan runtuh sesaat.
+Kael teringat diagram di buku kuno.
 
-“Sylvara, sekarang. Bantu Kael.”
+Aliran energi tidak selalu harus dihancurkan.
 
-Sylvara mengumpulkan sisa sihir cahayanya pada satu anak panah. Dia menarik tali hingga jari-jarinya gemetar.
+Bisa dikembalikan ke sumber dalam fase yang tepat sampai kedua gelombang saling meniadakan.
 
-“Bertahan.”
+"Zireth!"
 
-Panah itu melesat seperti bintang dan mengarah tepat ke inti ungu.
+Suara ledakan datang dari belakang.
 
-Nyanyian Kehampaan merasakannya. Perisai es hitam terbentuk di depan dada.
+"Masih hidup!"
 
-Anak panah menghantam dan meretakkan pelindung, tetapi tidak berhasil menembusnya.
+"Intinya bukan target. Sambungannya! Cari fase baliknya."
 
-Sylvara mengumpat pelan.
+Beberapa detik kemudian pemindai Zireth mengarah ke gerbang.
 
-Kael memperhatikan bagaimana makhluk tersebut melindungi bagian itu. Inti di dadanya bukan sekadar sumber tenaga. Ia adalah Hati Gerbang Es—penghubung antara tubuh raksasa dan retakan dimensi.
+"Aku butuh pola stabil."
 
-Buku rune di reruntuhan kembali terlintas dalam pikirannya.
+Kael menghindari serangan lagi.
 
-Catatan itu bukan hanya peringatan. Pola-pola birunya menunjukkan aliran energi yang dikembalikan menuju sumber, bukan dihancurkan dengan kekuatan yang lebih besar.
+"Aku buat."
 
-Bagaimana jika inti tersebut tidak perlu dipecahkan?
+Dia menancapkan Zerath's Fang ke es dan memejamkan mata.
 
-Bagaimana jika resonansinya dapat ditenangkan dan ditutup?
+Untuk pertama kalinya sejak pertarungan dimulai, Kael berhenti menyerang.
 
-Rowan mengamati dari kejauhan. Alisnya terangkat ketika Kael berhenti menyerang.
+Dia mendengarkan.
 
-“Apa yang dia lakukan?”
+Dengungan gerbang.
 
-Kael menanamkan kaki di tengah badai dan memejamkan mata. Kedua tangannya diarahkan kepada makhluk dan Gerbang Es.
+Inti.
 
-Api merah serta biru tidak lagi berkobar liar. Cahayanya menjadi stabil, berdenyut mengikuti pola yang dia ingat dari rune kuno.
+Nyanyian.
 
-Kael mencari frekuensi gerbang di balik raungan, badai, dan tekanan Void.
+Fragmen merah.
 
-Nyanyian Kehampaan berhenti sesaat.
+Fragmen biru.
 
-Makhluk itu tampak bingung menghadapi energi yang tidak mencoba melukai, melainkan menyelaraskan kekacauan di dalam intinya.
+Korupsi ungu di lengan.
 
-Kael memperdalam resonansi.
+Semua tampak kacau jika didengar sekaligus. Kael memisahkan satu demi satu.
 
-Untuk menutup gerbang, dia harus menyentuh jantungnya tanpa membiarkan kehampaan menelan dirinya lebih dulu.
+Gerbang memiliki ritme dasar.
+
+Sangat lambat.
+
+Seperti napas makhluk yang tidur.
+
+"Dapat," katanya.
+
+Kael mengirim pulsa merah-biru dengan frekuensi yang sama tetapi fase terbalik.
+
+Ketika keduanya bertemu, garis energi antara gerbang dan inti berkedip.
+
+Makhluk raksasa berhenti sesaat.
+
+Zireth berteriak, "Itu! Ulangi!"
+
+Kael mengulang.
+
+Sambungan meredup lagi.
+
+Nyanyian Kehampaan tidak menyerang.
+
+Tubuhnya bergetar seperti sesuatu yang bingung karena untuk pertama kalinya energi tidak sedang memukul atau memberinya makan.
+
+Rowan melihat perubahan.
+
+"Apa yang kau lakukan?"
+
+Kael tidak menjawab.
+
+Dia memperdalam resonansi.
+
+Gerbang mulai mengikuti iramanya.
+
+Namun satu nada masih tidak cocok.
+
+Void di lengan kiri.
+
+Bagian yang selama ini dia tekan justru mungkin menjadi komponen yang dibutuhkan untuk berbicara dengan sisi lain.
+
+Kael membuka mata.
+
+Untuk menutup gerbang, dia harus memasukkan bagian paling berbahaya dari dirinya ke dalam pola.

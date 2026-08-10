@@ -1,67 +1,113 @@
 # Episode 047 — Kunci Pengorbanan
 
-Kael mempertahankan resonansi di tengah tekanan yang menarik jiwanya ke dua arah.
+Rune pada Gerbang Es menyala satu demi satu.
 
-Di satu sisi ada keseimbangan Fragmen. Di sisi lain, kehampaan yang ingin menghapus segala bentuk.
+Kael melihat polanya seperti jaringan kunci.
 
-Namun di antara keduanya, dia mulai merasakan struktur Gerbang Es.
+Bukan mekanisme yang hanya bisa dibuka atau ditutup.
 
-Rune-rune kuno pada permukaan lengkungan menyala ketika resonansinya menyentuh. Maknanya terbuka seperti pola mekanisme yang selama ini tersembunyi.
+Lebih seperti alat musik raksasa yang menjaga satu frekuensi tetap diam.
 
-Rune tersebut bukan hanya segel.
+Darah Dwarf pada jalur bawah telah mengganggu nada batu.
 
-Mereka adalah kunci resonansi—seperti liontin spiral Vorthax.
+Resonansi Kael mengganggu jalur kedua.
 
-Zireth mulai pulih dari serangan nyanyian. Dia memandang aliran energi antara Kael dan gerbang.
+Kalau dua jalur itu digunakan untuk membuka, arah aliran juga seharusnya bisa dibalik.
 
-“Energi kalian menyatu. Apa yang sedang terjadi?”
+"Dagna!"
 
-“Dia mencoba menutupnya,” kata Sylvara sambil memaksa tubuhnya bangkit.
+Dwarf perempuan itu sedang membantu Borin menjauh dari altar.
 
-“Bukan sekadar menutup.” Kael berbicara di sela tekanan. “Segelnya harus diseimbangkan kembali. Ia hanya aktif pada frekuensi yang tepat.”
+"Apa?"
 
-Tubuh Nyanyian Kehampaan semakin retak. Bongkahan es hitam berjatuhan seperti kulit mati.
+"Rune tempat darahmu jatuh. Tutup alurnya dengan batu rune Kragmar kalau masih punya."
 
-Rowan menyadari gerbang mulai tunduk pada resonansi Kael.
+Dagna melihat gelang di pinggangnya, lalu mengerti.
 
-“Tidak.” Energi Void berkumpul di tangannya. “Dia tidak boleh menutupnya.”
+Dia menancapkan batu pemanas ke jalur ukiran.
 
-Sebelum Rowan menyerang, Dagna berhasil meraih kapak Borin yang tergeletak di dekatnya. Rantai Void di tangannya telah mengendur akibat kekacauan energi.
+Rune merah berkedip.
 
-“Untuk Karag Thürm!”
+"Tidak cukup!"
 
-Kapak itu mengayun dari belakang.
+"Borin punya suar patroli," kata Zireth.
 
-Rowan berbalik dan menangkis. “Serangga.”
+Borin melempar alat kecil meski bahunya masih berdarah. Dagna menghancurkannya di atas jalur.
 
-Perhatiannya teralihkan.
+Energi Dwarf masuk berlawanan arah.
 
-Kael menggunakan kesempatan tersebut untuk menelusuri bagian terakhir dari pola rune.
+Setengah gerbang berubah biru.
 
-Buku kuno menyebut Pengorbanan Darah Pewaris sebagai alat untuk melemahkan segel. Namun darah dan energi pewaris seharusnya juga dapat digunakan dengan arah sebaliknya.
+Rowan akhirnya bergerak.
 
-Bukan untuk membuka.
+"Berhenti."
 
-Untuk memperkuat.
+Dia mengangkat tongkat ke arah Kael.
 
-Kael menatap lengan kirinya. Korupsi Void telah masuk jauh ke dalam tubuh, menyatu dengan Fragmen meski terus merusaknya.
+Sylvara menembakkan panah terakhirnya.
 
-Energi asing itu mungkin menjadi bagian kunci yang hilang.
+Rowan menangkis, tetapi cukup membuat serangannya meleset.
 
-“Mundur!” teriak Kael kepada Sylvara dan Zireth. “Aku akan mencoba sesuatu.”
+Dagna mengambil kapak Borin dari salju dan menerjang.
 
-Dia mengarahkan kedua tangan ke rune utama di tengah retakan.
+Rowan terpaksa berbalik.
 
-Api merah dan biru keluar dari Fragmen. Dari celah hitam pada lengan kirinya, energi ungu ikut mengalir.
+"Kau lagi."
 
-Ketiganya menyatu menjadi cahaya yang tidak stabil.
+"Sayangnya."
 
-Pemindai Zireth langsung memberi peringatan.
+Baja Dwarf bertemu tongkat Void.
 
-“Kael, jangan. Menyalurkan korupsi itu dapat menghancurkan tubuhmu dari dalam.”
+Kael tidak melihat pertarungan mereka lebih lama.
 
-Kael tidak menghentikannya.
+Dia fokus pada jalur kedua.
 
-Dia melepaskan sinar tiga warna tepat ke rune kunci Gerbang Es.
+Buku kuno menyebut *pengorbanan pewaris* karena energi pembawa resonansi dapat memaksa segel kehilangan fase.
 
-Seluruh puncak berguncang ketika energi pewaris bertemu dengan segel kuno.
+Tetapi tubuh Kael kini membawa tiga pola: merah, biru, ungu.
+
+Tiga titik referensi.
+
+Cukup untuk menstabilkan, bukan merusak.
+
+Kael mengangkat kedua tangan.
+
+Panas merah masuk ke rune kiri.
+
+Dingin biru ke kanan.
+
+Void ungu mengisi celah di tengah.
+
+Ketiganya tidak dilebur.
+
+Diselaraskan.
+
+Gerbang mengeluarkan dentuman rendah.
+
+Retakan menyempit.
+
+Nyanyian Kehampaan menjerit.
+
+Tubuh raksasanya mulai pecah menjadi bongkahan es hitam.
+
+Zireth menatap pemindai.
+
+"Berhasil. Tapi aliran baliknya masuk ke tubuhmu juga."
+
+Kael sudah merasakannya.
+
+Sesuatu dari gerbang sedang menulis pola pada lengan kirinya.
+
+Dia tidak bisa menghentikan proses tanpa membuka retakan kembali.
+
+Kael menggertakkan gigi.
+
+"Biarkan."
+
+"Kau tidak tahu akibatnya."
+
+"Aku tahu akibat kalau pintunya tetap terbuka."
+
+Dia menambah daya.
+
+Seluruh puncak berguncang.

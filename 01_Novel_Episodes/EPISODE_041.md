@@ -1,51 +1,93 @@
 # Episode 041 — Cakar dari Kehampaan
 
-Pertarungan Kael dan Rowan berhenti.
+Cakar itu terus menarik tubuhnya keluar.
 
-Cakar raksasa merobek keluar dari retakan Gerbang Es. Bentuknya tersusun dari es hitam dan bayangan yang terus bergerak, seolah benda itu hidup di antara dua wujud.
+Es hitam menumpuk di sekeliling bentuk yang belum selesai. Bayangan mengisi celah di antara tulang-tulang kristal. Dalam beberapa detik, sosok humanoid setinggi menara sudah menunduk di atas Puncak Beku.
 
-Sylvara mundur. “Apa itu?”
+Tidak ada wajah.
 
-Pemindai Zireth dipenuhi data kacau. “Energi Void dalam jumlah besar bercampur dengan sihir es primordial. Itu bukan Elemental.”
+Di dadanya menyala inti ungu.
 
-Sosok di balik cakar mulai keluar.
+Kael nyaris tidak bisa berdiri di bawah tekanannya.
 
-Tubuh humanoid raksasa menjulang puluhan meter di atas puncak. Pusaran es hitam dan bayangan membentuk tubuhnya. Cahaya ungu berdenyut di dada, menyakitkan mata setiap kali memancar. Di tempat wajah seharusnya berada, hanya ada kekosongan.
+Fragmen merah dan biru di tubuhnya bergetar seperti dua benda yang ingin melarikan diri ke arah berbeda.
 
-Tekanan energinya menembus perisai api Kael. Fragmen di dadanya bereaksi seperti alarm yang meraung di dalam jiwa.
+"Itu Nyanyian Kehampaan?" tanya Sylvara.
 
-“Kekuatannya jauh melampaui Penjaga Kawah.”
+Zireth memandang sensor yang dipenuhi statik.
 
-Rowan memandangi makhluk itu. Senyumnya memudar.
+"Mungkin hanya tubuh yang dibentuk oleh nyanyiannya. Data tidak bisa membaca bagian yang masih berada di balik gerbang."
 
-“Ini bukan bentuk yang dijanjikan Arsitek. Ia keluar terlalu cepat.”
+Makhluk itu mengangkat kepala kosongnya.
 
-Makhluk tersebut bersuara tanpa mulut. Dengungannya datang dari udara dan batu di sekeliling mereka.
+Suara muncul di seluruh puncak.
 
-*Lapar. Dingin. Kosong.*
+*Dingin.*
 
-Cakar kedua menembus gerbang.
+Tidak lewat telinga.
 
-Suhu Puncak Beku jatuh dalam sekejap. Badai salju terbentuk di sekitar tubuh raksasa, menelan pemandangan dengan pusaran putih dan hitam.
+Melalui tulang.
 
-Dagna masih terikat di dekat gerbang. “Nyanyian Kehampaan telah datang!”
+*Lapar.*
 
-Kael menoleh kepada Rowan. “Jadi itu makhluk yang kalian coba bebaskan?”
+Lapisan es menyebar dari kakinya.
 
-Rowan tidak menjawab. Dia menatap gerbang seolah sedang berbicara kepada seseorang yang tidak terlihat.
+Borin dan Dagna kehilangan warna pada wajah. Beberapa prajurit Dwarf yang masih hidup mengerang ketika cahaya tipis keluar dari tubuh mereka dan bergerak menuju inti ungu.
 
-“Segelnya baru retak. Kenapa ia dapat keluar sejauh ini?”
+"Ia menyerap energi hidup," kata Zireth.
 
-Nyanyian Kehampaan mengaum.
+Kael menoleh ke Rowan.
 
-Gelombang dingin Void menyebar dari tubuhnya. Prajurit-prajurit Dwarf yang tergeletak di dataran tinggi mulai mengerang. Cahaya tipis keluar dari tubuh mereka dan tersedot menuju inti ungu makhluk tersebut.
+Pria itu berdiri diam, menatap makhluk tersebut.
 
-“Ia menyerap energi kehidupan,” kata Zireth. “Kalau dibiarkan, seluruh Puncak Beku akan menjadi tanah mati.”
+"Kau membukanya. Lakukan sesuatu."
 
-Cakar makhluk itu terulur lebih jauh. Badai di sekitarnya semakin kuat.
+Rowan tidak menjawab seketika.
 
-Kael dan Rowan saling memandang.
+"Ini bukan bentuk yang seharusnya keluar."
 
-Kebencian di antara mereka belum hilang. Namun ancaman di depan tidak membedakan kawan dan musuh.
+"Aku tidak peduli."
 
-Untuk bertahan hidup, pertarungan mereka harus ditunda.
+"Kau seharusnya peduli. Kalau inti itu menyempurnakan tubuhnya, ia tidak akan membutuhkan gerbang lagi."
+
+Kael memandang retakan.
+
+"Bisa dikembalikan?"
+
+"Kalau sambungannya diputus sebelum stabil."
+
+Nyanyian Kehampaan mengangkat satu tangan.
+
+Ratusan pecahan es hitam muncul di udara.
+
+Kael membangun gelombang panas. Rowan mengangkat perisai Void. Zireth menarik Borin dan Dagna ke balik batu sementara Sylvara berlindung bersama mereka.
+
+Hujan es menghantam.
+
+Perisai Kael retak dalam beberapa detik.
+
+Rowan menahan sisi lain.
+
+Mata mereka bertemu di antara badai.
+
+Tidak ada persahabatan.
+
+Tidak ada maaf.
+
+Hanya perhitungan yang sama.
+
+Kalau mereka terus saling menyerang, tidak ada seorang pun yang keluar dari puncak hidup-hidup.
+
+Kael menurunkan pedang sedikit.
+
+"Kita hentikan ini dulu."
+
+Rowan mengangguk sekali.
+
+"Dulu. Bukan selesai."
+
+"Aku tahu."
+
+Makhluk raksasa mengaum.
+
+Untuk beberapa menit berikutnya, musuh terbesar Kael berdiri di sisi yang sama dengannya.

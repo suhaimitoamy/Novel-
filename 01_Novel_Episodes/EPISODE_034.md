@@ -1,65 +1,103 @@
 # Episode 034 — Reruntuhan Kuno di bawah Es
 
-Kelompok Kael keluar dari ujung gua dan kembali ke jalur terbuka Puncak Beku.
+Jejak sepatu bot membawa mereka ke tonjolan batu yang nyaris tertutup salju.
 
-Borin dan Dagna berhenti di mulut gua.
+Zireth memindai permukaannya.
 
-“Tugas kami sampai di sini,” kata Borin. “Jalan di depan tidak tercatat dalam peta patroli.”
+"Ada ruang kosong di balik es."
 
-Dagna menatap lereng bersalju. “Medannya curam dan badai datang tanpa peringatan. Jangan percaya pada pijakan es.”
+Mereka menggali cukup lebar untuk menemukan bagian atas sebuah gerbang.
 
-“Terima kasih,” ujar Kael.
+Arsitekturnya tidak menyerupai bangunan Dwarf atau Elf. Pilar-pilarnya terlalu halus, sudutnya terlalu presisi, dan tidak ada sambungan batu yang terlihat.
 
-Kedua Dwarf memberi hormat singkat, lalu kembali menuju Kragmar hingga menghilang di tikungan.
+Kael menyentuh ukiran pada permukaan.
 
-Kael, Sylvara, dan Zireth melanjutkan pendakian sendirian.
+Fragmen di dadanya langsung menjawab.
 
-Jejak sepatu bot misterius masih terlihat pada salju yang membeku.
+"Tunggu," kata Sylvara.
 
-“Jejaknya menuju tonjolan batu di lereng,” kata Zireth sambil membaca pemindai.
+"Aku cuma menyentuh batu."
 
-“Ada tempat berlindung?” tanya Sylvara.
+"Setiap kali kau bilang begitu, sesuatu terbuka."
 
-“Ruang kosong terdeteksi di balik lapisan es. Kemungkinan reruntuhan.”
+Gerbang bergerak.
 
-Mereka mendaki selama beberapa jam. Udara semakin tipis, dan setiap tarikan napas terasa membeku di dada.
+Sylvara menutup mata.
 
-Tonjolan batu itu ternyata bagian atas gerbang kuno yang hampir seluruhnya terkubur salju. Arsitekturnya tidak menyerupai bangunan Dwarf maupun Elf. Bentuknya lebih tua dan asing.
+"Tentu saja."
 
-Kael menyentuh ukiran halus pada permukaannya. “Siapa yang membangun tempat ini?”
+Di baliknya terdapat aula hitam yang tidak tersentuh es. Pilar geometris berdiri mengelilingi altar rendah. Debu tipis menutupi lantai—kecuali satu garis jejak sepatu bot yang menuju tengah.
 
-“Mungkin sebelum The Sundering,” kata Sylvara.
+Echo Vessel atau salinan lain pernah masuk.
 
-“Atau jauh lebih tua,” jawab Zireth. “Energi yang tertinggal sangat stabil.”
+Di atas altar terletak buku bersampul gelap.
 
-Dia menemukan celah di antara gerbang dan es. Mereka merunduk masuk.
+Tidak ada judul.
 
-Di baliknya terdapat ruangan besar dari batu hitam mengilap. Es menutupi sebagian dinding, tetapi area tengah tetap bersih.
+Kael mendekat pelan.
 
-Pilar-pilar geometris mengelilingi altar rendah. Keheningan di dalam ruangan terasa berat, seolah ribuan tahun bisikan terperangkap di balik batu.
+Zireth memindai dari jauh.
 
-“Tempat ibadah?” tanya Sylvara.
+"Tidak ada mekanisme aktif yang terbaca."
 
-Kael melihat jejak sepatu bot pada debu tipis. “Dia sudah datang ke sini.”
+"Itu bukan jaminan."
 
-Di atas altar tergeletak buku tua bersampul kulit gelap. Benda itu tidak rusak oleh dingin maupun waktu.
+"Akhirnya kau belajar."
 
-“Hati-hati,” kata Zireth. “Bisa jadi jebakan.”
+Kael membuka buku.
 
-Kael mendekat dan membuka sampulnya.
+Halaman pertama kosong.
 
-Halaman-halaman pertama kosong. Ketika ujung jarinya menyentuh kertas, rune biru muncul satu demi satu, menyusun baris dalam bahasa yang tidak mereka kenal.
+Ujung jarinya menyentuh kertas.
 
-Sylvara mendekat. “Bahasa apa itu?”
+Rune biru muncul.
 
-“Bukan sesuatu dalam arsipku,” jawab Zireth. “Terlalu tua.”
+Sylvara menghela napas panjang.
 
-Kael tidak dapat membacanya, tetapi Fragmen di dadanya beresonansi dengan cahaya rune. Makna dari simbol-simbol itu perlahan terbentuk dalam pikirannya.
+"Aku bahkan tidak akan komentar."
 
-“Aku tidak membaca kata-katanya,” gumam Kael. “Aku merasakan artinya.”
+Simbol-simbol itu bukan bahasa yang Kael kenal. Namun maknanya muncul sebagai getaran di dada, seperti saat Gema Sang Penjaga berbicara tanpa kata.
 
-Tatapannya mengikuti baris-baris yang terus menyala.
+Kael membaca perlahan.
 
-“Ini catatan tentang Gerbang Es.”
+Bukan kalimat.
 
-Di tengah reruntuhan yang membeku, sebuah rahasia dari masa sebelum sejarah mulai membuka dirinya kepada Kael.
+Pola.
+
+Diagram gerbang. Dua lapisan segel. Jalur energi yang berputar dari luar menuju satu inti di pusat.
+
+"Ini Gerbang Es."
+
+Zireth mendekat.
+
+"Kau bisa membacanya?"
+
+"Tidak seperti membaca. Lebih seperti... mendengar bentuknya."
+
+Halaman berikutnya menyala.
+
+Kael melihat gambar dua bangsa berdiri di sisi berlawanan sebuah lengkungan hitam—Dwarf dan sosok tinggi berkulit pucat yang mungkin Iskali.
+
+Di belakang gerbang terdapat sesuatu yang digambar hanya sebagai lingkaran kosong.
+
+Tidak ada wajah.
+
+Tidak ada tubuh.
+
+Di bawahnya satu frasa muncul jelas di pikirannya.
+
+**NYANYIAN KEHAMPAAN.**
+
+Kael merasakan tengkuknya dingin.
+
+"Apa itu?"
+
+Dia belum sempat menjawab.
+
+Rune pada halaman berubah dari biru menjadi merah.
+
+Bukan teks.
+
+Peringatan.
+
+Segel pertama sedang turun.

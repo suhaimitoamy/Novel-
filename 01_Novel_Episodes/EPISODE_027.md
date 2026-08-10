@@ -1,69 +1,103 @@
 # Episode 027 — Perbatasan Beku
 
-Kael, Sylvara, dan Zireth akhirnya keluar dari Ngarai Gema.
+Perubahan suhu terjadi dalam satu hari.
 
-Udara berubah dingin begitu mereka mencapai jalur terbuka. Lapisan es menutupi tanah berbatu, dan angin membawa butiran salju tajam yang menusuk wajah.
+Pasir terakhir menghilang di bawah batu abu-abu. Beberapa jam kemudian, salju pertama jatuh di bahu Kael.
 
-“Kita sudah memasuki perbatasan utara,” kata Sylvara sambil menggosok lengannya.
+Menjelang malam, seluruh dunia sudah putih.
 
-“Antara wilayah netral dan Karag Thürm,” ujar Zireth. “Atau mungkin kita sudah berada di pinggiran Iskali.”
+"Aku merindukan gurun," kata Sylvara sambil menarik jubah lebih rapat.
 
-Kael memandang puncak gunung yang samar di kejauhan. Peta bintang dalam pikirannya menunjuk ke arah yang sama.
+Zireth menatapnya. "Tiga hari lalu kau mengancam akan membunuh matahari."
 
-“Tujuan kita di sana.”
+"Aku bisa membenci dua hal sekaligus."
 
-Mereka mendaki jalur yang semakin tertutup salju. Jejak kaki mereka menjadi satu-satunya tanda kehidupan di hamparan putih.
+Kael tidak ikut bercanda.
 
-Kael terus memikirkan gambaran dari Kristal Gema.
+Peta bintang di pikirannya terasa semakin kuat. Arah utara berdenyut hampir seperti denyut kedua.
 
-Pengorbanan. Gerbang Es. Rowan yang berbicara dengan sosok gelap.
+Mereka melewati celah es sempit ketika Sylvara berhenti.
 
-Apa yang menunggu mereka di utara?
+"Ada orang."
 
-“Tempat ini terlalu sepi,” kata Sylvara. “Tidak ada hewan atau patroli.”
+Prajurit Dwarf tergeletak di jalur.
 
-“Itulah masalahnya.” Zireth memindai lereng di depan. “Karag Thürm menjaga perbatasannya dengan ketat.”
+Lima tubuh.
 
-Mereka melewati celah sempit di antara dua tebing es dan menemukan penyebab keheningan tersebut.
+Zirah mereka masih utuh, tetapi es tumbuh dari dalam sambungan logam. Wajah-wajah membeku dengan ekspresi yang terlalu tiba-tiba untuk kematian karena cuaca.
 
-Beberapa prajurit Dwarf tergeletak di jalur. Zirah mereka pecah, tubuhnya membeku dalam posisi bertahan. Tidak ada luka tebasan atau bekas ledakan, hanya lapisan es tebal yang tampak tumbuh dari dalam logam.
+Zireth berjongkok.
 
-Sylvara menutup mulut. “Apa yang melakukan ini?”
+"Suhu jaringan turun dari dalam."
 
-Zireth berjongkok di samping salah satu mayat. “Mereka membeku dari dalam. Sihir es tingkat tinggi—atau sesuatu yang lebih buruk.”
+"Sihir Iskali?" tanya Kael.
 
-Fragmen di dada Kael berdenyut tidak nyaman.
+"Mungkin. Tapi residunya tidak bersih. Ada Void di sini."
 
-“Iskali?” tanyanya.
+Lengan kiri Kael langsung berdenyut.
 
-“Mungkin. Rhythor dikenal menguasai sihir es absolut, tapi mereka biasanya tidak mencampuri urusan Karag Thürm.”
-
-Gemuruh rendah terdengar dari atas tebing.
+Geraman terdengar dari atas.
 
 Mereka mendongak.
 
-Makhluk besar berdiri di puncak. Tubuhnya terbentuk dari es retak, menyerupai campuran serigala dan beruang. Mata birunya menyala dengan kecerdasan yang tidak biasa.
+Seekor makhluk besar berdiri di tebing. Bentuknya menyerupai serigala dengan bahu beruang, seluruh tubuh tersusun dari es berlapis. Dua mata biru menyala di kepala kristal.
 
-“Pelanggar,” katanya. Suaranya terdengar seperti pecahan es saling beradu. “Wilayah Hutan Beku.”
+Kael menghunus pedang.
 
-“Elemental itu bisa bicara?” bisik Sylvara.
+Makhluk itu berbicara.
 
-“Elemental tingkat tinggi,” jawab Zireth. “Auranya kuat.”
+"Pergi."
 
-Kael melangkah maju tanpa mengangkat senjata.
+Sylvara menahan busur setengah terangkat.
 
-“Kami tidak berniat melanggar wilayahmu. Kami hanya ingin menuju pegunungan utara.”
+"Ia bisa bicara."
 
-“Utara tertutup.” Makhluk itu memperlihatkan taring kristalnya. “Gerbang Es hampir terbuka. Makhluk fana dilarang mendekat.”
+"Aku juga memperhatikan," bisik Kael.
 
-“Siapa yang membukanya?” tanya Kael.
+Elemental turun dari tebing tanpa membuat salju runtuh.
 
-Elemental tersebut mengabaikan pertanyaan itu.
+"Wilayah utara tertutup."
 
-“Pergi. Atau membeku selamanya.”
+"Kami hanya lewat," kata Kael. "Kami mencari tempat yang disebut Gema Kebenaran."
 
-Ia mengangkat cakar yang terbentuk dari stalaktit tajam.
+Mata biru itu menyempit.
 
-Zireth menyiapkan lengan mekanisnya. “Negosiasi selesai.”
+"Nama lama."
 
-Kael memanggil api, Sylvara memasang panah, dan mereka bertiga bersiap menghadapi penjaga es di jalur yang dipenuhi mayat prajurit Dwarf.
+Kael melangkah satu langkah.
+
+"Kau tahu?"
+
+"Gerbang mendengar. Gerbang retak. Semua yang membawa gema dilarang mendekat."
+
+Fragmen Kael berdenyut.
+
+"Gerbang Es?"
+
+Elemental memperlihatkan taring.
+
+Udara di sekeliling mereka langsung turun beberapa derajat.
+
+"Kau membawa kunci."
+
+Kael merasakan Sylvara dan Zireth menegang.
+
+"Kunci apa?"
+
+Makhluk itu tidak menjawab.
+
+Cakar kristalnya menekan tanah.
+
+Es menjalar cepat menuju kaki Kael.
+
+Dia melompat mundur.
+
+"Kami tidak datang membuka apa pun!"
+
+"Semua kunci mengatakan hal yang sama sebelum pintu terbuka."
+
+Elemental mengaum.
+
+Pilar-pilar es bangkit dari tanah.
+
+Negosiasi berakhir.

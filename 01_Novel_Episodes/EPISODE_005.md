@@ -1,77 +1,205 @@
 # Episode 005 — Tarian Luka dan Ilusi
 
-Kael dan Sylvara berhenti di hadapan sebuah menara batu yang telah patah menjadi beberapa bagian. Pecahan-pecahannya melayang di udara, membentuk spiral yang menentang gravitasi.
+Menara itu tampak patah sebelum mereka mendekatinya.
 
-“Vault of Shards,” kata Sylvara. “Menurut legenda, hanya dua orang yang pernah masuk. Keduanya tidak pernah kembali.”
+Tiga bagian bangunannya melayang terpisah di udara, berputar perlahan mengelilingi ruang kosong. Tidak ada fondasi yang menghubungkan pecahan-pecahan tersebut dengan tanah.
 
-Fragmen di dada Kael berdenyut seperti jantung kedua. Setiap denyut menariknya semakin dekat ke gerbang tak kasatmata di bawah menara.
+Sylvara berhenti di tepi lingkaran batu yang mengelilinginya.
 
-Kalau jawaban tentang dirinya terkunci di sana, dia akan membukanya sendiri.
+"Vault of Shards."
 
-Kael melangkah melewati batas Void.
+Suara sudah kembali sejak mereka meninggalkan Spires of Silence, tetapi Sylvara tetap berbicara pelan.
 
-“Kael, jangan—”
+"Aku pernah mendengar namanya," kata Kael.
 
-Suara Sylvara terputus. Dunia menjadi hitam, membeku sekejap, lalu pecah menjadi ribuan serpihan cahaya.
+"Kalau begitu kau juga pernah mendengar bahwa orang yang masuk biasanya tidak keluar."
 
-Ketika pandangannya pulih, Kael berdiri di dalam ruangan yang dikelilingi cermin-cermin raksasa. Setiap permukaan memantulkan dirinya dalam bentuk berbeda: seorang anak yang ketakutan, pria tua yang kelelahan, sosok bersisik, dan tubuh yang terbakar api.
+Denyut di dada Kael menariknya maju.
 
-“Apa ini?”
+Bukan paksaan. Lebih seperti rasa mengenali sesuatu yang seharusnya asing.
 
-“Kita.”
+Dia memandang gulungan pemberian Nyrah.
 
-Salah satu cermin menghitam. Seorang Kael bermata gelap melangkah keluar, senyumnya tipis dan kejam.
+*Ia mendengar dunia pada frekuensi yang tidak dapat kau dengar.*
 
-“Kau terus lari dari darahmu,” katanya. “Kau menolak warisanmu, tetapi desa itu tetap terbakar.”
+"Kalau tempat ini bereaksi pada Fragmen, mungkin aku bisa belajar sesuatu."
 
-“Itu karena Fragmen.” Kael mundur. “Bukan aku.”
+"Atau kehilangan bagian otak yang masih berfungsi."
 
-“Fragmen tidak memilih jiwa yang utuh. Ia mencari wadah paling rusak.” Sosok itu membuka kedua tangannya. “Ia memilihmu.”
+Kael menatap Sylvara.
 
-Dark Kael menyerang.
+"Kau selalu seoptimis ini?"
 
-Pukulannya cepat dan brutal. Setiap benturan memunculkan kembali potongan masa lalu yang ingin Kael kubur.
+"Hanya saat bepergian dengan orang yang senang menyentuh benda terkutuk."
 
-*Kau sebuah kesalahan.*
+Kael hampir menjawab ketika udara di depan menara bergetar.
 
-*Ayahmu monster.*
+Sebuah celah gelap terbuka.
 
-*Darahmu kutukan.*
+Fragmen di dadanya berdetak sekali.
 
-Kael jatuh berlutut. Luka di tubuhnya tidak seberapa dibanding suara-suara yang merobek pikirannya.
+Kael melangkah masuk.
 
-Namun di balik rasa sakit itu, sesuatu tetap menyala.
+"Kael—"
 
-“Mungkin aku memang rusak,” katanya pelan.
+Suara Sylvara terpotong bersama dunia.
 
-Dark Kael berhenti.
+***
 
-Kael mengangkat kepala. “Tapi aku bukan dirimu. Dan aku tidak akan membiarkan sisi ini memegang kendali.”
+Dia berdiri di ruangan penuh cermin.
 
-Dia bangkit. Fragmen di dadanya beresonansi lebih dalam dengan tubuhnya. Bayangan sayap naga merah terbentuk di belakang punggungnya, memenuhi ruangan dengan hawa panas.
+Tidak ada pintu.
 
-Dark Kael tersenyum. “Lalu apa yang akan kau lakukan terhadap luka yang tak bisa dibunuh?”
+Setiap permukaan memperlihatkan Kael yang berbeda.
 
-Kael menggenggam Zerath's Fang.
+Kael kecil dengan pipi kotor dan lutut terluka. Kael tua dengan rambut putih. Kael bersisik merah. Kael yang tidak memiliki mata. Kael yang berdiri di atas gunung mayat dengan api membakar seluruh langit di belakangnya.
 
-“Belajar hidup bersamanya.”
+Dia berbalik pelan.
 
-Mereka kembali bertarung. Api merah berputar di antara cermin, mengikuti tebasan dan langkah mereka seperti tarian yang liar. Dari luar Vault, Sylvara melihat cahaya Fragmen berkedip di sela-sela retakan menara.
+"Ini tidak nyata."
 
-Kael akhirnya menebaskan Zerath's Fang ke arah bayangannya. Seluruh cermin pecah dalam satu gelombang.
+Salah satu pantulan tersenyum.
 
-Dark Kael memudar bersama serpihan kaca.
+Kael tidak.
 
-“Luka tidak pernah benar-benar hilang,” bisiknya. “Kau hanya belajar bergerak tanpa membiarkannya menghentikanmu.”
+Pantulan itu keluar dari cermin.
 
-Ruangan runtuh.
+Wajahnya sama, tetapi matanya hitam seluruhnya.
 
-Kael tersadar di luar Vault, bersandar di pelukan Sylvara. Tubuhnya hangus di beberapa bagian, tetapi kepalanya terasa lebih tenang.
+"Kalimat yang nyaman."
 
-“Kau menang?” tanya Sylvara.
+Kael mundur.
 
-Kael menggeleng. “Tidak. Aku hanya berhenti melawannya dengan cara yang salah.”
+"Kau bukan aku."
 
-Di puncak reruntuhan lain, Rowan memandang langit merah darah.
+"Aku tidak perlu menjadi kau." Sosok itu memandang tangannya sendiri. "Aku hanya perlu menjadi kemungkinan yang paling kau takutkan."
 
-“Jiwanya mulai menyatu dengan Fragmen,” gumamnya. “Kekuatan itu akan menjadikannya pahlawan terbesar Zerath—atau iblis terakhirnya.”
+Api hitam muncul di telapak tangannya.
+
+Kael mengangkat pisau pendek pemberian Sylvara.
+
+Sosok itu tertawa.
+
+"Itu?"
+
+Serangan pertama hampir mematahkan pergelangan Kael.
+
+Pisau terlempar. Kael jatuh ke lantai kaca. Di setiap cermin, dirinya yang lain ikut jatuh dengan ekspresi berbeda—takut, marah, puas, mati.
+
+Sosok gelap mendekat.
+
+"Kau terus mencari seseorang untuk disalahkan. Fragmen. Para Warden. Takdir."
+
+Kael bangkit dan menghindari tebasan api.
+
+"Diam."
+
+"Karena kalau Aranyel terbakar oleh tanganmu sendiri, apa yang tersisa?"
+
+Kalimat itu tepat mengenai luka yang selama ini tidak pernah berani Kael sentuh.
+
+Api merah meledak dari tubuhnya.
+
+Sosok gelap menyambutnya dengan api hitam.
+
+Dua gelombang bertabrakan.
+
+Cermin pecah satu demi satu.
+
+Kael terdorong mundur, tetapi kali ini dia merasakan sesuatu di balik panas—getaran yang sama seperti di Spires of Silence. Irama di lantai. Irama di cermin. Bahkan irama pada tubuh lawannya.
+
+Semua memiliki frekuensi.
+
+Kael berhenti mencoba membakar sosok itu.
+
+Dia mendengarkan.
+
+Di antara dentuman, satu nada terasa salah.
+
+Kael mengulurkan tangan ke ruang kosong.
+
+Udara bergetar.
+
+Serpihan-serpihan cermin di lantai terangkat dan menyatu di telapak tangannya. Logam hitam tumbuh di antara kaca, membentuk bilah ramping dengan urat merah di sepanjang sisinya.
+
+Nama muncul di pikirannya tanpa ada yang mengucapkan.
+
+*Zerath's Fang.*
+
+Kael menggenggamnya.
+
+Sosok gelap berhenti tersenyum.
+
+"Jadi kau memilih senjata."
+
+"Tidak."
+
+Kael mengangkat bilah itu.
+
+"Aku memilih berhenti berlari."
+
+Mereka bertabrakan lagi.
+
+Kali ini Kael tidak menyerang sosoknya.
+
+Dia menyerang cermin di belakangnya.
+
+Bilah hitam menembus permukaan kaca tepat pada frekuensi yang terasa paling rapuh.
+
+Retakan menjalar ke seluruh ruangan.
+
+Sosok gelap menatap tubuhnya yang ikut pecah.
+
+"Kau pikir ini menghilangkanku?"
+
+Kael menggeleng.
+
+"Tidak."
+
+Untuk pertama kalinya dia bisa mengatakan kalimat berikut tanpa merasa sedang berbohong.
+
+"Aku cuma tidak akan membiarkanmu memegang kemudi."
+
+Dunia pecah.
+
+***
+
+Kael tersadar dengan kepala di pangkuan Sylvara.
+
+Udara malam terasa dingin. Menara masih melayang di belakang mereka.
+
+"Berapa lama?"
+
+"Hampir satu jam."
+
+Kael mencoba duduk dan langsung meringis. Luka bakar tipis memenuhi kedua lengannya.
+
+Sylvara hendak memarahinya, lalu pandangannya jatuh ke tangan kanan Kael.
+
+Bilah hitam masih ada di sana.
+
+"Kau masuk tanpa senjata itu."
+
+"Aku tahu."
+
+"Dan sekarang?"
+
+Kael memandang Zerath's Fang. Urat merah di bilahnya berdenyut mengikuti Fragmen di dada.
+
+"Sepertinya aku membawa sesuatu keluar."
+
+Sylvara tidak menyentuhnya.
+
+"Kau menang?"
+
+Kael teringat wajahnya sendiri di cermin.
+
+"Tidak."
+
+Dia menyarungkan bilah baru itu ke sarung kosong di pinggangnya.
+
+"Tapi mungkin aku akhirnya mengerti bahwa tidak semua pertarungan harus berakhir dengan salah satu sisi mati."
+
+Di kejauhan, menara yang patah berhenti berputar selama satu detik.
+
+Lalu seluruh pecahannya bergerak lagi—kali ini mengikuti denyut di dada Kael.

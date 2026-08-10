@@ -1,85 +1,139 @@
 # Episode 025 — Ngarai Gema Kebenaran
 
-Kael, Sylvara, dan Zireth memasuki ngarai sempit yang diapit tebing tinggi. Udara di dalamnya lembap dan dingin, jauh berbeda dari panas gurun di belakang mereka.
+Ngarai itu sempit, dingin, dan terlalu banyak mengembalikan suara.
 
-“Ngarai Gema,” kata Zireth. Suaranya terdengar berat di antara dinding batu. “Jaga langkah. Dan jangan langsung percaya pada apa yang kalian dengar.”
+Setiap langkah menjadi tiga.
 
-Sylvara mengamati celah-celah gelap di tebing. “Kenapa disebut begitu?”
+Setiap napas terdengar seperti milik orang lain.
 
-“Dinding di sini tidak hanya memantulkan suara.” Zireth berjalan paling depan. “Mereka mengembalikan pikiran, ketakutan, dan kadang kebenaran yang paling ingin kau sembunyikan.”
+Zireth berjalan paling depan.
 
-Langkah mereka bergema berkali-kali, menciptakan kesan seolah rombongan lain mengikuti dari belakang.
+"Kalau mendengar sesuatu, jangan langsung jawab."
 
-Kael menahan keinginan untuk menoleh. Tempat itu terasa memiliki telinga—dan mulut.
+"Nasihat itu mulai sering muncul dalam hidupku," kata Kael.
 
-Sebuah suara muncul dari gema.
+Beberapa ratus meter pertama tidak terjadi apa-apa.
 
-“Kenapa kau menyentuh batu itu, Kael?”
+Lalu dinding kiri berbisik.
+
+*Kenapa kau menyentuh batu itu?*
 
 Kael berhenti.
 
 Suara ibunya.
 
-“Kenapa?”
+Tidak sama seperti ilusi Shadowblood. Kali ini tidak ada wujud, tidak ada pemandangan. Hanya suara yang begitu tepat sampai dadanya terasa sesak.
 
-“Ibu?” Kael berbalik.
+"Terus jalan," kata Zireth.
 
-“Kael, itu hanya gema,” ujar Sylvara.
+Kael memaksa kaki bergerak.
 
-“Terus berjalan,” tambah Zireth. “Ia sedang menarik ketakutanmu.”
+*Kalau kau tidak menyentuhnya, mereka masih hidup.*
 
-Kael memaksa kakinya bergerak.
+"Itu bukan fakta," gumam Kael.
 
-Gema lain menyusul, kali ini suara penjaga Elf dari Aranyel.
+Gema mengulang kalimatnya.
 
-“Pembawa bencana. Kau seharusnya mati.”
+*Bukan fakta. Bukan fakta. Bukan fakta.*
 
-“Tidak nyata,” gumam Kael. “Semua ini tidak nyata.”
+Nada berubah sampai terdengar seperti ejekan.
 
-Sylvara mendadak berhenti. Wajahnya kehilangan warna.
+Sylvara tiba-tiba berhenti di belakang.
 
-“Pengkhianat,” bisik suara dari dinding. “Kau meninggalkan kami demi dia.”
+*Pengkhianat.*
 
-“Tidak.”
+Kael menoleh.
 
-Kael menoleh. “Apa yang kau dengar?”
+Wajah Sylvara pucat.
 
-“Bukan apa-apa.” Sylvara mempercepat langkah. “Hanya suara ngarai.”
+*Pulanglah. Lihat siapa yang kau tinggalkan.*
 
-Di belakang mereka, Zireth mengamati tanpa komentar. Senyum tipis muncul sebentar di wajahnya.
+"Apa yang kau dengar?"
 
-Mereka mencapai bagian ngarai yang lebih lebar. Formasi kristal biru berdiri di tengah ruang terbuka dan berdenyut seperti jantung.
+"Bukan urusanmu."
 
-“Kristal Gema,” kata Zireth. “Sumber semua suara di sini. Jangan disentuh. Kita hanya perlu melewatinya.”
+Nada tajam itu lebih mirip pertahanan daripada marah.
 
-Semakin dekat, gema menyerang pikiran Kael dengan lebih tajam.
+Kael tidak memaksa.
 
-“Kau hanya belajar menari bersama lukamu. Sebentar lagi luka itu menelanmu.”
+Gema mulai menyerang lebih sering semakin dalam mereka masuk.
 
-Suara Dark Kael.
+Suara Darek.
 
-“Hancurkan saja semuanya. Jauh lebih mudah.”
+*Sekarang lihat aku sebagai korban?*
 
-Rowan.
+Suara penjaga Aranyel.
 
-“Aku monster. Aku pembunuh.”
+*Kau hidup. Mereka mati.*
 
-Suaranya sendiri.
+Suara Rowan.
 
-Kael menutup telinga, tetapi gema tidak datang dari udara. Ia muncul langsung dari dalam kepalanya.
+*Berapa lama sebelum kau berhenti berpura-pura?*
 
-“Diam!”
+Kael menutup telinga.
 
-Fragmen di dadanya bereaksi terhadap luapan emosi. Energi merah dan biru berputar liar mengelilingi tubuhnya.
+Tidak membantu.
 
-Kristal Gema menjawab dengan dengungan keras.
+Di bagian terlebar ngarai berdiri kristal biru setinggi tiga orang. Permukaannya berdenyut mengikuti langkah mereka.
 
-“Jangan gunakan kekuatan di sini!” teriak Zireth.
+Zireth berhenti.
+
+"Jangan sentuh. Jangan gunakan sihir. Lewati saja."
+
+Kael mengangguk.
+
+Mereka bergerak mengitari kristal.
+
+Lalu suara lain muncul.
+
+Bukan ibunya.
+
+Bukan Rowan.
+
+Suara Kael sendiri.
+
+*Yang paling kau takutkan bukan bahwa kau menghancurkan Aranyel.*
+
+Kael membeku.
+
+*Yang paling kau takutkan adalah suatu hari kau mengetahui bahwa kau sengaja melakukannya.*
+
+Denyut Fragmen melonjak.
+
+"Kael," kata Sylvara.
+
+Dia tahu itu gema.
+
+Tahu kristal hanya memantulkan sesuatu yang sudah ada.
+
+Tetapi ketakutan tidak peduli pada pengetahuan.
+
+Energi merah dan biru keluar dari kulitnya.
+
+"Matikan!" teriak Zireth.
+
+Kael mencoba.
 
 Terlambat.
 
-Cahaya biru meledak dari kristal dan menyapu seluruh ngarai. Kael, Sylvara, dan Zireth terlempar ke belakang.
+Kristal Gema menangkap frekuensi Fragmen dan mengembalikannya berlipat-lipat.
 
-Pandangan Kael memutih. Telinganya berdenging, tetapi satu suara masih terdengar sebelum kesadarannya hilang.
+Dengungan rendah memenuhi ngarai.
 
-Tawa dingin yang memantul dari satu dinding ke dinding lain.
+Seluruh permukaan biru berubah putih.
+
+Kael hanya sempat melihat Sylvara melompat ke arahnya sebelum cahaya meledak.
+
+Tubuhnya terangkat dari tanah.
+
+Suara dunia lenyap.
+
+Namun sesaat sebelum pingsan, Kael mendengar satu hal yang tidak terdengar seperti gema.
+
+Tawa laki-laki.
+
+Jauh.
+
+Dingin.
+
+Dan sangat mirip Rowan.

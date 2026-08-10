@@ -1,67 +1,109 @@
 # Episode 035 — Bisikan Rune Es
 
-Kael berdiri di depan buku tua yang kini dipenuhi rune biru.
+Rune merah berdenyut cepat.
 
-“Apa yang kau lihat?” tanya Sylvara.
+Kael membalik halaman.
 
-“Bukan sekadar sejarah.” Kael mengikuti aliran simbol dengan mata. Maknanya masuk melalui resonansi Fragmen, bukan melalui bahasa yang dia pahami. “Ini peringatan.”
+Makna datang dalam potongan.
 
-Potongan informasi muncul satu demi satu dalam pikirannya.
+Gerbang Es dibuat sebagai penjara sekaligus pemutus resonansi. Sesuatu dari luar struktur dunia pernah mencoba masuk melalui frekuensi yang memengaruhi pikiran dan materi.
 
-“Gerbang Es disegel ribuan tahun lalu oleh aliansi pertama Iskali dan Karag Thürm. Mereka menggunakannya untuk mengurung sesuatu yang disebut Nyanyian Kehampaan.”
+Para Iskali menyebutnya Nyanyian Kehampaan.
 
-Zireth mencari nama itu dalam arsip pada lengannya. “Tidak ada catatan di Vorth Aereth. Entitas macam apa?”
+Para Dwarf tidak memberinya nama.
 
-“Berasal dari luar realitas Zerath.” Kael menahan napas ketika rune berikutnya terbuka. “Ia tidak dapat dihancurkan. Hanya bisa ditidurkan atau disegel.”
+"Kenapa?" tanya Sylvara.
 
-Cahaya biru pada halaman bertambah terang.
+Kael membaca baris berikutnya.
 
-“Gerbang itu sekaligus penjara dan jalan untuk memanggilnya. Jika terbuka penuh, Zerath akan berakhir.”
+"Karena menurut catatan ini, memberi nama membuat orang mengingat pola suaranya lebih mudah."
 
-Sylvara memandang altar. “Kenapa Rowan ingin melepaskan sesuatu seperti itu?”
+"Aku suka kebijakan Dwarf yang itu."
 
-“Buku ini tidak menyebut namanya.” Kael membaca bagian berikutnya melalui getaran di dada. “Tapi ada syarat untuk melemahkan segel: Pengorbanan Darah Pewaris.”
+Halaman berganti.
 
-Kata-kata dari Kristal Gema kembali terngiang.
+Diagram menunjukkan dua kunci segel.
 
-*Pengorbanannya harus sempurna.*
+Satu terhubung pada batu dan garis darah Dwarf penjaga.
 
-Zireth memindai buku dan altar. “Keduanya terhubung. Altar ini bukan tempat pemujaan, melainkan perangkat untuk memantau segel Gerbang Es.”
+Satu lagi pada simbol yang Kael kenali.
 
-Rune pada halaman berubah merah dan berkedip cepat.
+Spiral retak.
 
-“Apa itu?” tanya Kael.
+"Itu lagi."
 
-“Peringatan.” Zireth membaca lonjakan energi pada pemindainya. “Kestabilan segel menurun. Seseorang sedang melakukan ritual di Puncak Beku sekarang.”
+Zireth memindai simbol. "Ada teks di bawahnya?"
 
-Langkah kaki terdengar dari lorong gelap di sisi ruangan.
+Kael menelan ludah.
 
-Sylvara mengangkat busur. “Ada orang lain.”
+"Pewaris resonansi."
 
-Beberapa sosok berjubah hitam keluar dari kegelapan. Topeng perak menutupi wajah mereka. Masing-masing membawa belati atau tongkat pendek yang memancarkan energi gelap.
+Ruangan terasa lebih dingin.
 
-“Pewaris Fragmen,” kata salah satu dari mereka dengan suara datar. “Kau telah berjalan cukup jauh.”
+Penglihatan dari Ngarai Gema kembali: Rowan, sosok berjubah, kata *pengorbanan*.
 
-“Serahkan buku itu dan ikut dengan tenang,” sambung yang lain. “Tuan kami memiliki rencana untukmu.”
+Kael membaca lebih jauh.
 
-Kael menutup buku dan berdiri di depannya.
+"Segel bisa dilemahkan dengan darah pembawa resonansi yang kompatibel. Tidak harus satu orang. Dua jalur bisa dipaksa terbuka dari sisi berbeda."
 
-“Siapa tuan kalian? Rowan?”
+Sylvara menatapnya.
 
-Tawa dingin terdengar dari balik topeng.
+"Kau salah satunya."
 
-“Rowan hanya alat. Tuan kami jauh lebih primordial.”
+"Mungkin."
 
-Mereka menyerang serentak.
+Zireth menunjuk indikator merah yang semakin turun.
 
-Zireth menahan serangan pertama dengan lengan mekanis dan membalas menggunakan gelombang sonik. Sylvara melepaskan panah rune, tetapi lajunya melambat ketika mendekati jubah hitam.
+"Dan seseorang sedang melakukan sesuatu sekarang."
 
-“Gerakan mereka tidak wajar,” kata Zireth.
+Langkah kaki terdengar dari lorong samping.
 
-“Seperti boneka,” sahut Sylvara. “Tidak ada emosi.”
+Tiga sosok berjubah hitam masuk ke aula.
 
-Kael maju dengan Zerath's Fang dan api merah-biru.
+Topeng perak menutupi wajah mereka.
 
-“Mereka dikendalikan.”
+Kael menutup buku.
 
-Benturan senjata memenuhi reruntuhan yang selama ribuan tahun tidak mengenal suara pertempuran.
+"Kalian yang meninggalkan jejak?"
+
+Sosok pertama berhenti.
+
+"Jejak hanyalah undangan."
+
+Suara itu datar dan sedikit berlapis.
+
+Kael langsung teringat Echo Vessel.
+
+"Siapa yang mengundang?"
+
+"Pewaris tidak perlu mengetahui tangan yang membangun jalan. Hanya perlu tiba di ujungnya."
+
+Sylvara menarik busur.
+
+"Aku benci orang yang bicara seperti buku tua."
+
+Kael menghunus Zerath's Fang.
+
+"Rowan?"
+
+Tidak ada jawaban.
+
+Sosok bertopeng menyerang bersamaan.
+
+Gerakan mereka terlalu seragam.
+
+Tidak manusiawi.
+
+Kael menangkis belati pertama. Sylvara memaksa penyerang kedua mundur dengan panah. Zireth memblokir tongkat hitam menggunakan lengan mekanis.
+
+Setiap benturan menghasilkan nada yang hampir sama.
+
+Kael mendengarnya.
+
+Jaringan tujuh detik lagi.
+
+Namun kali ini ada sesuatu di baliknya—denyut kedua, lebih lambat, datang dari arah puncak.
+
+Seseorang tidak hanya mengendalikan tubuh-tubuh ini.
+
+Mereka sedang terhubung langsung ke ritual Gerbang Es.

@@ -1,69 +1,97 @@
 # Episode 040 — Retakan Pertama
 
-Boneka-boneka Dwarf telah jatuh, tetapi bahaya di Puncak Beku belum berakhir.
+Nada dari balik Gerbang Es tidak terdengar seperti musik.
 
-Rowan berdiri di dekat Gerbang Es dan memandang Kael yang memegang tongkat obsidiannya.
+Ia terasa seperti tekanan pada tengkorak.
 
-“Kau selalu muncul untuk merusak rencana besar, Kael Drayven.”
+Dagna menjerit ketika rune di bawahnya menyala lebih terang. Borin mencoba bangkit, tetapi satu Hollowed menendangnya kembali.
 
-Kael merasakan energi gelap masih bergerak di dalam tongkat. “Rencanamu membutuhkan nyawa orang tak bersalah. Itu bukan keseimbangan. Itu pembantaian.”
+Sylvara menembak penjaga itu.
 
-“Pandanganmu terlalu sempit.” Rowan memberi isyarat kepada sosok berjubah yang menjaga Dagna. “Habisi dia. Darahnya masih dapat melemahkan segel.”
+Zireth berlari ke Borin.
 
-Belati Void terangkat ke leher Dagna.
+Kael menuju Dagna.
 
-Panah rune melesat dari bawah dan menembus pergelangan tangan penyerang. Belati itu terlepas dan jatuh ke salju.
+Rowan menghadang.
 
-Sylvara berdiri di samping Kael dengan busur terangkat.
+"Lewati aku."
 
-“Tidak akan kubiarkan.”
+Kael tidak menjawab.
 
-Rowan mendecih. Tatapannya meninggalkan ritual dan terkunci pada Kael.
+Zerath's Fang bertemu tongkat obsidian.
 
-“Baik. Jika ingin menghentikanku, kau harus melewatiku.”
+Energi merah-biru dan ungu bertabrakan.
 
-Dia melompat dari puncak dan mendarat ringan di dataran tinggi beberapa meter di depan mereka.
+Gerbang di belakang mereka bergetar.
 
-Zireth mengambil posisi di belakang Kael. “Fragmen rusaknya sangat tidak stabil. Jangan biarkan energinya menyentuh tubuhmu terlalu lama.”
+Kael merasakannya sekaligus dengan benturan senjata.
 
-Kael menggenggam Zerath's Fang di satu tangan dan tongkat Rowan di tangan lain.
+Setiap konflik mereka mengirim gelombang ke rune.
 
-“Kenapa kau melakukan semua ini? Siapa sebenarnya Sang Arsitek?”
+"Berhenti!" teriak Zireth dari sisi altar. "Resonansi kalian memberi energi pada retakan!"
 
-“Namanya tidak penting.” Energi ungu berkumpul di sekitar Rowan. “Dia menawarkan kebebasan dari penderitaan yang diciptakan para dewa dan Fragmen gagal.”
+Rowan mendengar juga.
 
-Senyumnya menghilang.
+Senyum kecil muncul.
 
-“Kau adalah kunci terakhir untuk membuka pintu itu—atau penghalang yang harus dihancurkan.”
+Kael langsung mundur.
 
-Kael menyerang lebih dulu.
+"Kau sengaja."
 
-Api merah-biru menghantam gelombang Void. Ledakan pertama mengguncang dataran tinggi dan melemparkan salju ke udara.
+"Aku berharap kau cukup marah untuk tidak menyadarinya."
 
-Rowan bertarung dengan gerakan terukur. Setiap tebasan dan ledakan ditempatkan untuk memaksa Kael bergerak ke arah yang dia inginkan. Kael mengandalkan naluri, mengubah ritme serangannya setiap kali pola mulai terbaca.
+Kael mengubah taktik.
 
-Kekuatan mereka beradu lagi.
+Tidak ada ledakan.
 
-Gerbang Es bergetar.
+Tidak ada benturan besar.
 
-Retakan di tengah lengkungan memancarkan cahaya ungu yang lebih terang. Dengungan rendah memenuhi gunung, semakin keras setiap kali energi Kael dan Rowan bertabrakan.
+Dia menyerang dengan gerakan pendek, memaksa Rowan bergerak tanpa melepaskan banyak energi. Sylvara memotong rantai Dagna dengan panah presisi. Zireth menyeret Borin menjauh dari altar.
 
-“Kael!” teriak Sylvara. “Pertarungan kalian memberi makan gerbang.”
+Rowan mulai kehilangan keuntungan.
 
-Rowan tersenyum. “Energi konflik adalah katalis yang sempurna.”
+Lalu Gerbang Es retak sendiri.
 
-Kael mencoba menjauh dan berlari menuju puncak.
+Suara pecahannya lebih keras daripada petir.
 
-Rowan menghadangnya dengan dinding Void.
+Celah vertikal terbuka selebar tangan.
 
-“Hadapi aku. Ini takdirmu.”
+Hawa dingin keluar seperti napas dunia lain.
 
-Retakan Gerbang Es terbuka lebih lebar.
+Semua api di puncak padam.
 
-Hawa dingin menyembur keluar bersama tekanan kehampaan yang membuat seluruh tubuh Kael menegang. Dari celah dimensi, sebuah cakar raksasa mulai muncul—terbentuk dari es hitam dan bayangan yang menggeliat.
+Kael merasakan sesuatu menekan dari seberang.
 
-Pertarungan terhenti sesaat.
+Celah membesar.
 
-Kael, Rowan, Sylvara, Zireth, dan Dagna menatap gerbang.
+Es hitam tumbuh keluar, mengambil bentuk jari-jari raksasa.
 
-Sesuatu yang jauh lebih besar daripada pertikaian mereka telah menyentuh dunia Zerath.
+Sebuah cakar menembus gerbang.
+
+Rowan berhenti bergerak.
+
+Wajahnya berubah.
+
+Bukan kemenangan.
+
+Kebingungan.
+
+"Terlalu cepat."
+
+Kael menatapnya.
+
+"Apa?"
+
+Rowan tidak menjawab.
+
+Cakar kedua menyentuh tepi retakan.
+
+Dari balik pintu datang nada yang lebih tinggi.
+
+Prajurit-prajurit yang pingsan di dataran bawah mulai kejang.
+
+Kael merasakan kehangatan ditarik dari kulitnya.
+
+Sesuatu telah menemukan celah.
+
+Dan bahkan Rowan tampaknya tidak siap menyambutnya.

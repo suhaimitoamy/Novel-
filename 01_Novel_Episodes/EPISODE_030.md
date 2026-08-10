@@ -1,77 +1,127 @@
-# Episode 030 — Dinding Krangmar dan Bisikan Rune
+# Episode 030 — Dinding Kragmar dan Bisikan Rune
 
-Pos Terdepan Kragmar dipahat langsung ke dalam gunung es. Dinding batunya dilapisi logam tebal, sementara lentera rune memancarkan cahaya hangat di sepanjang langit-langit rendah.
+Pos Kragmar dipahat ke dalam gunung.
 
-Kael, Sylvara, dan Zireth ditempatkan di ruangan kosong yang jelas berfungsi sebagai sel sementara. Pintunya belum dikunci, tetapi jeruji besi dan penjaga di luar cukup menjelaskan kedudukan mereka.
+Setelah berhari-hari tidur di pasir dan salju, bangku batu di ruang tahanan terasa hampir mewah.
 
-“Aku tidak suka bagian saat mereka mengatakan Kapten Garn akan menentukan nasib kita,” ujar Sylvara.
+"Pintunya tidak dikunci," kata Sylvara.
 
-Zireth memeriksa mekanisme kunci dengan tangan logamnya. “Dwarf Karag Thürm menghargai kekuatan dan kejujuran. Selama cerita kita tentang Elemental sesuai kenyataan, peluang kita masih baik.”
+Zireth melihat dua penjaga di luar.
 
-Kael duduk di bangku batu dan memejamkan mata. Peta bintang di pikirannya masih menunjuk ke utara.
+"Itu karena mereka percaya martabat cukup kuat untuk menjadi kunci. Atau kapak mereka."
 
-“Tapi kita tidak menceritakan semuanya,” katanya. “Mereka tidak tahu tentang Fragmen atau alasan sebenarnya kita datang.”
+Kael duduk di dekat dinding.
 
-“Keputusan yang tepat.” Zireth menjauh dari pintu. “Memberi tahu pasukan Dwarf bahwa kau membawa serpihan kekuatan pencipta dunia yang tidak stabil mungkin bukan pembuka percakapan terbaik.”
+Rune Dwarf tua terukir di batu di samping bahunya. Setiap beberapa detik salah satunya menyala sangat lemah ketika Fragmen di dadanya berdenyut.
 
-Langkah berat terdengar dari lorong.
+Dia tidak menyentuhnya.
 
-Pintu terbuka. Pemimpin patroli masuk bersama seorang Dwarf wanita berzirah perak. Rambut putihnya dikepang dengan hiasan logam, dan mata birunya mengamati mereka tanpa berkedip.
+Pengalaman sudah cukup mengajari.
 
-“Jadi kalian yang membuat keributan di perbatasan dan mengalahkan Penjaga Es,” katanya.
+Langkah berat datang dari lorong.
 
-Kael berdiri. “Kami hanya membela diri, Kapten Garn.”
+Borin masuk bersama seorang Dwarf perempuan berzirah perak. Rambut putihnya dikepang rapat, dan tatapannya langsung berhenti pada Kael.
 
-“Penjaga Es tidak muncul tanpa alasan.” Garn berjalan mendekat. “Ia terikat pada anomali sihir kuno. Kalian pasti memicu sesuatu.”
+"Kapten Garn," kata Borin.
 
-Tatapannya berhenti pada Kael.
+Garn tidak duduk.
 
-“Aku merasakan resonansi tua dari tubuhmu. Sesuatu yang berbahaya.”
+"Kalian mengalahkan Penjaga Iskali."
 
-Kael menahan ekspresinya. Kapten itu dapat merasakan Fragmen meski dia tidak menggunakannya.
+"Ia menyerang lebih dulu," jawab Kael.
 
-“Kami pengelana,” kata Zireth. “Kami menuju utara untuk urusan pribadi.”
+"Semua orang selalu mengatakan itu."
 
-“Urusan pribadi di wilayah terlarang?” Garn mendengus. “Cerita yang lemah.”
+Garn mendekat.
 
-Dia berdiri tepat di depan Kael.
+Kael merasakan rune pada dinding menyala lagi.
 
-“Penjaga Es menyebut Gerbang Es. Apa lagi yang dikatakannya?”
+Tatapan Garn turun ke sana.
 
-“Gerbang itu hampir terbuka,” jawab Kael. “Makhluk fana dilarang mendekat.”
+"Menarik."
 
-Wajah Garn mengeras.
+"Apa?"
 
-“Rune peringatan di terowongan utara juga mulai aktif. Tiga patroli hilang dalam satu minggu. Sesuatu sedang bangkit di Puncak Beku.”
+"Rune itu tidak bereaksi pada siapa pun selama dua ratus tahun."
 
-“Apa Gerbang Es itu?” tanya Sylvara.
+Kael berdiri sedikit menjauh dari dinding.
 
-“Pintu antardimensi yang disegel leluhur Elemental dan Dwarf setelah Perang Primordial. Konon, sesuatu yang tidak seharusnya ada di Zerath dikurung di baliknya.”
+"Hari ini banyak hal menarik terjadi padaku."
 
-Garn memandang mereka satu per satu.
+Garn hampir tersenyum.
 
-“Sekarang seseorang mencoba membukanya.”
+Lalu wajahnya kembali keras.
 
-“Rowan,” gumam Kael.
+"Gerbang Es berada di Puncak Beku, tiga hari perjalanan dari sini. Dibangun bersama leluhur Iskali setelah Perang Primordial. Bukan pintu biasa."
 
-“Siapa?”
+"Penjara," kata Kael.
 
-“Tidak ada.”
+Garn menatapnya.
 
-Kapten Garn terdiam beberapa saat. “Aku tidak tahu siapa kalian. Namun kalian mengalahkan makhluk yang mampu membantai satu peleton dan mengetahui nama Gerbang Es.”
+"Dari mana kau tahu?"
 
-Dia mengambil keputusan.
+"Visi di Ngarai Gema."
 
-“Bantu kami menyelidiki Puncak Beku. Cari tahu siapa yang membuka gerbang. Jika kembali membawa informasi, kalian bebas melanjutkan perjalanan.”
+Borin menghela napas. "Kubilang jawabannya akan aneh."
 
-“Kalau kami menolak?” tanya Zireth.
+Garn melanjutkan. "Tiga patroli hilang dalam dua minggu. Rune peringatan di terowongan utara aktif. Lalu Penjaga Iskali mulai membunuh siapa pun yang mendekat."
 
-Senyum tipis tanpa humor muncul di wajah Garn.
+"Seseorang mencoba membuka gerbang," kata Sylvara.
 
-“Kalian tinggal di sel ini sampai badai reda. Mungkin beberapa dekade.”
+"Itu dugaan kami."
 
-Kael melirik Sylvara dan Zireth. Tugas itu membawa mereka langsung menuju sumber bahaya, tetapi juga menuju jawaban tentang rencana Rowan.
+Kael teringat Rowan di kristal.
 
-Di dinding belakang Garn, sebuah rune Dwarf tua menyala sebentar.
+"Kami mungkin tahu siapa yang terlibat."
 
-Cahayanya berdenyut mengikuti Fragmen di dada Kael.
+Garn menunggu.
+
+Kael memilih kata-kata.
+
+"Seorang pembawa Fragmen rusak bernama Rowan. Dia bekerja untuk sosok yang disebut Sang Arsitek."
+
+"Nama itu tidak ada di arsip kami."
+
+"Belum tentu manusia."
+
+Ruangan sunyi.
+
+Garn memandang mereka bertiga.
+
+"Aku tidak percaya kalian sepenuhnya."
+
+"Perasaan yang saling menguntungkan," kata Zireth.
+
+"Bagus. Orang yang terlalu cepat percaya biasanya mati."
+
+Kapten menunjuk peta pada dinding.
+
+"Bantu kami memeriksa Puncak Beku. Cari tahu siapa yang menyentuh segel dan kenapa. Kalau laporan kalian cocok dengan apa yang kami temukan, kalian bebas melintasi Karag Thürm ke utara."
+
+"Kalau menolak?" tanya Sylvara.
+
+"Kalian tinggal sampai badai berhenti."
+
+"Berapa lama?"
+
+Garn melirik ke luar.
+
+"Tahun lalu badai terpanjang berlangsung sembilan bulan."
+
+Sylvara menutup mata.
+
+Kael memandang peta.
+
+Puncak Beku berada tepat pada arah yang diberikan Hati Bintang Jatuh.
+
+Tidak ada alasan untuk pura-pura memilih.
+
+"Kami pergi."
+
+Rune di dinding menyala lebih terang.
+
+Kali ini seluruh pola terbentuk selama sepersekian detik.
+
+Sebuah spiral retak.
+
+Simbol yang sama dengan yang Kael lihat di Kristal Gema.

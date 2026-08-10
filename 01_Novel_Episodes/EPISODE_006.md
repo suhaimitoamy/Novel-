@@ -1,67 +1,181 @@
 # Episode 006 — Senja di Balik Batu
 
-Matahari senja menggantung rendah di barat ketika Kael dan Sylvara tiba di Lyrenith, sebuah kota kecil yang tersembunyi di antara lembah batu raksasa.
+Lyrenith muncul di antara dua dinding batu menjelang matahari tenggelam.
 
-Bangunannya terbuat dari obsidian hitam, dengan atap biru tua yang berkilau redup di bawah cahaya sore.
+Setelah berhari-hari melihat reruntuhan, kabut, dan tempat-tempat yang terasa salah, kota kecil itu hampir tampak normal. Rumah-rumah obsidian berdiri rapat di sepanjang jalan menurun. Atap biru gelap memantulkan sisa cahaya senja. Aroma roti dan sup daging keluar dari jendela penginapan.
 
-“Wilayah perbatasan netral antara Aelarion dan Karag Thürm,” ujar Sylvara. “Kita seharusnya aman di sini.”
+Kael baru menyadari betapa laparnya dia.
 
-Dia mengamati penduduk yang berlalu-lalang. “Setidaknya dari perang terbuka.”
+"Wilayah netral," kata Sylvara. "Aelarion tidak punya cukup alasan untuk menguasainya, Karag Thürm tidak punya cukup alasan untuk merebutnya."
 
-Orang-orang menyambut mereka dengan senyum ramah, tetapi ada sesuatu yang kosong dalam tatapan mereka. Setiap sapaan terdengar seperti kalimat yang telah dilatih berkali-kali.
+"Kedengarannya aman."
 
-“Selamat datang di Lyrenith,” kata seorang penjual roti dengan nada datar. “Segalanya damai di sini. Tidak ada perang di Lyrenith.”
+"Aku bilang netral. Bukan aman."
 
-Kael menunggu sampai mereka menjauh. “Kenapa mereka seperti boneka?”
+Seorang penjual roti menyapa mereka di gerbang pasar.
 
-Sylvara tidak menjawab.
+"Selamat datang di Lyrenith."
 
-Mereka menemukan penginapan sederhana menjelang malam. Dari balkon bangunan tinggi di seberang jalan, seseorang memperhatikan kedatangan mereka.
+Senyumnya terlalu rapi.
 
-“Akhirnya,” gumam sosok itu. “Pembawa Fragmen itu datang juga.”
+"Segalanya damai di sini."
 
-Larut malam, Kael meninggalkan penginapan untuk mencari udara segar. Jalanan Lyrenith kosong. Lampu-lampu rune menyala tanpa suara di sepanjang dinding batu.
+Kael mengambil dua langkah, lalu menoleh.
 
-Seorang pria berambut putih keluar dari bayangan gang.
+Penjual itu mengucapkan kalimat yang sama kepada seorang pedagang Dwarf yang baru lewat. Nada, jeda, bahkan senyumnya persis sama.
 
-“Kau tampak bingung,” katanya. “Tapi jauh lebih kuat daripada yang kuduga.”
+"Kau lihat?" bisik Kael.
 
-Api kecil menyala di telapak tangan Kael. “Siapa kau?”
+"Ya. Jangan tatap terlalu lama."
 
-“Seorang pengembara.” Pria itu mendekat tanpa menunjukkan niat menyerang. “Sama sepertimu.”
+Semakin masuk ke kota, semakin banyak hal kecil yang mengganggu Kael. Orang-orang berjalan pada kecepatan yang hampir seragam. Anak-anak bermain tanpa berteriak. Ketika sebuah mangkuk jatuh dari meja kedai dan pecah, semua kepala menoleh bersamaan—lalu kembali pada urusan masing-masing seolah tidak terjadi apa-apa.
 
-Tatapannya berhenti pada mata Kael.
+Fragmen di dada Kael berdenyut pelan.
 
-“Aku juga membawa Fragmen.”
+Bukan tanda bahaya.
 
-Dia membuka sedikit kerah bajunya. Cahaya ungu gelap tampak dari balik kulit lehernya. Energinya retak, tidak stabil, tetapi hidup.
+Lebih seperti benda itu sedang mendengarkan.
 
-Kael menahan napas. “Kenapa bentuknya seperti itu?”
+Mereka menyewa kamar di penginapan dekat tembok timur. Sylvara langsung tidur setelah memastikan dua kali bahwa jendela bisa dikunci.
 
-“Karena aku tidak melawannya.” Pria itu memandang langit malam. “Aku membiarkannya menghancurkanku, lalu membangun diriku kembali menjadi sesuatu yang baru.”
+Kael tidak bisa.
 
-Dia menoleh kepada Kael.
+Menjelang tengah malam dia keluar mencari udara.
 
-“Kau memiliki kekuatan untuk menghancurkan dunia ini. Melihat keadaan Zerath sekarang, apa menurutmu dunia ini masih layak diselamatkan?”
+Jalan Lyrenith kosong. Lentera rune menyala biru di sepanjang dinding. Tidak ada penjaga mabuk, tidak ada anjing, tidak ada suara percakapan dari rumah-rumah.
 
-Kael memadamkan api di tangannya. “Aku belum tahu.”
+Terlalu tenang.
 
-Pria itu menepuk bahunya, ringan seolah mereka hanya dua pelancong yang bertemu di jalan.
+"Kota ini membuatmu gelisah juga?"
 
-“Kau akan tahu. Cepat atau lambat, Zerath akan memaksamu memilih.”
+Kael berbalik.
 
-Dia berlalu dan menghilang di antara kabut malam.
+Seorang pria muda berdiri di mulut gang. Rambutnya putih hampir seperti salju. Mata kuningnya memantulkan cahaya rune dengan cara yang membuat Kael teringat sesuatu di hutan.
 
-Sylvara keluar dari bayangan dekat penginapan. Rupanya dia mendengar sebagian percakapan mereka.
+Sepasang mata di antara pepohonan.
 
-“Jangan percaya kepadanya,” katanya. “Itu senyum orang yang sudah terlalu sering menusuk dari belakang.”
+Tangan Kael turun ke Zerath's Fang.
 
-Kael menatap jalan yang telah kosong. Fragmen di dadanya berdenyut pelan.
+"Aku pernah melihatmu."
 
-Sebelum memutuskan apakah Zerath pantas dihancurkan, dia harus mengetahui siapa yang menyalakan api kehancuran itu.
+"Mungkin."
 
-Jauh di bawah kota, sebuah Rune Engine kuno mulai bergerak setelah bertahun-tahun tertidur.
+Pria itu keluar dari bayangan tanpa terburu-buru.
 
-Dari mesinnya terdengar bisikan Void.
+"Siapa kau?"
 
-*Darah naga. Fragmen murni. Tiga lagi dibutuhkan. Setelah itu, pecahkan dunia ini.*
+"Rowan."
+
+Nama itu tidak berarti apa-apa bagi Kael, tetapi Fragmen di dadanya langsung memanas.
+
+Rowan memperhatikan reaksinya.
+
+"Jadi benar."
+
+"Apa yang benar?"
+
+"Kau bisa merasakan milikku."
+
+Dia menarik kerah bajunya sedikit.
+
+Di bawah kulit lehernya terdapat retakan ungu gelap. Tidak menyala seperti milik Kael. Cahaya di sana bergetar, seolah setiap denyut hampir gagal mempertahankan bentuk.
+
+Kael menahan napas.
+
+"Fragmen?"
+
+"Sisa sesuatu yang pernah disebut begitu."
+
+"Apa yang terjadi padamu?"
+
+Rowan menutup kembali kerahnya.
+
+"Aku berhenti meminta izin pada kekuatan yang sudah telanjur tinggal di tubuhku."
+
+Jawaban itu terdengar seperti peringatan sekaligus ajakan.
+
+Kael tidak menyukai keduanya.
+
+"Kau mengikuti kami dari Aranyel?"
+
+Rowan tersenyum tipis.
+
+"Kalau aku mengatakan tidak, kau tidak akan percaya. Kalau aku mengatakan iya, kau akan menarik pedang. Jadi apa gunanya?"
+
+Kael memang sudah menggenggam gagang Zerath's Fang.
+
+"Apa yang kau mau?"
+
+"Melihat."
+
+"Melihat apa?"
+
+"Berapa lama kau bisa terus mengatakan bahwa dunia layak diselamatkan."
+
+Kael mengerutkan kening.
+
+Rowan memandang rumah-rumah Lyrenith.
+
+"Kota ini damai. Orang-orangnya tidak berkelahi, tidak mencuri, tidak saling membunuh. Bukankah itu yang semua kerajaan klaim mereka inginkan?"
+
+Kael memandang seorang perempuan yang berdiri di jendela seberang. Wajahnya kosong. Setelah beberapa detik dia menutup tirai dengan gerakan yang sangat teratur.
+
+"Itu bukan damai."
+
+"Bagus."
+
+Rowan terdengar benar-benar puas mendengarnya.
+
+"Berarti kau masih bisa membedakan ketenangan dengan sesuatu yang sudah mati."
+
+Kael melangkah mendekat.
+
+"Jawab pertanyaanku. Kenapa kau mengikutiku?"
+
+Rowan mundur satu langkah ke bayangan.
+
+"Karena kau belum tahu apa yang ada di dalam dirimu. Orang lain akan mencoba memberimu nama, tujuan, dan kandang sebelum kau sempat mencari tahu sendiri."
+
+"Dan kau berbeda?"
+
+"Tidak."
+
+Kejujuran itu membuat Kael terdiam.
+
+"Aku hanya tidak akan berpura-pura."
+
+Rowan berbalik.
+
+Kael mencabut Zerath's Fang setengah bilah.
+
+"Jangan ikuti kami lagi."
+
+Rowan berhenti tanpa menoleh.
+
+"Kalau kau ingin berhenti diikuti, Kael, cari tahu dulu siapa yang menyalakan jalan di depanmu."
+
+Dia berjalan ke dalam kabut tipis di ujung gang.
+
+Ketika Kael mengejarnya, jalan sudah kosong.
+
+Hanya ada satu bekas telapak tangan di dinding batu.
+
+Retakan ungu menjalar dari bekas itu lalu hilang perlahan.
+
+Kael kembali ke penginapan.
+
+Di lantai bawah, semua penghuni sedang tidur.
+
+Semua kecuali penjaga meja.
+
+Lelaki tua itu duduk tegak dengan mata terbuka dan senyum yang sama seperti penjual roti.
+
+"Segalanya damai di Lyrenith," katanya.
+
+Dari jauh di bawah kota, Kael merasakan sesuatu bergerak.
+
+Besar.
+
+Tua.
+
+Dan untuk satu denyut singkat, Fragmen di dadanya menjawab.

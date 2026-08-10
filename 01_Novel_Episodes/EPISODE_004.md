@@ -1,59 +1,163 @@
 # Episode 004 — Bisikan tanpa Suara
 
-Kael dan Sylvara meninggalkan Zona Fragmented, tetapi tempat yang menyambut mereka tidak terasa lebih aman.
+Mereka keluar dari Zona Fragmented menjelang senja.
 
-Kabut tebal menutupi dataran retak. Menara-menara batu yang bengkok menjulang dari tanah seperti jari tua. Tidak ada suara angin, tidak ada gesekan langkah, bahkan napas mereka terdengar seolah ditelan udara.
+Kael berharap menemukan hutan biasa di seberang retakan. Yang menunggu justru dataran abu-abu yang ditelan kabut.
 
-“Kita sudah keluar dari retakan dimensi,” kata Sylvara. Suaranya terdengar tipis, tanpa gema. “Ini Spires of Silence. Wilayah netral.”
+Tidak ada burung.
 
-Kael menatap kabut di depan mereka. “Kenapa tempat ini terasa mati?”
+Tidak ada serangga.
 
-“Karena suara dilarang di sini.”
+Bahkan langkah mereka hampir tidak berbunyi.
 
-Beberapa sosok humanoid muncul dari kabut. Tubuh mereka kurus dan wajahnya rata tanpa mata maupun mulut. Mereka tidak mendekat, hanya berdiri memandangi Kael dan Sylvara saat keduanya lewat.
+Kael menginjak kerikil dan melihat batu itu bergeser, tetapi telinganya tidak menangkap apa pun.
 
-Sylvara mengangkat tangan, lalu menggambar rune komunikasi sederhana di udara.
+Dia berhenti.
 
-*Penjaga Diam,* tulisnya. *Jangan berbicara kepada mereka. Jangan membuat suara keras.*
+"Sylvara—"
 
-Sosok lain menyusul dari balik kabut. Jubah biru pudar menutupi tubuhnya, sementara wajahnya tersembunyi di balik topeng kain putih. Sebuah lonceng kristal tergantung di tangannya, tetapi benda itu tetap bisu saat dia berjalan.
+Suaranya keluar begitu tipis seolah seseorang menutup mulutnya dengan kain.
 
-Sylvara membentuk rune baru.
+Sylvara langsung menempelkan telunjuk ke bibir. Lalu dia mengangkat tangan dan menggambar sebuah rune kecil di udara.
 
-*Nyrah. Pemimpin mereka.*
+Cahaya pucat membentuk huruf.
 
-Nyrah berhenti di hadapan Kael dan mengangkat tangan. Jarak di antara mereka masih beberapa langkah, tetapi hawa dingin telah menyentuh Fragmen di dada Kael.
+*Jangan bicara.*
 
-Ingatan lama menyambar pikirannya.
+Kael mengerutkan kening.
 
-Dia kembali menjadi anak kecil yang berdiri sendirian di antara para Elf muda.
+Sylvara menulis lagi.
 
-“Kau bukan bagian dari kami.”
+*Spires of Silence.*
 
-“Darahmu kotor.”
+Kabut bergerak.
 
-Kael menekan kepalanya. “Cukup.”
+Beberapa sosok tinggi muncul di antara menara-menara batu bengkok. Tubuh mereka terlalu kurus, kulitnya pucat, dan wajahnya rata tanpa mata maupun mulut.
 
-Ingatan itu terus berputar, semakin tajam.
+Kael otomatis meraih pisau pendek pemberian Sylvara.
 
-“Jangan tunjukkan itu lagi!”
+Salah satu makhluk menoleh ke arahnya meski tidak memiliki mata.
 
-Semua gambaran lenyap.
+Sylvara menahan pergelangan tangannya.
 
-Nyrah menurunkan tangannya. Dia mengeluarkan gulungan kecil yang dipenuhi rune Void terbalik, lalu menyerahkannya kepada Kael.
+*Jangan.*
 
-Sylvara memperhatikan pola energinya. “Dia berkata dunia ini rusak dari dalam.” Tatapannya beralih kepada Kael. “Dan kau berada tepat di tengah kerusakan itu.”
+Mereka berjalan melewati para Penjaga Diam dengan perlahan.
 
-Kael mendongak. Langit gelap menggantung rendah di atas Spires of Silence.
+Kael menunggu Fragmen berbisik seperti biasanya.
 
-Untuk pertama kalinya sejak Fragmen bangkit, tidak ada bisikan di kepalanya. Keheningan di tempat itu terasa kosong, tetapi juga menenangkan.
+Tidak ada apa-apa.
 
-Di luar wilayah sunyi, Rowan berdiri di atas batu bersama sosok berjubah abu-abu. Rune komunikasi menyala di antara mereka.
+Untuk pertama kali sejak Aranyel, kepalanya benar-benar sunyi.
 
-“Pikirannya sedang tenang,” ujar Rowan. “Ini saat yang tepat untuk menanam keraguan.”
+Ketiadaan suara itu seharusnya menenangkan.
 
-Sementara itu, Kael duduk di bawah pohon rune yang meranggas. Dia membiarkan kesunyian menyelimuti luka-luka yang tidak terlihat.
+Sebaliknya, Kael baru menyadari berapa banyak hal yang selama ini ditutupi oleh kebisingan.
 
-Mungkin suara memang bisa melukai.
+Napas ibunya saat tertawa.
 
-Dan untuk sesaat, diam membiarkannya bernapas.
+Bunyi pisau memotong sayuran.
+
+Suara langkah di lorong rumah.
+
+Semuanya muncul dalam ingatan tanpa perlu dipanggil.
+
+Dadanya terasa lebih berat daripada saat Fragmen membakar.
+
+Di tengah dataran berdiri pohon tanpa daun. Di bawahnya menunggu seseorang berjubah biru pudar, wajah tertutup kain putih. Sebuah lonceng kristal tergantung dari tangannya, tetapi tidak mengeluarkan suara ketika bergerak.
+
+Sylvara menulis satu nama.
+
+*Nyrah.*
+
+Kael pernah mendengar nama itu dari cerita para pengembara. Pemimpin Choir of Silence. Orang yang konon dapat mencabut suara dari seseorang tanpa menyentuh tenggorokannya.
+
+Nyrah mengangkat tangan.
+
+Kael menegang.
+
+Dunia di sekelilingnya menghilang.
+
+Dia kembali berdiri di halaman Aranyel bertahun-tahun lalu.
+
+Anak-anak Elf mengelilinginya.
+
+*Kau bukan bagian dari kami.*
+
+*Lihat matanya.*
+
+*Darah campuran.*
+
+Tidak ada suara, namun kata-kata itu muncul langsung sebagai ingatan.
+
+Kael melihat dirinya yang lebih kecil mengepalkan tangan, menahan diri agar tidak menangis sampai tiba di rumah.
+
+Kemudian tangan ibunya menyentuh rambutnya.
+
+*Tidak semua tempat yang menolakmu pantas kau sebut rumah.*
+
+Ingatan lenyap.
+
+Kael kembali berdiri di bawah pohon mati.
+
+Nyrah menurunkan tangannya.
+
+Kael tidak tahu apakah barusan dia diserang, diuji, atau ditolong.
+
+Pemimpin Choir itu mengambil gulungan tipis dari balik jubah dan menyerahkannya.
+
+Rune pada kertas bergerak ketika Kael menyentuhnya.
+
+*Yang tinggal di dalam dirimu tidak hanya membakar.*
+
+Baris berikutnya muncul.
+
+*Ia mendengar dunia pada frekuensi yang tidak dapat kau dengar.*
+
+Kael membaca dua kali.
+
+"Apa maksud—"
+
+Tidak ada suara.
+
+Nyrah mengangkat satu jari ke arah dadanya, kemudian menunjuk tanah.
+
+Kael memejamkan mata.
+
+Di balik sunyi, dia merasakan sesuatu.
+
+Getaran kecil dari menara batu. Aliran energi di bawah tanah. Langkah Sylvara meski tidak berbunyi. Bahkan denyut jauh dari para Penjaga Diam yang berdiri di kabut.
+
+Seluruh tempat itu memiliki irama.
+
+Fragmen di dada Kael meresponsnya.
+
+Bukan dengan panas.
+
+Dengan resonansi.
+
+Kael membuka mata.
+
+Nyrah sudah berjalan pergi.
+
+Sylvara menunggu sampai mereka cukup jauh sebelum menggambar rune.
+
+*Apa yang dia lakukan?*
+
+Kael memandang gulungan di tangannya.
+
+*Entahlah.*
+
+Lalu, setelah ragu, dia menambahkan satu kalimat.
+
+*Tapi untuk pertama kalinya, benda di dalam diriku terasa seperti sesuatu yang bisa dipelajari. Bukan hanya ditakuti.*
+
+Malam itu mereka beristirahat di bawah pohon rune yang mati.
+
+Kael tidak tidur lama.
+
+Bukan karena bisikan.
+
+Justru karena tidak ada bisikan sama sekali.
+
+Dalam keheningan sempurna itu, dia mulai curiga bahwa suara paling berbahaya mungkin memang selalu berasal dari dirinya sendiri.

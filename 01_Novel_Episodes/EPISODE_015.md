@@ -1,75 +1,147 @@
 # Episode 015 — Pemakan Pasir
 
-Jejak sepatu bot membawa mereka semakin dekat ke lokasi jatuhnya bintang ungu.
+Kristal mulai menggantikan pasir ketika mereka mendekati kawah.
 
-Medan berubah perlahan. Pasir halus berganti menjadi hamparan kristal tajam, sementara udara dipenuhi tekanan energi yang membuat dada terasa sesak.
+Awalnya hanya serpihan kecil berwarna ungu. Beberapa kilometer kemudian, seluruh permukaan gurun dipenuhi pilar-pilar tajam setinggi lutut yang memantulkan matahari seperti pecahan kaca.
 
-“Kita sudah dekat dengan pusat kawah,” kata Zireth sambil membaca pemindainya. “Konsentrasi energinya terus naik.”
+Fragmen di dada Kael berdenyut semakin kuat.
 
-Fragmen di dada Kael ikut berdenyut. Irama yang stabil itu terasa seperti tarikan dari sesuatu yang jauh lebih besar di depan mereka.
+"Dekat," katanya.
 
-Tanah berguncang.
+Zireth melihat pemindai. "Sangat dekat. Dan ada masalah besar bergerak dari bawah."
 
-Kael baru sempat mengangkat kepala ketika mulut raksasa muncul dari bawah pasir. Barisan gigi kristal memenuhi rahangnya. Tubuh panjang bersisik obsidian menyusul, menjulang tinggi di bawah cahaya matahari.
+Tanah meledak sebelum dia selesai.
 
-“Demi Zhorak,” Sylvara berbisik. “Sand Worm.”
+Rahang raksasa muncul dari pasir.
 
-“Bukan yang biasa,” sahut Zireth. “Matanya menyala ungu. Energi Fragmen telah mengubahnya.”
+Kael sempat melihat deretan gigi kristal sebelum Sylvara menabrak bahunya dan keduanya berguling menjauh. Mulut itu menghantam tempat mereka berdiri, menelan satu pilar batu utuh.
 
-Makhluk itu meraung dan menukik ke arah mereka.
+Tubuh panjang bersisik obsidian keluar separuh dari tanah.
 
-“Berpencar!”
+"Sand Worm," kata Sylvara, masih terbaring.
 
-Ketiganya melompat ke arah berbeda. Mulut Sand Worm menghantam tanah tempat mereka berdiri dan melemparkan gelombang pasir ke udara.
+Zireth menatap mata makhluk yang menyala ungu.
 
-Kael membalas dengan semburan api merah dan biru. Nyala itu menyapu sisi tubuh makhluk, tetapi sisik kristalnya tidak meninggalkan bekas.
+"Yang sudah terlalu lama menyerap residu Fragmen."
 
-“Api tidak mempan.”
+Makhluk itu menyelam kembali.
 
-Sand Worm berputar dan menyerang lagi. Sylvara menunggu hingga mulutnya terbuka, lalu menembakkan panah rune ke dalam rahang.
+"Bagaimana kita tahu ia akan muncul di mana?" tanya Kael.
 
-Ledakan membuat makhluk itu tersentak dan mundur, tetapi hanya sesaat.
+"Getaran."
 
-“Tubuhnya terlalu tebal,” ujar Sylvara.
+Kael mendengar kata itu dan memahami apa yang harus dilakukan.
 
-Zireth mengarahkan sensor ke seluruh permukaan makhluk. “Lapisan luar diperkuat energi Fragmen. Titik lemahnya kemungkinan berada di bawah perut atau di dalam mulut.”
+Dia berlutut, telapak tangan menyentuh tanah.
 
-Sand Worm kembali menukik, kali ini langsung menuju Kael.
+Di bawah suara angin ada ritme lain—gesekan tubuh panjang melalui pasir, tekanan yang bergerak seperti gelombang.
 
-Sebuah rencana nekat muncul di kepalanya.
+"Kanan!"
 
-Jika serangan dari luar tidak mampu menembus sisik, dia harus menyerang dari dalam.
+Mereka melompat.
 
-“Kael, jangan!” teriak Sylvara ketika melihatnya berhenti menghindar.
+Sand Worm menyembur keluar.
 
-Kael mengumpulkan api dan es di kedua tangan. Tepat sebelum rahang makhluk itu menutup, dia melompat masuk ke dalam mulutnya.
+Sylvara menembakkan panah langsung ke mulut. Ledakan terjadi di antara gigi, membuat makhluk itu menjerit, tetapi sisik luar tetap hampir tidak terluka.
 
-Kegelapan dan panas busuk menelannya.
+Zireth memindai tubuhnya saat lewat.
 
-Kael melepaskan seluruh energi yang telah dikumpulkan. Api, es, dan percikan Void dari lengan kirinya bertabrakan di dalam tubuh Sand Worm.
+"Lapisan luar terlalu padat. Resonansi kristalnya menyebarkan serangan."
 
-Ledakan teredam mengguncang gurun.
+"Kalau begitu jangan serang lapisan luar."
 
-Makhluk itu menggeliat liar. Sisiknya mengembung dari dalam sebelum tubuh raksasanya pecah, menyemburkan pasir, kristal, dan cairan ungu ke segala arah.
+Kael memandang mulut yang kembali terbuka.
 
-Kael terlempar keluar dan berguling beberapa meter. Tubuhnya tertutup debu dan lendir, tetapi dia masih bernapas.
+Sylvara mengikuti tatapannya.
 
-Sylvara dan Zireth berlari menghampiri.
+"Jangan."
 
-“Kau gila?” Sylvara menariknya berdiri.
+"Aku belum bilang apa-apa."
 
-Kael menyeringai lemah. “Tapi berhasil.”
+"Wajahmu sudah bilang. Jangan."
 
-Di balik sisa tubuh Sand Worm, jalan menuju kawah telah terbuka. Cahaya ungu berdenyut dari dasar cekungan besar di depan mereka.
+Sand Worm menukik lagi.
 
-“Fragmen kelima,” gumam Kael.
+Kael berlari ke arahnya.
 
-Zireth mendadak berjongkok di dekat tanah.
+"Kael!"
 
-“Jejak sepatu bot itu muncul lagi.”
+Dia tidak melompat masuk sepenuhnya. Pada detik terakhir, Kael menancapkan Zerath's Fang di sela dua gigi kristal dan menahan tubuhnya di tepi rahang.
 
-Bekas langkah yang sama mengarah turun ke kawah.
+Bau busuk dan panas dari dalam tenggorokan menghantam wajah.
 
-“Pemiliknya sudah sampai lebih dulu.”
+Makhluk itu mencoba menutup mulut.
 
-Ketiganya memandang cahaya di bawah sana. Fragmen bukan satu-satunya hal yang menunggu mereka di dasar kawah.
+Kael mengirim pulsa resonansi melalui bilah.
+
+Sekali.
+
+Tenggorokan makhluk bergetar.
+
+Dua kali.
+
+Dia mencari frekuensi alami jaringan lunak di balik lapisan kristal.
+
+Zireth memahami dari jauh.
+
+"Kael! Tiga puluh dua hertz di sisi dalam!"
+
+Kael menyesuaikan denyut.
+
+Sand Worm menggeliat.
+
+Lalu Kael menambahkan perubahan suhu ekstrem: panas merah dari tangan kanan, dingin biru dari kiri, keduanya diarahkan ke titik resonansi yang sama.
+
+Jaringan bagian dalam retak sebelum sisik luarnya sempat menyebarkan energi.
+
+Makhluk itu melempar kepala.
+
+Kael tercabut dari rahang dan terlempar ke udara.
+
+Sylvara menembakkan panah rune ke tanah di bawahnya. Ledakan kecil mengubah arah jatuh Kael cukup jauh dari tubuh Sand Worm yang ambruk.
+
+Dia menghantam pasir dan berguling berkali-kali.
+
+Dunia berhenti berputar beberapa detik kemudian.
+
+Sylvara berdiri di atasnya.
+
+"Aku sudah bilang jangan."
+
+Kael meludah pasir.
+
+"Secara teknis aku tidak masuk."
+
+"Aku akan memukulmu."
+
+"Boleh setelah aku bisa berdiri."
+
+Zireth datang sambil memeriksa data.
+
+"Metodenya bodoh. Hasilnya bagus. Aku benci ketika dua hal itu muncul bersamaan."
+
+Kael tertawa pendek lalu meringis karena rusuknya sakit.
+
+Di balik tubuh Sand Worm, kawah akhirnya terlihat.
+
+Sebuah cekungan besar berkilau ungu di bawah matahari. Di pusatnya, cahaya stabil berdenyut seperti jantung.
+
+Fragmen kelima.
+
+Sylvara hendak berjalan turun ketika Zireth berhenti.
+
+"Tunggu."
+
+Dia menunjuk tanah.
+
+Jejak sepatu bot yang sama muncul lagi di antara kristal.
+
+Turun ke kawah.
+
+Kael berdiri meski seluruh tubuhnya menolak.
+
+Seseorang telah sampai lebih dulu.
+
+Dan untuk pertama kalinya sejak menemukan jejak itu, Kael mulai merasa orang tersebut mungkin tidak sedang mencari Fragmen.
+
+Mungkin yang sedang diikuti sejak awal adalah mereka.

@@ -1,69 +1,197 @@
-# Episode 008 — Pecahnya Darah & Batu
+# Episode 008 — Pecahnya Darah dan Batu
 
-Aula duel Akademi Vorth Aereth dibangun dari batu rune tua yang memancarkan cahaya merah redup. Para murid memenuhi tribun gelap, menunggu pertarungan dengan antusias yang membuat Kael tidak nyaman.
+Dua hari setelah alarm Fragmen ketiga berbunyi, Melkisha memasukkan Kael ke arena duel.
 
-“Duel ini bukan untuk mencari pemenang,” ujar Guru Arena yang mengenakan topeng. “Kami ingin melihat siapa yang mampu memanggil dan mengendalikan kekuatan Fragmen ketiga.”
+Kael menyebutnya keputusan gila.
 
-Dari balkon pribadinya, Melkisha menambahkan, “Dan siapa yang akan mati lebih dulu saat mencoba.”
+Melkisha menyebutnya pengukuran.
 
-Kael berdiri di tengah arena. Lawannya adalah murid tingkat atas dengan serpihan-serpihan Fragmen gelap yang ditanam paksa di bawah kulit. Mata pria itu memutih, dipenuhi retakan energi liar.
+"Aku masih belum bisa mengendalikan yang ada di tubuhku."
 
-“Jangan memakai kekuatanmu terlalu cepat,” seru Sylvara dari pinggir arena. “Ini pasti jebakan.”
+"Itulah yang hendak kita ukur."
 
-Isyarat duel diberikan.
+"Seberapa cepat aku membunuh seseorang?"
 
-Lawan Kael melesat maju. Petir hitam meledak di bawah kakinya, mendorong tubuhnya dengan kecepatan yang nyaris tak terlihat.
+"Seberapa cepat kau berhenti sebelum itu terjadi."
 
-Kael menghindar tipis. Cakar energi menyapu wajahnya dan menghantam lantai, meninggalkan retakan panjang pada rune arena.
+Jawaban itu mengikuti Kael sampai ke tengah arena.
 
-Serangan berikutnya datang tanpa jeda. Kael menangkis, tetapi setiap benturan membuat Fragmen di dadanya bergetar semakin keras.
+Tribun batu dipenuhi murid. Tidak ada sorakan besar seperti pertandingan biasa. Mereka semua sudah mendengar apa yang terjadi di kelas resonansi.
 
-*Balas. Hancurkan dia. Tunjukkan siapa dirimu.*
+Lawan Kael bernama Darek, murid tingkat atas yang tubuhnya dipasangi serpihan Fragmen buatan. Empat kristal hitam menonjol dari bawah kulit bahunya. Urat di lehernya memancarkan cahaya gelap.
 
-Kael melepaskan spiral api dua warna. Serangan itu menghantam tubuh lawannya dan membakar separuh dadanya.
+"Jangan lihat aku seperti itu," katanya.
 
-Pria itu justru tertawa.
+"Seperti apa?"
 
-Daging yang hangus tumbuh kembali, disatukan oleh aliran sihir darah yang menggeliat di bawah kulit.
+"Seperti aku korban."
 
-“Kau terlalu lembek, darah campuran,” ejeknya. “Aku bisa mencium darah naga di tubuhmu. Ia ingin keluar.”
+Darek menyeringai.
 
-Di balkon, Melkisha melirik Rowan yang berdiri di sampingnya.
+"Aku memilih ini."
 
-“Fragmennya belum stabil. Jika dia meledak di sini—”
+Zireth berdiri di pinggir arena. Sylvara berada beberapa langkah darinya dengan tangan bersilang.
 
-“Kita akan mengetahui batas kehancurannya,” potong Rowan tenang.
+"Jangan kejar kemenangan," kata Zireth. "Kendalikan output."
 
-Di arena, Kael mulai terdesak. Lengan kirinya terasa terbakar, tetapi nyala yang muncul bukan api merah biasa. Warna hitam pekat merambat dari telapak tangannya, diikuti retakan halus yang naik menuju bahu.
+"Kalau dia mencoba membunuhku?"
 
-“Kael, berhenti!” teriak Sylvara. “Fragmen itu akan merobek jiwamu.”
+"Kendalikan output sambil tidak mati."
 
-Kael bangkit dengan tubuh penuh luka. Kedua matanya telah berubah merah. Energi Fragmen liar menyusup ke lengan kirinya tanpa meminta izin.
+Tanda mulai menyala.
 
-“Aku...” Suaranya terdengar berlapis, seolah orang lain berbicara bersamanya. “Bukan lagi Kael yang kalian kenal.”
+Darek menghilang dari pandangan.
 
-Api hitam meledak dari tubuhnya.
+Kael merasakan getaran di lantai sepersekian detik sebelum serangan datang dari kanan. Dia memutar tubuh. Cakar energi hitam melewati pipinya dan menggores batu.
 
-Gelombang panas menyapu arena. Murid-murid di tribun membangun perisai darurat, sementara Guru Arena berlindung di balik pilar rune.
+Darek berputar, menyapu kaki.
 
-Lawan Kael hilang di dalam kobaran. Ketika api mereda, hanya bayangan hangus berbentuk manusia yang tersisa di lantai.
+Kael jatuh.
 
-“Hentikan duel!” Guru Arena berteriak. “Dia sudah kehilangan kendali.”
+Serangan ketiga datang ke dada.
 
-Kael jatuh terduduk. Warna matanya perlahan kembali merah dan biru. Dia memandangi lengan kirinya yang menghitam.
+Dia menangkis dengan Zerath's Fang.
 
-Tidak ada rasa sakit.
+Bilah hitam bergetar keras ketika bersentuhan dengan kristal di tangan Darek.
 
-“Aku membunuhnya?” suaranya nyaris tak terdengar.
+Resonansi.
 
-Sylvara berlari masuk dan memeluknya dari belakang.
+Kael mendengarnya.
 
-“Cukup, Kael. Kumohon. Kau belum terlambat untuk berhenti.”
+Darek tertawa. "Itu saja?"
 
-Dari balkon, Rowan mencatat pola resonansi energi Kael. Di akhir catatannya, dia menggambar simbol Void kuno.
+Petir hitam meledak di bawah kakinya.
 
-“Selamat datang di wilayah antara kekuatan dan kehancuran,” gumamnya.
+Kael terlempar, berguling sampai dekat batas arena. Sorakan baru terdengar dari tribun, lebih gugup daripada gembira.
 
-Malamnya, Kael duduk sendirian di atap akademi. Bintang-bintang merah memenuhi langit hitam.
+Dia bangkit sambil menahan nyeri di rusuk.
 
-Jika kekuatan itu terus menghancurkannya, mengapa setiap kehilangan justru membuat dirinya terasa semakin utuh?
+*Jangan kejar kemenangan.*
+
+Kael mengatur napas.
+
+Darek menyerang lagi.
+
+Kali ini Kael tidak melihat tubuhnya. Dia mendengarkan getaran batu.
+
+Kanan.
+
+Bawah.
+
+Putar.
+
+Zerath's Fang memotong salah satu serpihan kristal pada bahu Darek.
+
+Pria itu menjerit.
+
+Energi hitam menyembur dari luka.
+
+"Kau—"
+
+Wajah Darek berubah.
+
+Bukan marah.
+
+Panik.
+
+Kristal lain di tubuhnya menyala bersamaan.
+
+"Hentikan duel!" teriak salah satu guru.
+
+Darek tidak mendengar.
+
+Tubuhnya melesat ke arah Kael dengan kecepatan yang jauh lebih tinggi.
+
+Kael mengangkat pedang.
+
+Terlambat.
+
+Cakar hitam menembus bahunya.
+
+Rasa sakit memutihkan pandangan.
+
+Sesuatu di dalam Kael lepas.
+
+Api merah membanjiri arena.
+
+Lalu muncul warna lain.
+
+Hitam.
+
+Nyala gelap merambat dari lengan kirinya, menelan api merah tanpa memadamkannya. Kael masih bisa mendengar teriakan Zireth dan Sylvara, tetapi suara mereka seperti datang dari dasar air.
+
+Di depannya Darek berubah menjadi sumber ancaman sederhana.
+
+Sesuatu yang harus dihentikan.
+
+Kael mengangkat tangan kiri.
+
+Resonansi meledak.
+
+Tidak ada suara besar.
+
+Hanya satu gelombang pendek.
+
+Darek berhenti.
+
+Kristal-kristal di tubuhnya retak dari dalam.
+
+Kemudian tubuhnya terlempar dan menghantam dinding arena.
+
+Kael baru sadar kembali ketika Zireth mencengkeram tengkuknya dari belakang dan menekan alat peredam ke lengan kiri.
+
+"Cukup!"
+
+Api padam.
+
+Arena sunyi.
+
+Kael memandang dinding.
+
+Darek terbaring di bawah retakan batu. Tidak bergerak.
+
+Seorang penyembuh berlari ke sana, berlutut, lalu berhenti.
+
+Diamnya memberi jawaban sebelum siapa pun berbicara.
+
+Kael tidak bisa mengalihkan mata.
+
+"Aku membunuhnya."
+
+Sylvara berdiri di depannya.
+
+"Kael."
+
+"Aku membunuhnya."
+
+Kali ini tidak ada ilusi. Tidak ada monster memakai wajah ibunya. Tidak ada cermin.
+
+Darek nyata.
+
+Tubuhnya nyata.
+
+Dan Kael mengingat setiap detik.
+
+Melkisha turun dari balkon tanpa senyum.
+
+Kael menatapnya.
+
+"Inikah yang ingin Anda ukur?"
+
+Perempuan tua itu berhenti beberapa langkah darinya.
+
+"Tidak."
+
+"Tapi Anda tahu ini bisa terjadi."
+
+"Ya."
+
+Jawaban itu menyakitkan karena tidak dibungkus alasan.
+
+Kael memandang tangan kirinya. Retakan hitam kini naik sampai mendekati siku.
+
+Untuk pertama kali sejak meninggalkan Aranyel, dia tidak bertanya apakah kekuatan itu akan menghancurkannya.
+
+Pertanyaannya berubah.
+
+Berapa banyak orang lain yang akan ikut hancur sebelum dia belajar mengendalikannya?

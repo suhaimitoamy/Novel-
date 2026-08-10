@@ -1,61 +1,115 @@
 # Episode 046 — Gema Nyanyian Kehampaan
 
-Kael berdiri di tengah badai dengan kedua tangan terulur. Energi merah dan biru mengalir menuju Nyanyian Kehampaan serta Gerbang Es di belakangnya.
+Kael membuka aliran pada lengan kiri.
 
-“Kael, ia akan menyerangmu!” teriak Sylvara.
+Rasa sakit datang seketika.
 
-“Aku mencoba menenangkan sumbernya.” Kael tidak membuka mata. “Gerbangnya terlalu kacau.”
+Gelang peredam retak.
 
-Anehnya, makhluk raksasa itu berhenti. Kekosongan pada wajahnya mengarah kepada Kael, seolah sedang mendengarkan energi yang tidak datang sebagai ancaman.
+Energi ungu keluar dari garis hitam di kulit dan masuk ke resonansi merah-biru yang menghubungkannya dengan Gerbang Es.
 
-Namun retakan Gerbang Es terus memancarkan Void.
+Seluruh tubuh Kael menegang.
 
-Dari dalam celah muncul sebuah nyanyian.
+Nada dari balik gerbang berubah.
 
-Nada tinggi dan sumbang memenuhi puncak tanpa irama yang dapat dipahami. Suaranya tidak hanya menyakiti telinga. Ia menembus pikiran dan menyentuh luka terdalam dalam jiwa.
+Bukan lebih keras.
 
-Zireth menutup telinga. “Kepalaku seperti akan pecah.”
+Lebih dekat.
 
-Sylvara jatuh berlutut. Busurnya terlepas dari tangan.
+Suara-suara muncul di kepalanya tanpa bentuk kata.
 
-“Dingin... dan putus asa.”
+Kelelahan.
 
-Prajurit-prajurit Dwarf yang pingsan mulai kejang di atas salju.
+Kehilangan.
 
-Kael juga merasakan gelombang keputusasaan. Suara itu membawa kehampaan yang membuat setiap perjuangan terasa tidak berarti.
+Perasaan bahwa semua usaha pada akhirnya akan berakhir sama: mati, runtuh, terlupakan.
 
-“Inilah Nyanyian Kehampaan yang dimaksud buku itu.”
+Lutut Kael hampir menyerah.
 
-Makhluk Gerbang Es ikut tersiksa. Tubuh hitamnya bergetar, dan inti ungu berkedip tanpa pola.
+Di belakang, Sylvara menjatuhkan busurnya dan menutup telinga.
 
-*Diam. Sakit. Pergi.*
+"Apa itu...?"
 
-Rowan berdiri paling jauh dari gerbang. Aura Void melindunginya sebagian, tetapi wajahnya tetap pucat.
+Zireth bersandar pada batu. Bahkan lengan mekanisnya bergetar tanpa kendali.
 
-“Jadi ini kekuatan yang disegel leluhur.” Tatapannya dipenuhi ketertarikan. “Pantas Arsitek menginginkan gemanya.”
+"Bukan suara. Pola saraf. Ia memaksa otak menerjemahkan frekuensi menjadi emosi."
 
-Di tengah rasa sakit, Kael menyadari Fragmen di dadanya bereaksi berbeda.
+Kael tidak sempat mengagumi penjelasannya.
 
-Ia tidak hanya menahan nyanyian. Denyutnya mencoba menjawab nada-nada sumbang tersebut.
+Nyanyian masuk lebih dalam.
 
-Kael mengubah aliran energi.
+Aranyel tidak muncul sebagai gambar.
 
-Alih-alih sekadar menenangkan gerbang, dia membentuk resonansi balasan. Rasa sakit, tekad, dan harapan yang masih tersisa dimasukkan ke dalam setiap denyut merah-biru.
+Kael hanya merasakan kepastian bahwa dia terlambat menyelamatkan siapa pun.
 
-Pola cahaya terbentuk di udara.
+Darek.
 
-Resonansi Kael bertemu dengan Nyanyian Kehampaan dan menciptakan harmoni yang ganjil. Kedua frekuensi saling menarik serta mendorong, mengguncang es di seluruh puncak.
+Ibunya.
 
-Nyanyian dari gerbang goyah untuk pertama kalinya.
+Semua orang yang belum mati tetapi mungkin akan mati karena tetap berjalan di sisinya.
 
-Makhluk raksasa meraung di antara dua gelombang yang beradu.
+Untuk sesaat, melepaskan resonansi terasa masuk akal.
 
-Rowan memandang Kael dengan takjub sekaligus cemas.
+Biarkan gerbang terbuka.
 
-“Dia mencoba menyelaraskan jiwanya dengan kehampaan.”
+Biarkan semuanya selesai.
 
-Cahaya ungu menyusup ke antara api merah dan biru di tubuh Kael. Retakan pada Gerbang Es mulai berdenyut mengikuti iramanya.
+Fragmen merah di dadanya berdenyut.
 
-Jika Kael kehilangan kendali, harmoni itu tidak akan menutup gerbang.
+Lalu yang biru.
 
-Ia akan menghancurkan jiwanya terlebih dahulu.
+Dua nada kecil yang tidak setuju.
+
+Kael memusatkan diri pada perbedaan itu.
+
+Panas dan dingin tidak saling menghapus. Keduanya bisa tinggal dalam tubuh yang sama tanpa menjadi satu.
+
+Dia tidak perlu mengalahkan Nyanyian.
+
+Hanya perlu menolak mengikuti iramanya.
+
+Kael mengirim pola balasan.
+
+Bukan emosi suci atau harapan besar.
+
+Sekadar hal-hal konkret yang masih ada.
+
+Tangan Sylvara yang menariknya dari jalur serangan.
+
+Keluhan Zireth setiap kali Kael mengambil keputusan bodoh.
+
+Rasa sup panas di Kragmar.
+
+Hal-hal kecil yang membuat dunia tidak terasa kosong.
+
+Resonansi berubah.
+
+Nyanyian goyah.
+
+Makhluk raksasa memegang kepalanya meski tidak memiliki wajah.
+
+*Berisik.*
+
+Kata itu muncul lemah.
+
+Kael hampir tertawa.
+
+"Bagus."
+
+Gerbang mulai berdenyut mengikuti pola barunya.
+
+Namun cahaya ungu dari lengan Kael menjalar lebih jauh ke bahu.
+
+Zireth melihatnya.
+
+"Kael, tubuhmu mulai mengunci pola Void itu. Kalau diteruskan, mungkin tidak bisa dikeluarkan lagi."
+
+Kael memandang retakan gerbang yang mulai mengecil.
+
+"Kalau berhenti?"
+
+"Ia terbuka lagi."
+
+Tidak ada pilihan yang perlu dibahas.
+
+Kael mempertahankan resonansi.

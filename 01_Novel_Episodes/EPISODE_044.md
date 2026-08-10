@@ -1,59 +1,81 @@
 # Episode 044 — Aliansi Retak
 
-Kael membakar jalan di antara pasukan es yang memenuhi dataran tinggi.
+Rowan menahan makhluk dengan rantai Void.
 
-“Sekarang, Rowan.”
+Kael berlari di sepanjang jalur es yang dibuka Sylvara.
 
-Rowan mengangkat tongkat obsidian dan mengucapkan mantra dalam bahasa Void.
+Inti ungu terlihat di balik lapisan dada yang sudah retak.
 
-“Umbral Shackles.”
+Sepuluh meter.
 
-Rantai bayangan melesat dari tanah. Ikatan itu membelit lengan dan kaki Nyanyian Kehampaan, menahan tubuh raksasanya cukup lama untuk membuka jalur menuju dada.
+Lima.
 
-Makhluk tersebut meronta.
+Kael mengangkat Zerath's Fang.
 
-*Lepas. Gelap. Sakit.*
+Rantai Rowan hilang.
 
-Kael menerobos badai menuju inti ungu. Dingin mengiris kulit dan menguras tenaga, tetapi dia terus maju.
+Tidak putus.
 
-Di belakangnya, Sylvara dan Zireth mulai terdesak oleh serigala serta laba-laba es.
+Hilang.
 
-“Panahku tinggal sedikit,” teriak Sylvara setelah menjatuhkan seekor laba-laba.
+Makhluk itu bebas.
 
-Lengan mekanis Zireth retak di beberapa bagian. “Perisai sonik hampir kehilangan daya.”
+Cakar menyapu dari kanan.
 
-Kael mencapai jarak serang.
+Kael mengubah tebasan menjadi pertahanan. Benturan melemparkannya melintasi salju.
 
-Api merah dan biru dipadatkan pada Zerath's Fang, membentuk bola energi yang bergolak di sepanjang bilah.
+Dia mendarat keras dan kehilangan napas.
 
-“Kali ini harus tepat.”
+"Rowan!"
 
-Dia mengayunkan pedang menuju inti.
+Pria berambut putih berdiri jauh dari jangkauan makhluk.
 
-Pada saat terakhir, rantai bayangan menghilang.
+"Intinya sudah cukup terbuka."
 
-Nyanyian Kehampaan kembali bebas dan memutar tubuhnya. Serangan Kael meleset dari dada, menghantam bahu makhluk itu dalam ledakan besar.
+Kael bangkit dengan rasa darah di mulut.
 
-Tubuh raksasa tersebut terdorong mundur, tetapi inti ungunya tetap utuh.
+"Untuk apa?"
 
-Kael mendarat dan menatap Rowan. “Apa yang kau lakukan?”
+Rowan mengangkat tongkat.
 
-Rowan berdiri jauh dari jangkauan makhluk dengan senyum tipis.
+Sulur tipis keluar menuju retakan dada makhluk, bukan untuk menahan, tetapi menyerap.
 
-“Aku hanya membutuhkan tubuhnya melemah. Bukan hancur.”
+Energi ungu mengalir ke tongkatnya.
 
-Dia memandang inti ungu yang kini berdenyut lebih terang.
+"Arsitek tidak membutuhkan tubuh ini. Hanya gema murninya."
 
-“Energi Void murni di sana masih berguna bagi Sang Arsitek.”
+Kael merasakan amarah yang sangat bersih.
 
-Amarah Kael meledak. “Pengkhianat!”
+Tidak mengejutkan.
 
-Nyanyian Kehampaan mengabaikan Rowan. Seluruh kekuatannya kini tertuju kepada Kael, sosok yang paling berhasil melukainya.
+Justru itulah yang membuatnya lebih buruk.
 
-Cakar es hitam terangkat.
+Dia sudah tahu Rowan akan memilih tujuan sendiri pada akhirnya.
 
-Sylvara dan Zireth masih terjebak menghadapi pasukan kecil. Kael berdiri sendirian tepat di depan makhluk raksasa yang telah dibuat semakin marah oleh serangan gagal tersebut.
+"Kau membiarkannya tetap hidup."
 
-Aliansi mereka tidak pernah benar-benar ada.
+"Aku membiarkannya cukup hidup."
 
-Rowan sejak awal hanya menunggu kesempatan untuk memakai Kael sebagai senjata.
+Nyanyian Kehampaan mengarahkan seluruh perhatiannya kepada Kael—sosok yang paling sering merusak tubuhnya.
+
+Rowan tetap menyerap energi dari samping.
+
+Kael sendirian di jalur serangan.
+
+Sylvara dan Zireth masih terjebak oleh makhluk kecil.
+
+Cakar raksasa terangkat.
+
+Kael tidak punya kekuatan cukup untuk menahan langsung.
+
+Dia melihat Gerbang Es di belakang makhluk.
+
+Garis energi masih menghubungkan keduanya.
+
+Selama sambungan itu ada, Rowan bisa terus memanen energi dan makhluk bisa terus membentuk diri.
+
+Kael berhenti memikirkan cara membunuhnya.
+
+Pertanyaan yang benar akhirnya muncul.
+
+Bagaimana menutup sirkuitnya?

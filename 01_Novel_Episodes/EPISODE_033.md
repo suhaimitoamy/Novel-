@@ -1,67 +1,101 @@
 # Episode 033 — Jejak yang Membeku
 
-Dua serigala es hitam melangkah keluar dari kegelapan gua. Mata merahnya menyala, sementara cakar obsidian menggores lantai.
+Pertarungan di gua berlangsung singkat dan brutal.
 
-“Serigala Void,” kata Borin sambil mengangkat kapak. “Mereka tidak pernah berani mendekati wilayah rune Karag Thürm.”
+Borin menahan serigala pertama dengan gagang kapak. Dagna memukul sisi kepalanya sampai es hitam pecah. Sylvara menembak dari belakang, sementara Zireth mengirim gangguan sonik ke inti ungu di dada makhluk.
 
-“Berarti sesuatu menarik atau mengubah mereka,” ujar Zireth. Tatapannya sempat beralih kepada Kael.
+Kael fokus pada irama yang menyatukan ketiganya.
 
-Kael mengabaikannya. Api merah dan biru menyala di kedua tangan.
+Sama seperti Echo Vessel di oasis.
 
-“Kita selesaikan cepat.”
+Tujuh detik.
 
-Serigala pertama menerjang.
+Denyut kecil.
 
-Borin dan Dagna menahan serangan di garis depan. Kapak dan palu mereka membentur cakar hitam, memenuhi gua dengan suara logam dan pecahan es.
+Tujuh detik.
 
-Sylvara menembakkan panah dari belakang. “Lapisan esnya keras. Bidik inti Void di dalam tubuh.”
+Perintah berikutnya.
 
-Zireth melepaskan gelombang sonik. Salah satu serigala kehilangan keseimbangan dan terpental ke dinding.
+"Mereka memakai jaringan yang sama!"
 
-Kael mengambil celah itu.
+Zireth langsung memahami.
 
-Zerath's Fang menyala ketika dia melesat maju. Satu tebasan memutus leher makhluk tersebut.
+"Aku buka kanalnya."
 
-Serigala itu melolong sebelum tubuhnya hancur menjadi debu es hitam.
+Pulsa sonik ditembakkan tepat saat denyut berikutnya datang.
 
-Makhluk kedua mundur. Ia melolong dengan nada panjang yang tidak wajar, lalu berbalik dan berlari ke dalam gua.
+Kael mengirim resonansi balasan.
 
-Borin hendak mengejar.
+Ketiga serigala tersentak bersamaan.
 
-“Jangan,” kata Kael. “Kita tidak tahu apa yang menunggu di sana.”
+Dagna memanfaatkan jeda untuk menghancurkan inti pertama. Sylvara menembus inti kedua. Kael menebas yang terakhir ketika jaringan kendalinya mati.
 
-Setelah keadaan tenang, mereka memeriksa tempat kedua serigala muncul.
+Tubuh mereka runtuh menjadi es hitam.
 
-Sylvara menunjuk lantai dekat dinding. “Ada jejak.”
+Tidak ada yang bersorak.
 
-Bekas sepatu bot tercetak pada lapisan es tipis. Polanya sama dengan jejak di Gurun Bisikan.
+Zireth berjongkok dekat debu kristal.
 
-“Pemiliknya melewati gua ini,” kata Kael. “Mungkin bertemu serigala-serigala itu.”
+"Frekuensinya identik dengan salinan di gurun."
 
-Zireth berjongkok dan memindai jejak tersebut. “Atau dia membawa mereka.”
+Kael memandang simbol spiral di dinding.
 
-Dia membandingkan sisa debu makhluk dengan residu pada bekas langkah.
+"Berarti jaringan itu sampai ke sini."
 
-“Frekuensi Void-nya mirip.”
+Sylvara menunjuk lantai lebih dalam.
 
-Dagna menggenggam palunya lebih erat. “Orang itu dapat mengendalikan makhluk Void?”
+"Dan bukan hanya jaringan."
 
-“Mungkin. Atau dia bekerja untuk seseorang yang bisa.”
+Jejak sepatu bot tercetak di lapisan es.
 
-Rowan langsung muncul dalam pikiran Kael. Fragmen rusak miliknya mungkin berhubungan dengan energi yang menyebar di wilayah utara.
+Polanya sama seperti di gurun: jarak antarlangkah hampir sempurna.
 
-“Kita harus kembali ke Kragmar,” kata Borin. “Kapten Garn perlu mengetahui ini.”
+Borin menatap Kael. "Kau mengenal pemiliknya?"
 
-“Tidak.” Kael menatap jejak yang menuju kedalaman gua. “Misi kita ke Puncak Beku. Siapa pun pemilik jejak itu bergerak ke arah yang sama.”
+"Bukan pemilik. Salinan."
 
-“Kita bahkan tidak tahu siapa dia,” ujar Sylvara.
+Dia menjelaskan seperlunya tentang tubuh tiruan di oasis.
 
-“Semua jalan di sini berbahaya. Jika dia berhubungan dengan Gerbang Es dan Rowan, kita harus menemukannya.”
+Dagna menatap jejak dengan jijik.
 
-Borin dan Dagna saling memandang.
+"Jadi benda itu bisa membuat tubuh baru di mana saja?"
 
-“Perintah kami hanya sampai kaki gunung,” kata Borin akhirnya. “Kami akan mengantar sampai ujung gua. Setelah itu, semoga Forge God menjaga kalian.”
+"Kalau punya bahan dan jalur kontrol," kata Zireth. "Mungkin."
 
-Mereka melanjutkan perjalanan mengikuti jejak sepatu bot.
+Jejak menuju sisi lain gua.
 
-Semakin dalam mereka masuk, semakin banyak simbol asing memenuhi dinding.
+Mereka mengikutinya sampai menemukan pintu keluar yang menghadap lereng lebih tinggi.
+
+Borin berhenti.
+
+"Perintah kami sampai sini."
+
+Kael melihat jalur di depan. Badai sudah mereda, tetapi langit masih gelap.
+
+Dagna menyerahkan satu batu pemanas kepada Sylvara.
+
+"Kalau badai kembali, jangan cari pohon. Tidak ada pohon."
+
+"Nasihat berguna."
+
+Borin memberi Kael sebuah suar rune kecil.
+
+"Kalau menemukan sesuatu dan masih punya kesempatan lari, aktifkan. Kragmar mungkin melihat."
+
+Kael menerimanya.
+
+"Terima kasih."
+
+Kedua Dwarf berbalik menuju jalur turun.
+
+Kael, Sylvara, dan Zireth melanjutkan naik.
+
+Sekitar satu jam kemudian, Kael menoleh ke belakang.
+
+Badai tipis mulai menutup jalur yang dilewati Borin dan Dagna.
+
+Dia tidak melihat sesuatu mengikuti mereka.
+
+Namun lengan kirinya berdenyut sekali.
+
+Tujuh detik kemudian, berdenyut lagi.

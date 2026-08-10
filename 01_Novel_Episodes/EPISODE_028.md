@@ -1,81 +1,91 @@
 # Episode 028 — Tarian Api di atas Es
 
-Elemental Es meraung di tengah jalur pegunungan.
+Pilar es mengejar langkah Kael.
 
-“Membeku.”
+Dia tidak mencoba menghancurkannya satu per satu. Setiap kali satu patah, es baru tumbuh dari tanah.
 
-Cakarnya menghantam tanah. Retakan menyebar di bawah kaki Kael, lalu pilar-pilar es menyembur dari permukaan.
+"Intinya," teriak Zireth. "Cari inti!"
 
-Zireth menarik Kael dan Sylvara menjauh sesaat sebelum ujung-ujung tajam itu menembus tempat mereka berdiri.
+Sylvara menembakkan panah api ke bahu Elemental. Lapisan luar mencair, lalu membeku kembali dalam hitungan detik.
 
-“Seluruh es di sekitar kita berada di bawah kendalinya,” katanya.
+Kael menghindari sapuan cakar dan mendengar getaran tubuh makhluk saat mendarat.
 
-Sylvara melepaskan panah api. Ledakan mengenai bahu Elemental dan melelehkan lapisan luarnya, tetapi es baru segera tumbuh menutup luka.
+Berbeda dari golem gurun.
 
-“Regenerasinya terlalu cepat.”
+Struktur Elemental berubah setiap kali rusak. Tidak ada satu frekuensi tetap.
 
-Kael menyalakan kedua tangannya. Api merah membara di kanan, sementara nyala biru dingin berputar di kiri.
+"Ia menyesuaikan diri."
 
-“Kita hancurkan intinya.”
+"Maka jangan beri waktu," jawab Sylvara.
 
-Dia melesat maju.
+Kael memanggil panas merah di tangan kanan dan dingin biru di kiri.
 
-Api merah melelehkan permukaan tubuh makhluk. Nyala biru mendinginkan bagian yang baru terbuka hingga rapuh, lalu Kael menghantamnya dengan Zerath's Fang.
+Dia menyerang sisi yang sama dua kali dengan kondisi berlawanan: melelehkan lapisan es, lalu membekukannya jauh lebih cepat dari regenerasi alami.
 
-Retakan muncul, tetapi Elemental mengayunkan lengannya dan menghantam Kael ke dinding es.
+Es menjadi rapuh.
 
-Tubuh Kael membentur keras. Napasnya terputus sesaat.
+Zerath's Fang menembus.
 
-Zireth mengaktifkan mekanisme pada lengan logamnya. Gelombang sonik berfrekuensi tinggi menghantam Elemental.
+Retakan menyebar ke dada.
 
-Tubuh es raksasa itu bergetar. Retakan baru menyebar dari bahu menuju dada.
+Elemental menghantam Kael ke dinding tebing.
 
-“Berisik!”
+Udara keluar dari paru-parunya.
 
-Elemental mengarahkan hujan pecahan es kepada Zireth. Dia berguling ke samping, membiarkan proyektil menghancurkan batu di belakangnya.
+Sebelum makhluk itu menyerang lagi, Zireth mengirim pulsa sonik ke retakan yang baru dibuat.
 
-“Sekarang, Kael!”
+Seluruh tubuh Elemental bergetar.
 
-Kael bangkit. Di balik retakan pada dada makhluk itu, dia melihat cahaya biru berdenyut.
+Di balik lapisan dada, cahaya biru pucat muncul.
 
-“Intinya ada di sana.”
+"Di sana!"
 
-Energi Fragmen berkumpul di tubuhnya. Api merah dan biru berputar menjadi pusaran yang semakin rapat.
+Kael berdiri dengan susah payah.
 
-Kael menjejak tanah dan melesat seperti meteor.
+Dia tidak menerjang lurus.
 
-“Hellfire Vortex!”
+Sebaliknya, Kael menancapkan Zerath's Fang ke tanah dan mengirim resonansi melalui es di bawah makhluk. Getaran naik dari kaki, bertemu pulsa Zireth, lalu memusat pada kristal inti.
 
-Pusaran api menghantam dada Elemental. Lapisan es terkikis, memperlihatkan kristal inti berwarna biru pucat.
+Sylvara menembak tepat pada retakan.
 
-Makhluk itu meraung.
+Inti bergeser setengah jengkal.
 
-“Tidak... Gerbang...”
+Cukup untuk Kael mendengar frekuensi alaminya.
 
-Kael menembus lapisan terakhir dan menempelkan telapak tangannya pada inti.
+Satu pulsa pendek.
 
-Kristal itu pecah.
+Kristal pecah.
 
-Cahaya di tubuh Elemental padam. Tubuh raksasanya runtuh menjadi tumpukan salju dan bongkahan es.
+Elemental berhenti.
 
-Kael mendarat dengan satu lutut. Api di tangannya mengecil lalu menghilang.
+Cahaya matanya meredup.
 
-Sylvara berlari menghampiri. “Kau terlalu nekat.”
+Sebelum tubuhnya runtuh, suara pecahan es keluar sekali lagi.
 
-“Berhasil,” jawab Kael di sela napas.
+"Gerbang... jangan biarkan... bernyanyi."
 
-Zireth memeriksa sisa inti. “Ia menyebut Gerbang sebelum mati. Sesuatu di utara benar-benar sedang bangkit.”
+Tubuhnya ambruk menjadi tumpukan salju dan es.
 
-Suara terompet perang menggema di antara tebing.
+Kael berdiri terengah-engah.
 
-Sylvara menoleh. “Terompet Karag Thürm.”
+"Bernyanyi?"
 
-Barisan prajurit Dwarf muncul dari tikungan jalur es, mengenakan zirah tebal dan membawa senjata rune.
+Zireth memandang sisa inti. "Aku tidak suka kata itu."
 
-“Mereka datang setelah pertarungan selesai,” kata Kael.
+Suara terompet memotong udara.
 
-Zireth berdiri di samping tumpukan es yang merupakan tubuh Elemental.
+Barisan Dwarf muncul dari tikungan jalur, mengenakan zirah tebal dan membawa senjata rune.
 
-“Masalahnya bukan kapan mereka datang. Masalahnya bagaimana mereka menilai tiga orang asing yang berdiri di atas sisa penjaga wilayah Iskali.”
+Mereka melihat lima mayat patroli.
 
-Prajurit-prajurit itu terus mendekat, dan tak satu pun menurunkan senjatanya.
+Lalu tumpukan tubuh Elemental.
+
+Lalu Kael, Sylvara, dan Zireth yang masih memegang senjata.
+
+Semua kapak terangkat.
+
+Sylvara berbisik, "Kita bisa jelaskan."
+
+Kael menatap dua puluh Dwarf bersenjata.
+
+"Kali ini aku harap kemampuanmu bicara lebih baik daripada kemampuanmu menenangkan matahari."

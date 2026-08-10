@@ -1,75 +1,105 @@
 # Episode 024 — Istirahat yang Gelisah
 
-Kael terbangun sebelum fajar dengan napas memburu. Keringat dingin membasahi dahinya.
+Kael terbangun sebelum fajar karena lengan kirinya terasa seperti sedang dibor dari dalam.
 
-Mimpi itu kembali—penjara gelap dan berbagai versi dirinya yang berteriak dari balik jeruji.
+Dia menggigit ujung selimut agar tidak membangunkan yang lain.
 
-Sylvara masih tertidur di dekat sisa api unggun. Zireth duduk bersandar pada batu, sementara cahaya redup dari mata mekanisnya menyapu kegelapan.
+Retakan ungu di bawah kulit sudah melewati siku.
 
-“Mimpi buruk, Pewaris?” tanyanya.
+Beberapa garis baru menjalar ke bahu.
 
-“Bukan urusanmu.”
+"Jangan bergerak."
 
-Kael bangkit dan berjalan ke tepi sumber air. Pantulan wajahnya bergoyang di permukaan: mata merah dan biru, kulit pucat, dan sorot yang jauh lebih tua dari usianya.
+Zireth ternyata tidak tidur.
 
-Lengan kirinya berdenyut.
+Cahaya kecil dari mata mekanisnya menyala ketika dia mendekat. Sylvara ikut bangun beberapa detik kemudian.
 
-Semakin sering dia memakai kekuatan itu, semakin sulit membedakan bagian mana yang masih benar-benar miliknya.
+"Lebih parah?"
 
-Kael memusatkan pikiran pada peta bintang yang diberikan Penjaga Kawah. Utara. Pegunungan es. Gema Kebenaran.
+Kael mengangguk.
 
-Apakah di sana menunggu jawaban, atau penjara lain dengan bentuk berbeda?
+Zireth membuka kain pembungkus dengan hati-hati. Sensor kecil bergerak di atas kulit tanpa menyentuh.
 
-Rasa sakit tajam menyambar lengannya.
+"Resonansi di kawah mempercepat sesuatu."
 
-“Ngh—”
+"Sesuatu yang sangat spesifik."
 
-Retakan hitam di kulitnya memancarkan cahaya ungu. Kael mencengkeram lengan tersebut, tetapi denyutnya terus menjalar hingga bahu.
+"Tubuhmu sedang mencoba melakukan dua hal yang saling bertentangan: menolak energi Void dan memasukkannya ke pola Fragmen."
 
-Sylvara terbangun dan segera menghampiri.
+Kael menahan napas ketika gelombang nyeri lewat.
 
-“Kael, lenganmu lagi?”
+"Bisa dihentikan?"
 
-Dia mengangguk. “Lebih parah sejak aku beresonansi dengan Fragmen kelima.”
+Zireth tidak menjawab langsung.
 
-Sylvara membuka kain penutupnya dengan hati-hati. Retakannya tampak lebih dalam dan gelap.
+Itu sudah buruk.
 
-“Ini tidak terlihat baik.”
+"Aku bisa memperlambat aliran dengan peredam. Tidak menyembuhkan."
 
-Zireth ikut mendekat. Tatapannya berubah seperti seorang mekanik yang sedang memeriksa mesin rusak.
+"Lakukan."
 
-“Bukan luka sihir biasa,” katanya. “Korupsi Fragmen tingkat rendah. Resonansi di kawah mungkin mempercepat prosesnya.”
+Zireth memasang gelang rune kasar di atas siku. Ketika aktif, rasa sakit turun dari api menjadi denyut berat.
 
-“Apa yang terjadi pada tubuhku?”
+Kael menghembuskan napas panjang.
 
-“Tubuhmu mencoba menolak dan menyerap energi asing pada saat yang sama.” Zireth mengulurkan jari logam ke arah retakan.
+Sylvara duduk di sampingnya.
 
-Kael refleks menarik lengannya.
+"Kita bisa kembali ke akademi."
 
-“Menarik,” gumam Zireth. “Seperti mesin yang dipaksa memakai bahan bakar yang salah.”
+Kael menggeleng.
 
-“Bisakah kau memperbaikinya?”
+"Melkisha mungkin punya alat yang lebih baik," katanya.
 
-“Tidak.”
+"Dan mungkin meja pembedahan yang lebih besar," jawab Kael.
 
-Jawaban itu datang terlalu cepat.
+Zireth tidak membantah.
 
-“Aku mungkin dapat memperlambatnya dengan alat yang tepat. Prosedurnya akan menyakitkan, dan peralatannya tidak ada di tengah gurun.”
+Itu cukup untuk mengakhiri usul tersebut.
 
-Sylvara memandang Kael. “Jadi kita terus berjalan dengan kondisi seperti ini?”
+Kael berjalan ke tepi kolam dan membasuh wajah.
 
-“Pilihan lain adalah kembali ke Vorth Aereth dan membiarkan Melkisha membedah masalahnya.”
+Pantulannya menunjukkan mata kiri biru dan wajah yang semakin sulit dia cocokkan dengan ingatan dirinya sebelum Aranyel.
 
-Kael langsung menggeleng.
+Untuk sesaat, dia teringat makhluk tiruan yang memakai wajahnya.
 
-“Kalau begitu kita bergerak maju.” Zireth berdiri. “Rasa sakit kadang menjadi bagian dari pertumbuhan. Kadang juga tanda kehancuran. Kita akan tahu nanti.”
+Kalau salinan itu bisa meniru semua detail luar, apa sebenarnya yang membuat dirinya tetap Kael?
 
-Matahari mulai muncul di timur, mewarnai langit gurun dengan jingga dan ungu.
+Bukan wajah.
 
-“Ada jalan pintas menuju utara,” lanjut Zireth. “Kita akan melewati Ngarai Gema.”
+Bukan darah.
 
-Kael menutup kembali lengannya.
+Mungkin pilihan.
 
-“Ayo.”
+Kael menertawakan dirinya sendiri pelan.
 
-Mereka meninggalkan oasis ketika bayangan masih panjang di atas pasir. Rasa sakit terus berdenyut di bawah kain, mengikuti setiap langkah Kael menuju ngarai yang menganga di kejauhan.
+Dia mulai terdengar seperti salah satu teka-teki Nyrah.
+
+"Ada jalur ke utara," kata Zireth di belakang. "Lebih pendek daripada memutari pegunungan. Ngarai Gema."
+
+Sylvara segera mengerutkan kening.
+
+"Nama yang buruk."
+
+"Fungsinya juga buruk."
+
+Zireth membuka peta.
+
+"Dinding mineral di sana memantulkan resonansi mental. Orang mendengar ingatan, ketakutan, kadang hal yang benar tapi tidak ingin diakui."
+
+Kael menatapnya.
+
+"Dan kau menyebutnya jalan pintas?"
+
+"Jaraknya memang lebih pendek. Aku tidak bilang menyenangkan."
+
+Matahari mulai naik ketika mereka meninggalkan oasis.
+
+Kael menutup lengan kirinya dengan kain baru.
+
+Gelang peredam bekerja.
+
+Untuk sekarang.
+
+Namun setiap beberapa langkah, dia masih merasakan sesuatu bergerak di bawah kulit—bukan sekadar korupsi yang merusak.
+
+Seolah energi asing itu sedang mencari bentuk yang cocok untuk tinggal.

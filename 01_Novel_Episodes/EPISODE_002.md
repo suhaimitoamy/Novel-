@@ -1,55 +1,169 @@
 # Episode 002 — Warisan yang Tak Diminta
 
-Kael memaksakan kakinya berlari menembus hutan yang gelap gulita.
+Kael baru menyadari betapa banyak suara yang dapat dibuat hutan ketika seseorang sedang diburu.
 
-Napasnya terasa membakar tenggorokan. Cahaya merah redup dari dalam dadanya berkedip tidak stabil, menerangi bayangan pepohonan dengan ritme yang menyakitkan.
+Patah ranting di belakangnya terdengar seperti langkah. Gesekan daun seperti tarikan busur. Bahkan napasnya sendiri terasa terlalu keras.
 
-Pikirannya berpacu. Kenapa mereka terus mengejarku?
+Dia terus berlari.
 
-Di belakangnya, ledakan cahaya sihir menghantam dahan pohon besar di atas kepalanya. Serpihan kayu tajam menghujani punggungnya.
+Cahaya putih menyambar di antara pepohonan. Batang pinus di sisi kirinya meledak, menyemburkan serpihan kayu ke punggung Kael. Dia kehilangan pijakan dan terguling menuruni lereng basah.
 
-Kael jatuh terguling, tanah basah mengotori jubahnya.
+Rasa sakit menjalar dari bahu sampai pinggang.
 
-Dia bersiap untuk bangkit, tetapi sebuah tangan ramping melesat dari kegelapan dan menyambar lengannya. Sosok itu menariknya kasar ke balik akar pohon raksasa.
+Belum sempat bangkit, tangan seseorang mencengkeram kerah bajunya dan menyeretnya ke bawah akar pohon raksasa.
 
-"Bodoh," desis gadis Elf itu. "Jangan lari lurus saat penyihir Arcanum mengejar."
+Kael refleks mengangkat tangan.
 
-"Siapa—" Kael terkejut.
+"Kalau kau menyalakan benda itu, kita berdua mati."
 
-Gadis itu menempelkan jarinya ke bibir Kael. "Ssst! Mereka Arcanum Wardens. Mereka tak akan segan mengulitimu hidup-hidup jika tertangkap."
+Gadis yang menahannya berbisik nyaris tanpa suara. Rambutnya hitam kehijauan, dipotong pendek agar tidak mengganggu telinga Elf yang runcing. Sebuah busur kecil tersandang di punggungnya. Matanya tidak terlihat takut—lebih seperti kesal.
 
-Mereka bersembunyi di balik bayangan akar pohon. Saat suara langkah para pengejar menjauh, Kael bergumam pelan, "Aku tidak membakar desa itu."
+Dia menunjuk ke atas.
 
-Tatapan gadis itu jatuh pada cahaya merah redup yang menembus kain baju Kael. Matanya menyipit tajam.
+Kael menahan napas.
 
-"Aku tahu. Kalau memang kau pelakunya secara sadar, kau pasti sudah meledak sekarang karena tidak sanggup mengendalikan kekuatan sebesar itu," ucap gadis itu perlahan. Dia menunjuk ke arah dada Kael. "Itu... sebuah Fragmen aktif?"
+Tiga Arcanum Warden melintas di jalur yang tadi dia lewati. Salah satu dari mereka berhenti tidak sampai sepuluh langkah dari akar tempat mereka bersembunyi.
 
-Kael mundur, menyembunyikan dadanya dengan lengan. "Aku tidak tahu bagaimana caranya. Tapi saat aku menyentuh batu aneh itu... semuanya terbakar."
+"Jejaknya hilang di sini."
 
-Suaranya terputus. Kilasan ingatan ibunya kembali menyiksa pikirannya. Sebuah peringatan lama, memintanya menyembunyikan diri agar dunia tidak mengetahui tentang darah yang mengalir di tubuhnya.
+"Fragmen aktif tidak bisa bersembunyi lama."
 
-Gadis Elf itu berdiri dan menepuk debu dari pakaiannya. Dia menatap langit malam yang mendung.
+Kael merasakan benda di dadanya berdenyut seolah sengaja mengejek kalimat itu.
 
-"Kita harus keluar dari wilayah Elf sekarang juga. Ke arah timur, menuju perbatasan Karag Thürm," instruksi gadis itu tegas. "Banyak ras marginal tinggal di sana. Tempat itu cukup keras untuk membuat orang tidak peduli dengan urusan darah campuran sepertimu."
+Gadis Elf di depannya langsung menatap ke sana. Tangan kirinya bergerak ke pisau pinggang.
 
-Kael menunduk menatap telapak tangannya yang masih bergetar. "Aku bahkan bukan siapa-siapa. Bukan Elf murni, bukan keturunan naga, bukan pula manusia biasa. Aku tidak memiliki tempat di dunia ini."
+Kael menggeleng pelan.
 
-"Lalu kenapa?" balas gadis itu tajam. "Bukankah kau masih hidup sekarang? Itu saja sudah cukup."
+Denyut itu mereda.
 
-Gadis itu mengulurkan tangannya pada Kael. "Dunia ini kejam dan akan memakan yang lemah. Tapi terkadang, justru potongan yang retaklah yang bisa memotong paling dalam. Namaku Sylvara."
+Beberapa saat kemudian para Warden melanjutkan pengejaran ke arah yang salah.
 
-Kael ragu sejenak, menatap tangan Sylvara yang terulur, sebelum menyambutnya dengan pegangan erat.
+Gadis itu menunggu sampai suara mereka benar-benar hilang sebelum melepaskan kerah Kael.
 
-"Terima kasih."
+"Kau selalu lari lurus saat dikejar penyihir?"
 
-Mereka berdua bergerak menyusuri bayangan hutan, menjauhi reruntuhan Aranyel.
+"Aku belum pernah dikejar penyihir."
 
-Tanpa mereka sadari, dari atas dahan pohon tersembunyi, seseorang mengawasi kepergian mereka.
+"Kelihatan."
 
-Pria muda berambut putih salju itu tersenyum tipis. Mata kuning elangnya mengikuti jejak energi Kael yang berantakan.
+Kael mencoba berdiri. Lututnya gemetar lebih parah daripada yang ingin dia akui.
 
-"Menarik," gumam Rowan pelan. "Darah campuran yang menampung kekuatan singularitas. Bidak yang sempurna dalam permainanku."
+"Kenapa membantuku?"
 
-Senyumnya melebar. "Aku tak sabar melihat dia hancur dari dalam oleh kekuatannya sendiri."
+"Aku belum memutuskan apakah aku membantumu."
 
-Aura gelap, seperti energi Fragmen yang rusak, berputar samar di belakangnya sebelum dia lenyap ditelan bayangan.
+Jawaban itu membuat Kael menegang lagi.
+
+Gadis tersebut menatap noda darah di bajunya, lalu cahaya samar yang kadang muncul di bawah kulit dada Kael.
+
+"Itu yang mereka cari?"
+
+Kael menutupi dadanya dengan lengan.
+
+"Aku tidak tahu."
+
+"Jawaban yang buruk."
+
+"Itu satu-satunya yang kupunya."
+
+Untuk pertama kalinya ekspresi gadis itu melunak, meski hanya sedikit.
+
+Kael menunduk.
+
+"Desaku terbakar. Aku bangun di tengahnya. Semua orang..." Dia berhenti sebelum kata berikutnya keluar. "Mereka bilang aku yang melakukannya."
+
+"Dan kau percaya?"
+
+Pertanyaan itu membuat Kael memandangnya.
+
+"Aku ada di sana."
+
+"Itu bukan jawaban."
+
+Kael tidak punya bantahan.
+
+Gadis itu bergeser keluar dari bawah akar, mengamati jejak para Warden, kemudian melemparkan sesuatu kepada Kael. Sebuah pisau pendek dalam sarung kulit.
+
+"Pegang. Bukan untuk melawan Warden. Kalau bertemu serigala."
+
+"Kau masih belum menjawab kenapa—"
+
+"Karena kalau aku ingin menyerahkanmu, aku tinggal berteriak tadi."
+
+Dia mulai berjalan ke timur.
+
+Kael tetap di tempat.
+
+Gadis itu menoleh.
+
+"Kau mau menunggu mereka kembali?"
+
+"Aku tidak tahu harus pergi ke mana."
+
+"Bagus. Berarti kau tidak punya alasan untuk memilih arah yang salah."
+
+Kael hampir tertawa, tetapi tenggorokannya terlalu sakit.
+
+Dia menyusul.
+
+Mereka bergerak tanpa bicara selama beberapa menit. Gadis itu memilih jalur yang nyaris tidak terlihat, berpindah dari batu ke akar agar tidak meninggalkan jejak jelas. Kael berusaha mengikuti, sering kali terlambat satu langkah.
+
+"Wilayah Elf berakhir di timur," katanya akhirnya. "Lewat perbatasan Karag Thürm, para Warden tidak bisa berkeliaran seenaknya."
+
+"Karag Thürm menerima Elf?"
+
+"Mereka menerima uang. Itu lebih sederhana."
+
+Kael memandang tangannya sendiri. Garis hitam di kulit belum hilang.
+
+"Kalau mereka tahu apa yang ada di dalam diriku?"
+
+Gadis itu tidak menjawab langsung.
+
+"Maka jangan tunjukkan."
+
+"Semudah itu?"
+
+"Tidak. Tapi lebih berguna daripada mengasihani diri sendiri."
+
+Kael berhenti.
+
+Gadis itu pun berhenti beberapa langkah di depan.
+
+"Namamu siapa?"
+
+"Sylvara."
+
+"Kael."
+
+"Aku tahu. Para Warden meneriakkannya sepanjang hutan."
+
+Ada sesuatu yang hampir menyerupai senyum di wajahnya.
+
+Kael menarik napas, lalu kembali berjalan.
+
+Menjelang tengah malam mereka mencapai sungai sempit. Sylvara berlutut untuk menghapus jejak kaki mereka dengan ranting.
+
+Kael hendak menyeberang ketika merasa tengkuknya meremang.
+
+Dia menoleh ke pepohonan di belakang.
+
+Tidak ada siapa-siapa.
+
+Hanya gelap.
+
+Namun sesaat, sangat jauh di antara batang-batang pohon, Kael yakin melihat sepasang mata kuning memantulkan cahaya bulan.
+
+Ketika dia berkedip, mata itu hilang.
+
+"Ada apa?" tanya Sylvara.
+
+Kael masih menatap kegelapan.
+
+"Entahlah."
+
+Denyut di dadanya berbunyi sekali.
+
+Kali ini bukan seperti rasa sakit.
+
+Lebih seperti peringatan.

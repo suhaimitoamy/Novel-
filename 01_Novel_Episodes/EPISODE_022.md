@@ -1,61 +1,115 @@
 # Episode 022 — Asap di Oase
 
-Di tepi lembah kecil, Kael dan Sylvara mengamati asap api unggun dari balik batu.
+Mereka tidak meninggalkan oasis malam itu.
 
-“Dia tahu kita datang?” bisik Kael.
+Setelah pertarungan, Zireth memeriksa setiap jengkal tempat sosok tiruan duduk. Pasir di bawah api unggun mengandung serpihan kristal yang sama dengan tubuh makhluk itu, tetapi tidak ada jejak bagaimana ia tiba.
 
-“Mungkin.” Sylvara memasang anak panah. “Jejaknya tidak menunjukkan orang yang terburu-buru. Aku akan melindungimu dari sini.”
+"Ia membentuk tubuhnya di sini," kata Zireth.
 
-Kael mengangguk. “Aku coba bicara lebih dulu. Jika dia meninggalkan jejak itu, dia mungkin tahu sesuatu.”
+Kael duduk di tepi kolam sambil membersihkan Zerath's Fang.
 
-Dia menuruni lereng menuju oasis. Sylvara tetap di atas tebing dengan busur terarah ke api unggun.
+"Dari apa?"
 
-Aroma daging panggang semakin kuat ketika Kael mendekat. Keheningan di lembah terasa tidak wajar untuk Gurun Bisikan.
+"Pasir, mineral, sedikit materi Void. Dan informasi."
 
-Dia berlindung di balik bongkahan batu terakhir dan mengintip.
+"Informasi bukan bahan bangunan."
 
-Seorang pria muda duduk di dekat api, mengenakan zirah kulit usang yang diperkuat pelat logam. Kacamata pelindung terangkat di dahinya. Rambut cokelatnya berantakan, tetapi gerakan tangannya saat memanggang kadal terlihat tenang dan terukur.
+"Bagi teknologi biasa, tidak."
 
-Tanpa menoleh, pria itu berkata, “Mau bergabung? Masih ada sisa kadal.”
+Zireth meletakkan cakram temuan mereka di atas batu. Rune pada permukaannya sudah mati.
 
-Kael keluar dari persembunyian dengan api siap menyala di tangannya.
+"Tapi tubuh tadi meniru refleksku, pola bicara, bahkan sebagian memori. Kalau ada sistem yang bisa menyimpan struktur seperti itu lalu menempelkannya pada materi—"
 
-“Siapa kau? Kenapa mengikuti kami?”
+"Maka ia bisa membuat orang palsu," potong Sylvara.
 
-Pria itu menoleh dan tersenyum tipis. Senyumnya kaku, hampir mekanis.
+Zireth mengangguk.
 
-“Mengikuti? Aku hanya bergerak menuju tempat jatuhnya bintang ungu. Lalu melihat Sky-skiff jatuh dan pertunjukan cahaya dari kawah.”
+Kael menatap asap tipis dari bara yang padam.
 
-“Kau melihat pertarungan kami?”
+"Kenapa memilihmu?"
 
-“Ledakan sebesar itu dapat dilihat dari jauh.”
+"Karena aku dekat denganmu."
 
-Pria tersebut mengulurkan tangan kanan. Lengan mekanis Magitek menggantikan daging dari siku ke bawah.
+Jawabannya terlalu cepat untuk dianggap dugaan.
 
-“Namaku Zireth. Pengawasmu dari Akademi Vorth Aereth.”
+Kael menoleh.
 
-Kael tidak menyambut uluran tangannya.
+Zireth tidak menghindari tatapannya.
 
-“Bagaimana kau sampai secepat ini? Dan siapa yang mengirimmu?”
+"Kalau tujuan utamanya mengamati resonansimu, meniru seseorang yang kau kenal adalah cara terbaik mendekat tanpa memicu pertahanan."
 
-“Aku punya cara sendiri untuk bepergian.” Zireth menepuk pelat logam di lengannya. “Melkisha yang mengirimku. Dia khawatir kau akan meledak sebelum waktunya.”
+Sylvara duduk di sisi lain kolam.
 
-“Kael!” seru Sylvara dari atas tebing. “Jangan langsung percaya.”
+"Untung tiruannya terlambat. Kita sudah mengenalmu."
 
-Zireth melambaikan tangan. “Tenang, Pemanah. Aku tidak berniat menyerang.”
+"Mungkin itu bukan kesalahan," kata Kael.
 
-Kael tetap memasang kuda-kuda. “Jejak di dekat Sky-skiff itu milikmu?”
+Mereka diam.
 
-“Ya. Aku memeriksa bangkainya, tetapi mesin runenya sudah hancur.” Zireth kembali memperhatikan daging panggang. “Jadi, apakah kau mendapatkan Fragmen kelima?”
+Kael memikirkan kalimat makhluk itu: *Rekaman dimulai jauh sebelum kau menemukan jejak pertama.*
 
-“Tidak. Aku mendapat petunjuk ke utara.”
+Mungkin ia tidak bermaksud menyusup.
 
-“Pegunungan es?” Alis Zireth terangkat. “Menarik.”
+Mungkin ia ingin ditemukan.
 
-Dia mengambil kadal dari atas api.
+"Ia menyebut dirinya Zireth di depan Zireth," kata Kael. "Bukan strategi penyamaran. Itu ujian."
 
-“Kalau begitu, tujuan kita searah untuk sementara. Gurun ini bukan tempat yang baik untuk berjalan sendirian.”
+Zireth menatap cakram.
 
-Kael menatapnya, lalu melirik Sylvara yang masih menjaga dari kejauhan.
+"Ujian apa?"
 
-Kehadiran pengawas itu bisa menjadi bantuan dari Melkisha—atau bagian dari rencana lain yang belum mereka pahami.
+"Melihat bagaimana aku bereaksi pada sesuatu yang meniru orang dekat."
+
+Sylvara menyandarkan punggung ke pohon.
+
+"Aku tidak suka bahwa itu masuk akal."
+
+Kael juga tidak.
+
+Dia mengingat Hollowed, cermin tanpa wajah, dan sosok-sosok yang memakai ingatan sebagai senjata. Polanya berubah, tetapi pertanyaannya sama: seberapa mudah identitas dapat direbut, disalin, atau dibentuk?
+
+Malam turun cepat.
+
+Mereka menyalakan api baru jauh dari lokasi makhluk tiruan. Tidak ada yang merasa nyaman tidur dekat tempat tubuh palsu itu pernah duduk.
+
+Saat giliran Kael berjaga, dia melihat sesuatu di permukaan kolam.
+
+Bukan bayangan dirinya.
+
+Sebuah garis ungu tipis bergerak di bawah air.
+
+Kael langsung berdiri.
+
+Garis itu lenyap.
+
+Dia memanggil Zireth.
+
+Pemindaian tidak menemukan apa-apa.
+
+"Mungkin residu," kata Zireth.
+
+Kael masih menatap air.
+
+"Atau ia meninggalkan mata lain."
+
+Mereka menguras sebagian kolam ke cekungan kecil dan memeriksa dasar. Tidak ada alat, kristal, atau rune.
+
+Namun saat fajar, jejak sepatu bot baru muncul di sisi utara oasis.
+
+Satu set.
+
+Dimulai dari tanah kosong.
+
+Lalu berjalan menuju pegunungan yang sama dengan peta bintang Kael.
+
+Sylvara menatapnya dengan wajah tidak senang.
+
+"Jangan bilang kita mengikutinya lagi."
+
+Kael memasukkan Zerath's Fang ke sarung.
+
+"Tidak."
+
+Dia melihat arah utara.
+
+"Kali ini dia yang mengikuti tujuan kita."

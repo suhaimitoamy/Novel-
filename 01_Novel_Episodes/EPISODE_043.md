@@ -1,57 +1,101 @@
 # Episode 043 — Badai Es Void
 
-Nyanyian Kehampaan mengaum. Dengungannya menekan telinga hingga kepala Kael berdenyut.
+Suhu turun lagi.
 
-*Dingin. Membeku. Hancur.*
+Kali ini api Kael ikut mengecil.
 
-Makhluk itu mengangkat kedua tangan. Badai di sekelilingnya menebal, dan butiran salju berubah hitam keunguan.
+Dingin dari makhluk bukan sekadar menyerap panas. Ia menarik energi yang membuat tubuh mampu menghasilkan panas sejak awal.
 
-Dingin tersebut tidak sekadar menurunkan suhu. Ia menarik kehangatan dan tenaga langsung dari tubuh.
+Sylvara mencoba menarik busur dan jari-jarinya gagal bergerak penuh.
 
-Sylvara menggigil di balik jubah tebal. Jarinya sulit menahan tali busur. “Aku tidak bisa membidik.”
+Zireth mengaktifkan pemanas pada lengan mekanis, tetapi indikatornya langsung turun.
 
-“Void Chill,” kata Zireth. “Perisai biasa tidak akan menghentikannya. Energi kehidupan kita sedang dikuras.”
+"Kalau ini terus naik, kita kehilangan fungsi otot sebelum mati beku."
 
-Rowan melindungi tubuhnya dengan aura Void tipis, tetapi wajahnya juga mulai pucat.
+Kael menatap kedua tangannya.
 
-“Ia menyerap seluruh wilayah untuk menyempurnakan bentuknya.”
+Selama ini dia berusaha menyatukan panas merah dan dingin biru menjadi satu serangan.
 
-Api di tangan Kael meredup. Namun Fragmen di dadanya justru semakin panas, melawan dingin yang mencoba masuk.
+Makhluk di depan justru hidup dari keseragaman dingin.
 
-Dia berhenti memaksa kedua energi untuk menyatu.
+Mungkin jawabannya bukan menyatukan.
 
-Tangan kanannya menghasilkan panas merah yang terus meningkat. Tangan kirinya memadatkan dingin biru hingga udara di sekitarnya berderak.
+Kael membiarkan keduanya tetap berbeda.
 
-“Sylvara, Zireth, mundur.”
+Tangan kanan memanas sampai salju menguap sebelum menyentuh kulit.
 
-Kael melepaskan keduanya secara bersamaan.
+Tangan kiri menurunkan suhu sampai embun beku membentuk pola tajam di udara.
 
-Sinar merah menghantam tubuh Nyanyian Kehampaan dan melelehkan lapisan es luarnya. Sesaat kemudian, sinar biru membekukan bagian yang baru terbuka jauh lebih cepat daripada kemampuannya menyesuaikan diri.
+"Mundur."
 
-Perubahan suhu ekstrem menciptakan retakan-retakan kecil di seluruh struktur tubuh.
+Dia melepaskan panas lebih dulu.
 
-Makhluk itu meraung kesakitan untuk pertama kalinya.
+Sisi dada makhluk meleleh.
 
-*Sakit. Panas. Dingin. Tidak seimbang.*
+Sebelum struktur sempat menutup, Kael menghantam bagian yang sama dengan dingin ekstrem.
 
-Rowan memandang Kael dengan perhatian baru. “Dualitas energi. Jadi itu yang tersembunyi dalam darahmu.”
+Perubahan mendadak membuat lapisan es menyusut tidak merata.
 
-Nyanyian Kehampaan menghentakkan kaki.
+Retakan menyebar.
 
-Retakan menjalar di seluruh dataran tinggi. Dari dalamnya muncul serigala-serigala es dan laba-laba raksasa, semuanya bermata ungu dan dipenuhi korupsi Void.
+Makhluk menjerit.
 
-“Ia membuat pasukan dari es di sekeliling kita,” ujar Zireth.
+Bukan kata.
 
-Sylvara melihat jumlah makhluk yang terus bertambah. “Kita akan dikepung.”
+Nada tinggi yang membuat darah di telinga Kael terasa panas.
 
-Kael tidak mengalihkan pandangan dari inti ungu di dada raksasa.
+Rowan menatap retakan tersebut.
 
-“Rowan, kau bilang intinya rentan. Bantu aku membukanya.”
+"Lakukan lagi."
 
-Rowan menatap gerbang, lalu makhluk yang keluar terlalu cepat dari rencananya.
+"Kau bantu menahannya."
 
-“Baik.” Tongkat obsidian berputar di tangannya. “Tapi setelah ini selesai, urusan kita berlanjut.”
+Sulur Void muncul.
 
-Kael dan Rowan bersiap menyerang makhluk utama.
+Kael mengulang pola panas-dingin.
 
-Di belakang mereka, Sylvara dan Zireth mengambil posisi untuk menahan gelombang pasukan es yang sudah mulai menerjang.
+Lapisan dada pecah lebih besar.
+
+Namun makhluk itu menghentakkan kaki.
+
+Es di seluruh puncak menggembung.
+
+Serigala, laba-laba besar, dan bentuk-bentuk lain keluar dari tanah, semuanya bermata ungu.
+
+"Jaringan kontrol lagi," kata Zireth.
+
+"Tidak," jawab Kael.
+
+Dia mendengarkan.
+
+Tidak ada pulsa tujuh detik.
+
+"Mereka bagian dari tubuhnya."
+
+Sylvara memasang panah terakhir yang masih utuh.
+
+"Lebih buruk."
+
+Makhluk-makhluk kecil menerjang.
+
+Zireth dan Sylvara menahan mereka bersama Dagna. Borin yang terluka tetap memukul makhluk yang terlalu dekat dengan gagang kapak cadangan.
+
+Kael menghadap inti utama.
+
+Rowan berdiri beberapa langkah di sampingnya.
+
+"Sekali lagi," kata Kael.
+
+"Setelah itu?"
+
+"Setelah itu kita cari cara menutup gerbang."
+
+Rowan tidak menjawab.
+
+Kael menangkap jeda itu.
+
+Kecurigaan muncul kembali.
+
+Tetapi makhluk raksasa sudah menyerang.
+
+Tidak ada waktu untuk memeriksanya.

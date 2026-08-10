@@ -1,69 +1,109 @@
 # Episode 048 — Menutup Retakan
 
-Sinar merah, biru, dan ungu menghantam rune utama Gerbang Es.
+Retakan Gerbang Es tinggal selebar lengan.
 
-Seluruh simbol kuno pada lengkungan menyala putih. Nyanyian dari dalam retakan berubah menjadi jeritan statik, terputus-putus oleh resonansi Kael.
+Tubuh Nyanyian Kehampaan runtuh bersama menyempitnya celah. Potongan es hitam terlepas, berubah menjadi debu sebelum menyentuh tanah.
 
-Energinya tersedot ke dalam segel.
+Kael hampir tidak merasakan kakinya.
 
-Kael berteriak ketika rasa sakit menjalar dari lengan kiri menuju bahu. Retakan hitam di kulitnya memanjang, mengikuti aliran Void yang dia paksa keluar.
+Energi terus mengalir melalui tubuhnya ke segel.
 
-Tubuh Nyanyian Kehampaan ikut bereaksi. Es hitam membeku lebih cepat daripada sebelumnya, lalu pecah ketika sumber tenaga dari gerbang mulai terputus.
+Satu garis hitam mencapai bahu kiri.
 
-*Energi luka. Menutup. Kembali tidur.*
+Zireth berdiri beberapa langkah di belakang, siap menangkapnya jika jatuh.
 
-Pertarungan Rowan dan Dagna berhenti saat gunung berguncang.
+"Sedikit lagi."
 
-Rowan menatap retakan yang menyempit. “Tidak. Arsitek tidak akan menerima ini.”
+Rowan menjatuhkan Dagna dengan gelombang Void.
 
-Dia melepaskan bola Void ke arah Kael.
+Dia tidak menuju Kael.
 
-Zireth melompat ke jalurnya dan membangun perisai sonik darurat. Serangan menghantam pertahanan itu dan mendorong tubuhnya beberapa meter.
+Dia menuju gerbang.
 
-“Aku tidak akan membiarkanmu mengganggu.”
+Sylvara melihat lebih dulu.
 
-Kael memaksa lebih banyak energi masuk ke rune. Dia dapat merasakan bagian-bagian segel kembali mengunci, merespons perpaduan Fragmen dan Void yang hidup dalam tubuhnya.
+"Kael!"
 
-Retakan tinggal garis tipis.
+Rowan mengeluarkan sesuatu dari dalam jubah.
 
-Rowan menjatuhkan Zireth dengan gelombang energi dan melesat menuju gerbang. Namun kali ini dia tidak menyerang Kael.
+Liontin spiral Vorthax yang mereka temukan di reruntuhan.
 
-Sebuah benda hitam dilemparkan ke celah terakhir.
+Kael membeku.
 
-Liontin spiral Vorthax.
+"Kapan kau—"
 
-“Setidaknya tinggalkan jalan bagi Tuan kami.”
+"Saat kalian sibuk menyelamatkan dunia."
 
-Liontin itu tersedot ke dalam retakan sesaat sebelum gerbang menutup.
+Rowan melempar liontin ke celah.
 
-Dentuman mengguncang seluruh Puncak Beku.
+Kael mencoba menghentikan resonansi cukup lama untuk menolaknya.
 
-Lalu semuanya sunyi.
+Tidak bisa.
 
-Cahaya ungu meredup. Rune-rune pada Gerbang Es kembali bersinar biru tenang. Nyanyian berhenti seolah tidak pernah ada.
+Benda hitam itu menembus retakan tepat sebelum dua sisi gerbang bertemu.
 
-Tubuh raksasa Nyanyian Kehampaan membeku menjadi patung, kemudian runtuh menjadi debu es hitam yang dibawa angin.
+"Apa yang kau lakukan?"
+
+Rowan mundur.
+
+"Memberi sisi lain sesuatu untuk mengingat jalan pulang."
+
+Kael ingin mengejarnya.
+
+Gerbang menutup.
+
+Dentuman menghantam seluruh gunung.
+
+Cahaya putih memenuhi pandangan.
+
+Lalu sunyi.
+
+Nyanyian berhenti.
+
+Tidak memudar.
+
+Berhenti total.
 
 Kael jatuh berlutut.
 
-Tidak ada tenaga tersisa di tubuhnya. Lengan kiri terasa mati rasa, dan retakan hitam kini hampir mencapai bahu.
+Rune di Gerbang Es kembali biru. Tidak ada retakan. Tidak ada tubuh raksasa. Salju mulai turun normal untuk pertama kalinya sejak mereka tiba di puncak.
 
-Rowan menatap gerbang dengan kesal, tetapi kepuasan aneh masih terlihat di matanya.
+Rowan berdiri di tepi kabut Void.
 
-“Kau berhasil menutupnya untuk sementara.”
+"Kau memperbaiki segel lebih baik daripada yang kuduga."
 
-Dia memandang Kael yang nyaris roboh.
+Kael mencengkeram Zerath's Fang, tetapi tidak punya tenaga untuk mengangkatnya.
 
-“Tapi kau juga mengirimkan kunci lain kepada Arsitek.”
+"Aku akan menemukanmu."
 
-Kabut Void mulai menyelimuti tubuhnya.
+"Aku berharap begitu."
 
-“Sampai bertemu di Fragmen berikutnya.”
+Kabut menelan Rowan.
 
-Sebelum Sylvara atau Zireth sempat menyerang, Rowan menghilang.
+Sebelum menghilang, dia menatap lengan kiri Kael.
 
-Kael terkapar di depan Gerbang Es yang kembali tenang. Sylvara dan Zireth berlari menghampiri, sementara Dagna memandang lengkungan hitam itu dengan wajah pucat.
+"Yang lebih menarik adalah apa yang ikut kau bawa pulang."
 
-Gerbang telah tertutup.
+Rowan lenyap.
 
-Namun sesuatu kini tertinggal di sisi lain bersama liontin Vorthax.
+Kael menunduk.
+
+Retakan hitam tidak lagi bergerak liar.
+
+Untuk pertama kalinya, garis-garis ungu di bawah kulit membentuk pola teratur.
+
+Bukan korupsi acak.
+
+Rune.
+
+Zireth berlutut di sampingnya.
+
+"Jangan sentuh apa-apa lagi hari ini."
+
+Kael tertawa lemah.
+
+"Untuk sekali ini aku setuju."
+
+Di Gerbang Es, jauh di bawah lapisan biru, satu titik hitam berkedip.
+
+Bentuknya seperti spiral yang belum selesai.

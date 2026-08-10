@@ -1,59 +1,101 @@
 # Episode 042 — Musuh Bersama
 
-Badai salju Void mengamuk di Puncak Beku.
+Zireth menemukan pola sambungan lebih dulu.
 
-Kael menatap Rowan. “Pertarungan kita menunggu. Makhluk itu akan membunuh semua orang jika kita tidak bekerja sama.”
+"Inti di dada terhubung langsung ke retakan."
 
-Rowan mendengus. “Setidaknya kau tidak sepenuhnya bodoh.”
+Kael melihat garis tipis energi ungu yang keluar dari Gerbang Es dan masuk ke tubuh makhluk.
 
-Dia menarik kembali tongkat obsidiannya dari tangan Kael dengan sulur energi gelap.
+"Kalau diputus?"
 
-“Aku tidak akan membiarkan rencana Arsitek gagal hanya karena makhluk ini bangun sebelum waktunya.”
+"Tubuhnya kehilangan suplai. Belum tentu mati."
 
-Sylvara membantu Zireth berdiri. “Jadi sekarang kita bertarung bersama?”
+"Cukup."
 
-“Jangan salah paham.” Rowan memandangnya dingin. “Eksekusi kalian hanya ditunda.”
+Rowan memandang inti.
 
-“Fokus,” kata Zireth. Pemindainya mengikuti aliran energi antara gerbang dan makhluk raksasa. “Ia menarik kekuatan langsung dari retakan.”
+"Lapisan luarnya akan menutup setiap kerusakan selama gerbang memberi energi. Kita harus membuatnya tidak sempat memperbaiki diri."
 
-Kael menoleh kepada Rowan. “Kau tahu kelemahannya?”
+Kael menatapnya. "Kau punya ide tanpa mengorbankan orang lain?"
 
-“Bentuknya belum sempurna.” Rowan menunjuk cahaya ungu di dada Nyanyian Kehampaan. “Intinya mungkin belum stabil. Masalahnya, kita harus mencapainya.”
+"Untuk sementara."
 
-Makhluk itu mengangkat tangan.
+Sylvara membantu Dagna memotong sisa rantai.
 
-Es di seluruh dataran tinggi bangkit menjadi tombak-tombak panjang dan melesat ke arah mereka.
+"Aku anggap itu kemajuan."
 
-Dagna menggulingkan tubuhnya yang masih terikat. Sebuah tombak menancap beberapa sentimeter dari wajahnya.
+Makhluk itu menyerang lagi.
 
-“Lepaskan aku, pengkhianat!” teriaknya.
+Kael menyebarkan panas dalam kipas lebar, mencairkan tombak es sebelum mencapai mereka. Rowan mengirim sulur Void dari tanah dan melilit kedua kaki raksasa.
 
-Rowan mengabaikannya. “Kael, buka jalan.”
+Ikatan itu bertahan hanya beberapa detik.
 
-Kael menyatukan api merah dan biru, lalu melepaskan gelombang panas. Tombak-tombak es meleleh atau pecah sebelum mencapai mereka.
+Cukup untuk Sylvara menembak inti.
 
-“Sekarang.”
+Panah rune menghantam lapisan pelindung dan pecah.
 
-Rowan melesat melewati uap panas. Tongkatnya memancarkan energi gelap.
+Tidak tembus.
 
-“Void Tendrils.”
+Zireth mengubah frekuensi pulsa soniknya.
 
-Sulur bayangan muncul dari tanah dan membelit kaki serta lengan makhluk raksasa. Sebagian hancur akibat hawa dingin, tetapi sisanya berhasil menahan gerakannya.
+Gelombang pertama tidak berpengaruh.
 
-Nyanyian Kehampaan meraung dan menarik ikatan itu hingga tegang.
+Kedua membuat bahu makhluk bergetar.
 
-Sylvara melepaskan panah penetrasi ke dada makhluk. “Zireth, cari celah pertahanannya.”
+Ketiga menimbulkan garis retak kecil di dada.
 
-Zireth berlindung di balik batu sambil membaca pemindai.
+"Ada respons di frekuensi rendah!"
 
-“Auranya mengacaukan energi elemen. Tapi struktur tubuhnya bereaksi terhadap frekuensi sonik tertentu.”
+Kael mendengar retakannya.
 
-Dia membandingkan data tersebut dengan resonansi Kael.
+Dia menyesuaikan resonansi Fragmen dengan pulsa Zireth.
 
-“Dan terhadap energi Fragmen yang tidak stabil.”
+Lapisan es hitam mengeluarkan bunyi tajam.
 
-Kael menatap api dua warna di tangannya.
+Rowan langsung memperkuat ikatan.
 
-Ketidakstabilan yang selama ini mengancam tubuhnya mungkin menjadi satu-satunya senjata yang mampu melukai makhluk tersebut.
+"Sekarang."
 
-Sebuah rencana mulai terbentuk—berbahaya, tetapi tidak ada pilihan aman yang tersisa.
+Kael melepaskan denyut pendek.
+
+Retakan melebar.
+
+Untuk pertama kalinya inti ungu terlihat jelas.
+
+Makhluk itu meraung dan memutus sulur Rowan.
+
+Cakar raksasa menyapu.
+
+Kael dan Rowan melompat ke arah berbeda.
+
+Dataran di antara mereka terbelah.
+
+Kael mendarat dengan satu lutut.
+
+Retakan pada lengan kiri ikut menyala.
+
+Aneh.
+
+Korupsi Void di tubuhnya beresonansi dengan inti makhluk.
+
+Bukan sebagai bagian yang sama.
+
+Sebagai dua struktur yang mengenali satu bahasa.
+
+"Zireth."
+
+"Aku lihat."
+
+Pemindainya membaca lengan Kael dan inti secara bergantian.
+
+"Energi asing di tubuhmu bisa mengganggu lapisan pertahanannya dari dalam."
+
+Sylvara langsung berkata, "Tidak."
+
+Kael belum mengusulkan apa pun.
+
+Dia memandang inti ungu.
+
+Lalu lengan kirinya.
+
+Jalan paling efektif sekali lagi melewati bagian tubuhnya yang paling tidak dia percaya.

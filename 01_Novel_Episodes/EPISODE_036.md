@@ -1,79 +1,117 @@
 # Episode 036 — Penyergapan dalam Keheningan
 
-Pertarungan memenuhi reruntuhan es dengan benturan logam dan ledakan energi.
+Tiga penyerang bergerak seperti satu tubuh.
 
-Sosok-sosok berjubah hitam bergerak dalam formasi sempurna. Tidak ada yang ragu, mundur, atau menunjukkan rasa sakit meski panah Sylvara dan serangan Zireth mengenai tubuh mereka.
+Ketika yang pertama menusuk, dua lainnya sudah menutup jalur menghindar. Saat Sylvara memaksa satu mundur, yang lain langsung menggantikan posisinya tanpa perlu melihat.
 
-“Siapa yang mengendalikan kalian?” Kael menangkis belati energi yang menyapu lehernya.
+Kael berhenti mencoba memenangkan pertarungan satu lawan satu.
 
-“Kami melayani Kehampaan Abadi,” jawab pemimpin mereka. Suaranya tetap datar, seolah tubuh yang sedang bertarung tidak memiliki hubungan dengannya.
+Dia mendengarkan.
 
-Sylvara berlindung di balik pilar untuk memasang panah baru. “Mereka tidak punya kelemahan.”
+Tujuh detik.
 
-Zireth menghindari tebasan dan membaca data pada pemindainya. “Mereka bukan makhluk hidup, tapi juga bukan undead. Tubuh-tubuh ini telah dikosongkan lalu diisi energi Void.”
+Pulsa pendek mengalir melalui ketiga tubuh.
 
-“Seperti The Hollowed?” tanya Kael.
+Di bawahnya, denyut yang lebih lambat datang dari utara.
 
-“Mirip, tetapi jauh lebih stabil. Ada sesuatu yang mengirim perintah langsung kepada mereka.”
+"Zireth, putus frekuensi cepat. Aku ambil yang lambat."
 
-Kael memandangi gerakan para penyerang. Setiap langkah datang pada saat yang sama. Setiap serangan mengikuti irama yang tidak berubah.
+"Kalau salah?"
 
-Jika mereka bergerak karena satu sinyal, dia tidak perlu menghancurkan tubuhnya. Dia hanya perlu merusak hubungan yang mengendalikan mereka.
+"Kita cari tahu dengan menyakitkan."
 
-Kael mundur dan menurunkan Zerath's Fang.
+Zireth menyeringai tipis.
 
-“Apa yang kau lakukan?” seru Sylvara.
+Pulsa sonik menyapu aula.
 
-Dia memusatkan perhatian pada Fragmen di dadanya. Api merah dan energi biru tidak dibentuk menjadi ledakan. Kael menyebarkannya sebagai getaran tipis yang merambat melalui lantai, pilar, dan udara.
+Ketiga penyerang tersendat.
 
-Resonansi itu menyentuh para penyerang.
+Kael menempelkan telapak tangan pada lantai hitam. Dia tidak mengirim ledakan. Hanya getaran tipis, mencari nada yang datang dari puncak.
 
-Gerakan mereka tersendat.
+Dia menemukannya.
 
-Salah satu sosok mengangkat belati, tetapi lengannya berhenti di tengah jalan. Kepalanya menoleh dengan sentakan kaku.
+Frekuensi itu dingin dan sangat teratur.
 
-“Energi... kacau...”
+Kael menggesernya sepersekian nada.
 
-“Perintah... hilang...”
+Efeknya langsung.
 
-Pemindai Zireth menyala. “Kau mengganggu frekuensi kendali mereka. Pertahankan resonansinya.”
+Sosok bertopeng pertama jatuh berlutut. Yang kedua menabrak pilar. Yang ketiga mengangkat belati, tetapi lengannya bergerak ke arah yang salah.
 
-Kael memperkuat getaran.
+"Perintah... tidak sinkron."
 
-Tubuh-tubuh berjubah itu mulai kejang. Asap hitam merembes dari celah topeng perak, seolah energi di dalamnya dipaksa keluar.
+Suara dari balik topeng pecah seperti alat rusak.
 
-Pemimpin mereka berusaha melangkah maju.
+Kael memperkuat gangguan.
 
-“Tidak... bisa... lepas...”
+Asap hitam keluar dari celah pakaian mereka.
 
-Suara terakhirnya pecah seperti gangguan statik. Satu demi satu, seluruh penyerang jatuh ke lantai. Asap hitam terlepas dari tubuh mereka dan lenyap di udara.
+Tubuh-tubuh itu roboh.
 
-Kael menghentikan resonansi. Lututnya hampir menyerah karena energi yang terkuras.
+Keheningan kembali.
 
-“Sudah selesai?”
+Sylvara mendekati salah satu dan mengangkat topengnya dengan ujung panah.
 
-Sylvara mendekati salah satu tubuh dan membuka topengnya.
+Tidak ada wajah.
 
-Wajah di baliknya tidak memiliki mata, hidung, maupun mulut. Hanya kulit pucat yang rata.
+Kulit pucat rata menutupi kepala.
 
-“Benar-benar wadah kosong,” gumamnya.
+"Hollowed," kata Kael.
 
-Zireth mengambil salah satu senjata yang terjatuh. Rune gelap bergerak di sepanjang permukaannya dalam pola yang belum pernah dia lihat.
+"Versi yang lebih stabil," jawab Zireth. "Tubuh ini tidak dibuat dari pasir. Pernah biologis."
 
-“Teknologi ini bukan buatan Vorth Aereth atau akademi mana pun di Zerath.”
+Kael menahan pandangan pada wajah kosong itu terlalu lama.
 
-“Berarti ada pihak lain selain Rowan,” kata Kael. “Kehampaan Abadi mungkin berkaitan dengan Sang Arsitek.”
+Siapa pun mereka dulu, tidak ada cara mengetahui.
 
-Saat Kael mengambil kembali buku kuno, Zireth melihat sesuatu berkilau di balik jubah pemimpin mereka.
+Zireth mengambil belati salah satu tubuh. Rune di bilahnya membentuk pola spiral retak.
 
-Sebuah liontin logam hitam tergantung di lehernya. Bentuknya spiral yang retak, dengan ujung sengaja dipatahkan.
+Sylvara membeku.
 
-Wajah Sylvara menegang ketika melihatnya.
+"Tunggu."
 
-“Aku pernah melihat lambang itu.”
+Dia menarik liontin dari bawah jubah pemimpin.
 
-“Di mana?” tanya Kael.
+Logam hitam. Spiral pecah dengan satu ujung terpotong.
 
-Sylvara menatap liontin tersebut dengan rasa takut yang berusaha dia sembunyikan.
+Kael mengenali simbolnya.
 
-“Di antara peninggalan keluargaku. Itu lambang kuno keluarga Vorthax.”
+"Kau tahu itu?"
+
+Sylvara tidak menjawab beberapa detik.
+
+"Pernah kulihat di barang keluargaku."
+
+"Keluargamu?"
+
+"Cabang lama. Nama Vorthax."
+
+Kael pernah mendengar nama itu dalam cerita tentang necromancer yang diasingkan bahkan oleh kelompok mereka sendiri.
+
+"Vorthax sang Pengkhianat?"
+
+Sylvara mengangguk pendek.
+
+"Simbolnya lebih tua daripada gelar itu. Keluargaku berhenti menggunakannya beberapa generasi lalu."
+
+Zireth membungkus liontin dengan kain.
+
+"Ini punya resonansi aktif. Jangan sentuh langsung."
+
+Kael menatap simbol itu.
+
+Spiral retak di Kristal Gema.
+
+Rune di Kragmar.
+
+Sekarang liontin Vorthax.
+
+Satu pola terus muncul di tempat berbeda.
+
+Dan jejaknya semua menuju Puncak Beku.
+
+Kael mengambil buku dari altar.
+
+"Kita naik sekarang."
+
+Di halaman terakhir, indikator merah sudah melewati setengah.

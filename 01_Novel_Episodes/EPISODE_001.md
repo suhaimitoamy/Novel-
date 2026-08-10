@@ -2,72 +2,172 @@
 
 ## Prolog
 
-Sebelum waktu berjalan seperti yang kita kenal, hanya ada Kekosongan yang membentang tanpa batas. Dari kehampaan gelap itu, lahirlah Tiga Wujud Pertama: Aelarion sang Cahaya dan sumber segala sihir, Zhorak sang perwujudan Bumi dan api inti, serta Malgorath sang entitas Kegelapan dan bayangan murni.
+Zerath tidak lahir dari kedamaian.
 
-Keseimbangan di antara ketiganya terlalu rapuh untuk bertahan. Perselisihan memicu Perang Primordial, sebuah benturan kosmik dahsyat yang merobek struktur realitas. Dari luka alam semesta itu, lahirlah dunia baru bernama Zerath.
+Jauh sebelum nama-nama kerajaan ditulis di peta, tiga kekuatan purba pernah saling menghantam sampai batas antara tanah, langit, dan ruang itu sendiri robek. Orang-orang kemudian memberi mereka nama: Aelarion, Zhorak, dan Malgorath. Dari perang ketiganya tersisa dua hal—sebuah dunia yang terluka, dan dua belas Fragmen yang membawa sisa kekuatan para Wujud Pertama.
 
-Perang agung tersebut meninggalkan warisan mematikan. Ketika kekuatan Tiga Wujud akhirnya mereda, inti sari mereka terlepas dan pecah menjadi Dua Belas Fragmen. Serpihan-serpihan ini membawa cahaya murni Aelarion, bara api Zhorak yang tak pernah padam, dan bisikan merusak Malgorath.
+Ribuan tahun setelah perang itu berakhir, manusia, Elf, Dwarf, dan bangsa-bangsa lain membangun peradaban di atas luka yang tidak pernah benar-benar sembuh. Mereka menambang energi dari tanah, mendirikan kekaisaran, lalu saling membunuh untuk sesuatu yang bahkan tidak mereka pahami sepenuhnya.
 
-Fragmen-fragmen itu jatuh bak bintang mati ke dunia Zerath yang baru lahir. Mereka tertidur di kedalamannya, menjadi jantung kekuatan yang kelak diperebutkan. Kekaisaran-kekaisaran besar membangun fondasi peradaban di atas energi mereka. Ambisi dan keserakahan meletuskan perang besar seperti Gema Gelap, semata-mata demi memonopoli sisa kekuatan para dewa.
+Sebagian besar Fragmen tertidur.
 
-Kini, setelah ratusan tahun keheningan yang menipu, sesuatu di kedalaman Zerath mulai menggeliat. Fragmen-fragmen kuno itu kembali berdenyut, mengirimkan getaran perlahan melintasi benua. Di tengah pusaran takdir yang tak terhindarkan itu, percikan api lain menyala terang dalam darah seorang bocah.
-
-Percikan yang tak disadarinya akan menjadi kunci pembuka—atau justru pemicu akhir dari segalanya.
-
-Api itu bernama Kael.
+Sampai malam ketika Aranyel terbakar.
 
 ***
 
-Kael membuka mata perlahan.
+Kael sadar karena rasa pahit memenuhi mulutnya.
 
-Debu menutupi pandangannya. Asap tipis menggantung di antara reruntuhan, membawa bau kayu hangus dan sesuatu yang tidak ingin dia kenali.
+Untuk beberapa saat dia tidak tahu sedang berbaring di mana. Debu menempel di lidah. Asap menggantung rendah, membuat setiap tarikan napas terasa seperti menelan bara. Telinganya berdenging begitu keras sampai dunia terdengar jauh.
 
-Udara terasa dingin di kulitnya, tetapi panas masih merambat dari tanah.
+Dia mengangkat kepala.
 
-Kael mencoba bangkit. Tangannya menyentuh abu.
+Rumah-rumah di sekelilingnya sudah tidak berbentuk rumah.
 
-Barulah dia menyadari tempat itu adalah desanya.
+Dinding batu roboh. Atap kayu berubah menjadi arang. Pohon suci Aranyel—pohon yang dulu begitu besar sampai Kael kecil percaya cabangnya menyangga langit—tinggal batang hitam yang terbelah dari tengah.
 
-Pohon suci Aranyel yang biasanya menjulang megah kini tersisa sebagai batang hitam yang retak. Api kecil masih menjilati sisa-sisa kayu di sekitarnya.
+Kael menatapnya lama.
 
-"Ibu?" suara Kael serak.
+Lalu ingatan menemukan namanya.
 
-Dia menunduk. Tangannya bergetar hebat. Darah mengering di telapak tangannya.
+Desa.
 
-Retakan hitam halus merambat di sepanjang lengannya, mengikuti jalur urat nadinya. Dari balik kulitnya, cahaya merah redup berdenyut pelan.
+Rumah.
 
-Panas dari dalam tubuhnya terasa seolah ingin merobek dagingnya keluar.
+Ibunya.
 
-"Kael!"
+"Ibu?"
 
-Suara langkah kaki berat terdengar memecah keheningan puing. Seorang penjaga Elf muncul dari balik asap. Wajahnya tertutup jelaga, matanya liar, dan ujung tombaknya bergetar ke arah Kael.
+Suara yang keluar begitu serak sehingga dia sendiri hampir tidak mengenalinya.
 
-"Kael, kau... apa yang kau lakukan?" Suara penjaga itu serak, dipenuhi ketakutan dan kemarahan.
+Tidak ada jawaban.
 
-"Aku tidak tahu." Kael mundur selangkah. "Aku tidak tahu apa yang terjadi."
+Kael mendorong tubuhnya bangkit. Telapak tangannya menekan tanah yang masih hangat. Sesuatu yang lengket menempel di kulitnya.
 
-"Kau membakar semuanya!"
+Darah.
 
-Penjaga itu menerjang maju. Ujung tombaknya terarah ke dada Kael.
+Dia membalik tangan.
 
-Namun sebelum besi itu menyentuh kulitnya, dadanya terasa panas.
+Bukan hanya darah.
 
-Kekuatan asing meledak dari dalam tubuh Kael. Gelombang tak kasatmata menghantam udara, merobek jarak di antara mereka. Penjaga Elf itu terlempar ke belakang, menabrak sisa tembok batu hingga hancur.
+Garis-garis hitam tipis menjalar dari pergelangan ke lengan bawah, mengikuti uratnya seperti retakan pada kaca. Di bawah kulit, cahaya merah berdenyut sekali.
 
-Kael jatuh berlutut, terengah-engah. Api merah pucat menari di ujung jari-jarinya, sebelum perlahan padam.
+Dua kali.
 
-Dia menatap tangannya yang berasap. Ingatan yang terputus kembali menghantam pikirannya. Sebuah batu aneh di tengah reruntuhan. Cahaya ungu gelap. Sentuhan yang membakar kewarasannya. Peringatan ibunya terngiang kembali, melarangnya menyentuh batu yang bukan dari dunia ini.
+Tiga kali.
 
-Kini, Fragmen itu hidup di dalam dadanya.
+Kael membeku.
 
-*Kael... Kau adalah... Api yang ditakdirkan menghancurkan dunia ini.*
+Denyut itu tidak mengikuti jantungnya.
 
-Suara itu bergema, entah dari mana. Bukan dari udara, melainkan dari dalam kepalanya sendiri.
+Panas tiba-tiba tumbuh di balik tulang dada. Dia mencengkeram bajunya dan teringat sepotong kejadian yang tidak lengkap: sebuah batu gelap di tengah kobaran, melayang beberapa jengkal di atas tanah. Cahaya ungu di celah permukaannya. Tangan Kael terulur meski suara ibunya berteriak agar dia menjauh.
 
-Kael mendongak. Langit di atas Aranyel tak lagi cerah. Awan gelap menggulung, diwarnai kilatan petir ungu yang asing.
+Lalu putih.
 
-Di batas cakrawala, barisan sosok berjubah mulai terlihat. Arcanum Wardens dari kekaisaran. Mereka datang.
+Hanya putih.
 
-Kael mengepalkan tangannya kuat-kuat hingga kukunya melukai telapak tangannya sendiri. Rasa sakit itu setidaknya membuktikan bahwa dia masih hidup.
+"Apa yang kulakukan...?"
 
-Jika memang takdirnya adalah membawa kehancuran, dia akan melawan takdir itu sendiri.
+Batu itu sudah tidak ada.
+
+Namun sesuatu kini berdetak di dalam dirinya.
+
+Kerikil bergeser di belakang reruntuhan.
+
+Kael berbalik.
+
+Seorang penjaga Elf muncul dari asap dengan tombak terangkat. Sebagian rambutnya terbakar. Darah mengalir dari pelipis ke rahang. Ketika matanya menemukan Kael, wajahnya berubah—bukan lega, melainkan takut.
+
+"Kael."
+
+Ujung tombak turun mengarah ke dada Kael.
+
+"Tunggu." Kael mengangkat kedua tangan. "Aku mencari ibuku. Aku tidak tahu—"
+
+"Kau ada di pusat ledakan."
+
+Kael menelan ludah.
+
+"Aku tidak ingat."
+
+"Semua orang mati dan kau tidak ingat?"
+
+Kata *mati* menghantam lebih keras daripada teriakan.
+
+Kael memandang sekeliling lagi. Tadi dia mencari tanda-tanda kehidupan. Sekarang dia melihat apa yang sengaja tidak ingin dilihatnya: tangan di bawah balok runtuh. Ujung jubah anak-anak. Tubuh yang ditutupi abu di dekat sumur.
+
+Napasnya tersendat.
+
+"Tidak..."
+
+Penjaga itu maju.
+
+"Jangan mendekat."
+
+"Kael—"
+
+"Aku bilang jangan!"
+
+Panas di dadanya meledak.
+
+Bukan api.
+
+Udara di antara mereka bergetar seperti permukaan air yang dipukul. Tombak melengkung. Tanah retak dalam lingkaran. Penjaga Elf terangkat dari kakinya dan terlempar ke sisa dinding batu.
+
+Bunyi benturannya membuat Kael kembali sadar.
+
+Dia jatuh berlutut.
+
+"Tidak. Tidak, tidak..."
+
+Jari-jarinya berasap. Nyala merah pucat muncul di ujung kuku lalu padam sendiri.
+
+Penjaga itu masih bernapas, tetapi tidak bangun.
+
+Kael ingin mendekat. Kakinya tidak bergerak.
+
+Kemudian sebuah suara menyentuh pikirannya.
+
+Bukan suara dari arah tertentu. Tidak datang melalui telinga.
+
+*Kael.*
+
+Dia mencengkeram kepala.
+
+*Jangan dengarkan.*
+
+*Api yang memilih wadahnya tidak bertanya apakah wadah itu siap terbakar.*
+
+"Keluar dari kepalaku."
+
+Tidak ada jawaban, hanya satu denyut berat di dalam dada.
+
+Kael mengangkat wajah ke langit.
+
+Awan di atas Aranyel berputar membentuk pusaran gelap. Petir ungu melintas tanpa suara. Di jalan utama, jauh di balik asap, cahaya-cahaya putih mulai muncul di antara pepohonan.
+
+Satu baris.
+
+Kemudian dua.
+
+Jubah panjang. Tongkat rune. Lambang mata Arcanum pada bahu.
+
+Wardens.
+
+Kael pernah melihat mereka sekali saat masih kecil. Mereka datang untuk mengambil seorang penyihir tua yang dituduh menyimpan artefak terlarang. Lelaki itu tidak pernah kembali.
+
+Sekarang mereka datang ke Aranyel.
+
+Dan tidak ada alasan bagi Kael untuk berpura-pura tidak tahu siapa yang mereka cari.
+
+Dia memaksa tubuhnya berdiri.
+
+Di belakangnya, desanya terbakar.
+
+Di depannya, para Warden semakin dekat.
+
+Kael menekan telapak tangan ke dada, tepat di atas denyut asing itu.
+
+Dia tidak tahu apakah dirinya korban, pelaku, atau sesuatu di antara keduanya.
+
+Yang dia tahu hanya satu.
+
+Jika tetap tinggal, dia tidak akan pernah sempat mencari jawabannya.

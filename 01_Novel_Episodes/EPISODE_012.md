@@ -1,67 +1,169 @@
 # Episode 012 — Persimpangan Jalan Keempat
 
-Kael, Sylvara, dan Zireth kembali ke Akademi Vorth Aereth setelah gagal merebut Fragmen keempat. Suasana di halaman utama terasa tegang.
+Mereka kembali ke Vorth Aereth dalam keadaan kalah.
 
-Tiga kelompok telah menunggu mereka.
+Kael mengira bagian terburuk adalah harus mengatakannya kepada Melkisha.
 
-Kelompok pertama dipimpin sosok berjubah putih keemasan dengan topeng emas tanpa cela. Arkanis, perwakilan Arcanum Wardens, melangkah maju.
+Dia salah.
 
-“Kael Drayven, kekuatan yang kau bawa terlalu berbahaya untuk makhluk fana. Serahkan Fragmen itu. Kami akan menyegelnya agar tidak pernah disalahgunakan.”
+Tiga kelompok menunggu di halaman akademi.
 
-Di sisi lain berdiri Nyrah bersama Choir of Silence. Dia tidak berbicara. Rune bercahaya terbentuk di udara di hadapan Kael.
+Di sisi timur berdiri Arcanum Wardens dengan jubah putih-keemasan. Pemimpinnya memakai topeng emas polos. Kael mengenali lambang pada bahu mereka dan tubuhnya langsung menegang.
 
-*Lupakan kekuatan itu. Lepaskan ingatanmu. Kembalilah pada keheningan dan temukan kedamaian.*
+Di sisi barat berdiri Nyrah bersama beberapa anggota Choir of Silence.
 
-Bayangan di belakang barisan murid bergerak. Rowan muncul dengan senyum tenang.
+Dan di bawah tangga utama, seolah tempat itu memang miliknya, Rowan bersandar pada pilar batu.
 
-“Jangan dengarkan mereka,” katanya. “Kekuatan itu hakmu. Hancurkan aturan lama yang mengekangmu. Bakar dunia yang busuk ini sampai ke akar, lalu kita bangun sesuatu yang lebih kuat dari abunya.”
+"Apa ini?" tanya Kael.
 
-Kael berdiri di tengah tiga pilihan.
+Melkisha berdiri di balkon atas. "Konsekuensi dari terlalu banyak orang mengetahui kau masih hidup."
 
-Arkanis menawarkan kendali mutlak. Nyrah menawarkan pelarian dari seluruh luka. Rowan menawarkan kehancuran.
+Pria bertopeng emas maju lebih dulu.
 
-Melkisha mengamati dari balkon tanpa ikut campur. Zireth berdiri di samping Kael, wajahnya sulit dibaca.
+"Kael Drayven. Aku Arkanis."
 
-Sebagian dari diri Kael ingin menyerahkan Fragmen agar dia tak pernah melukai siapa pun lagi. Sebagian lain ingin melupakan Aranyel, ibunya, dan semua suara yang terus mengejarnya. Di tempat paling gelap dalam dirinya, tawaran Rowan terdengar menggoda.
+"Aku tahu kelompokmu."
 
-Kael menarik napas.
+"Kalau begitu kau tahu kami tidak perlu menjadi musuh."
 
-“Aku menolak.”
+Kael hampir tertawa.
 
-Arkanis memiringkan kepala. “Apa?”
+Arkanis mengangkat satu tangan sebelum dia menyela.
 
-Kael menatap topeng emasnya. “Aku tidak akan menyerahkan kekuatanku untuk disegel.”
+"Aranyel adalah tragedi. Aku tidak datang untuk mengadili sesuatu yang belum kami pahami. Aku datang menawarkan penyegelan. Fragmen di tubuhmu dapat dibuat tidak aktif. Kau tidak akan melukai siapa pun dengan kekuatan itu lagi."
 
-Dia beralih kepada Nyrah. “Aku juga tidak akan menghapus diriku demi kedamaian palsu.”
+Kalimat terakhir menemukan titik yang masih sakit sejak kematian Darek.
 
-Terakhir, tatapannya berhenti pada Rowan.
+Kael membenci itu.
 
-“Dan aku tidak akan menghancurkan dunia hanya karena dunia pernah menghancurkanku.”
+Nyrah mengangkat tangan.
 
-Api merah dan biru berputar di sekeliling tubuh Kael, diselingi percikan ungu dari lengan kirinya.
+Rune cahaya muncul di udara.
 
-“Kalian menawarkan jalan yang sudah pernah dipilih orang lain. Kendali, penyangkalan, dan kehancuran. Tak satu pun membawa keseimbangan bagi Zerath.”
+*Ada jalan yang lebih sunyi.*
 
-Kael melangkah melewati mereka.
+Rune berikutnya menyusul.
 
-“Aku akan mencari jalanku sendiri. Jalan Keempat.”
+*Ingatan dapat dilepaskan. Rasa bersalah tidak harus dibawa selamanya.*
 
-Arkanis terdiam di balik topeng. Nyrah menundukkan kepala sedikit. Rowan tertawa pelan.
+Kael menatap Nyrah.
 
-“Pilihan menarik,” katanya. “Tapi jalan yang dibuat sendiri biasanya paling sepi—dan paling berbahaya.”
+"Kau ingin menghapus ingatanku?"
 
-Lengan mekanis Zireth mendadak berbunyi. Peta energi muncul di udara.
+Pemimpin Choir tidak mengangguk atau menggeleng.
 
-“Sinyal baru,” katanya. “Energi Fragmen dalam jumlah besar terdeteksi di Gurun Bisikan.”
+Tulisan baru terbentuk.
 
-Sebuah titik ungu menyala pada peta.
+*Hanya yang kau izinkan.*
 
-“Fragmen kelima,” ujar Sylvara.
+Lalu Rowan bertepuk tangan pelan.
 
-Kael menatap arah gurun yang jauh.
+Semua mata beralih kepadanya.
 
-“Kalau begitu, perburuan dimulai lagi.”
+"Mereka punya cara yang indah untuk menyebut kandang."
 
-Dia meninggalkan tiga faksi itu di belakang. Sylvara dan Zireth mengikutinya tanpa ragu.
+Arkanis meraih tongkatnya.
 
-Kali ini, Kael akan berjalan dengan caranya sendiri.
+"Diam."
+
+Rowan tidak memedulikan.
+
+Dia menatap Kael.
+
+"Satu pihak ingin mematikan kekuatanmu. Satu pihak ingin mematikan bagian dirimu yang takut pada kekuatan itu."
+
+"Dan kau?" tanya Kael.
+
+"Aku ingin kau berhenti meminta izin pada siapa pun."
+
+"Termasuk dirimu?"
+
+Senyum Rowan menghilang sesaat.
+
+"Terutama diriku."
+
+Kael berdiri di tengah tiga tawaran.
+
+Menyegel Fragmen berarti mungkin tidak akan ada Darek kedua.
+
+Menghapus ingatan berarti mungkin dia bisa tidur tanpa melihat Aranyel setiap kali memejamkan mata.
+
+Mengikuti Rowan berarti menerima bahwa kekuatan adalah satu-satunya jawaban yang tersisa.
+
+Semua terdengar masuk akal jika dipikirkan cukup lama.
+
+Itulah yang membuatnya berbahaya.
+
+Kael menatap tangannya.
+
+Di kanan, bekas panas Fragmen pertama.
+
+Di kiri, dingin Fragmen ketiga dan retakan ungu yang tidak dia pahami.
+
+Dia teringat Penjaga Diam. Cermin. Darek. Hollowed.
+
+Setiap orang terus memberinya pilihan dalam bentuk dua sisi: manusia atau monster, kendali atau kebebasan, ingat atau lupakan, selamatkan atau hancurkan.
+
+Kael muak.
+
+"Tidak."
+
+Arkanis memiringkan kepala.
+
+"Tidak pada siapa?"
+
+"Kalian semua."
+
+Kael menatap Warden lebih dulu.
+
+"Aku tidak akan menyerahkan tubuhku kepada orang yang menganggap semua yang tidak dipahami harus disegel."
+
+Lalu Nyrah.
+
+"Aku juga tidak akan memotong bagian dari diriku hanya supaya hidup terasa lebih ringan."
+
+Terakhir Rowan.
+
+"Dan aku tidak akan membakar dunia hanya karena sebagian dunia pantas dibenci."
+
+Rowan mengangkat alis.
+
+"Lalu apa yang tersisa?"
+
+Kael tidak punya nama untuk jawabannya sampai saat itu.
+
+"Jalan keempat."
+
+Beberapa murid di halaman saling berpandangan.
+
+Kael melanjutkan sebelum keberaniannya habis.
+
+"Aku akan belajar menggunakan apa yang ada di tubuhku tanpa menyerahkannya pada kalian. Kalau tidak ada cara, aku akan mencarinya. Kalau belum pernah ada, aku akan membuatnya."
+
+Rowan tertawa pendek, bukan mengejek.
+
+"Itu terdengar menyakitkan."
+
+"Aku sudah terbiasa."
+
+Lengan mekanis Zireth tiba-tiba berbunyi.
+
+Proyeksi peta muncul di udara. Sebuah titik ungu menyala jauh di selatan-timur.
+
+"Lonjakan besar," katanya. "Gurun Bisikan."
+
+Melkisha turun satu anak tangga.
+
+"Fragmen kelima?"
+
+"Kemungkinan tinggi."
+
+Kael menatap titik itu.
+
+Arkanis belum pergi. Nyrah masih berdiri. Rowan masih mengamati.
+
+Tidak satu pun pilihan di belakangnya menjadi lebih sederhana.
+
+Namun untuk pertama kalinya, Kael melangkah pergi bukan karena sedang lari.
+
+Dia sudah memilih arah.

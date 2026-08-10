@@ -1,71 +1,177 @@
 # Episode 003 — Buronan Dimensi
 
-Kael dan Sylvara berlari di atas jalur bebatuan yang licin. Hujan turun semakin deras, mengaburkan pepohonan di depan mereka.
+Hujan turun sebelum fajar dan tidak berhenti.
 
-“Sedikit lagi,” ujar Sylvara di sela napas. “Begitu melewati batas Aranyel, pengejaran mereka akan melambat.”
+Jalur batu berubah licin. Air mengalir di sela akar, membawa tanah dan daun mati ke lereng di bawah. Kael sudah dua kali terpeleset ketika Sylvara mendadak berhenti di depan reruntuhan gerbang yang nyaris tertelan lumut.
 
-“Lalu kita aman?”
+"Kenapa berhenti?"
 
-Sylvara belum sempat menjawab ketika kilatan sihir merah menghantam jalan di belakang mereka. Batu pecah dan serpihannya melesat melewati kepala Kael.
+Sylvara tidak menjawab. Telinganya bergerak sedikit.
 
-“Mereka membawa Void Hunter,” desis Sylvara. “Cepat sekali.”
+Dari belakang terdengar suara yang tidak menyerupai langkah manusia—gesekan berat, berulang, diselingi dengusan rendah.
 
-Kael terhuyung. Fragmen di dadanya berdenyut liar, membuat pandangannya terbelah dua. Suara yang selama ini bersembunyi di balik pikirannya kembali terdengar.
+Wajah Sylvara berubah.
 
-*Lari bukanlah pilihan. Hadapi bentuk pertamamu.*
+"Mereka membawa pemburu."
 
-“Kepalaku...” Kael menekan pelipis. “Suara itu kembali.”
+"Warden?"
 
-Sylvara meraih lengannya dan menyeretnya menuju reruntuhan gerbang batu yang tertutup kabut.
+"Lebih buruk."
 
-“Masuk. Ini jalan menuju Zona Fragmented. Para pemburu tidak akan mengikuti kecuali mereka siap kehilangan kewarasan.”
+Cahaya merah menghantam jalan beberapa meter di belakang mereka. Batu pecah. Kael menunduk ketika serpihannya melintas di atas kepala.
 
-Begitu melewati gerbang, dunia berubah.
+Di antara hujan terlihat sosok berkaki empat berlapis zirah rune, terlalu besar untuk disebut serigala dan terlalu kurus untuk beruang. Tidak ada mata pada kepalanya. Sebagai gantinya, lingkaran simbol Arcanum menyala di dahi.
 
-Tanah melayang dalam bongkahan-bongkahan besar. Sungai mengalir ke atas, menembus langit yang terbalik. Setiap langkah terasa ringan sesaat, lalu mendadak berat ketika gravitasi bergeser tanpa pola.
+Void Hunter.
 
-Kael memandangi tempat itu dengan tengkuk meremang. “Dunia ini seperti sudah pecah.”
+"Masuk." Sylvara menunjuk gerbang tua.
 
-“Ini celah di antara dunia yang nyata dan dunia yang seharusnya tidak ada,” jawab Sylvara. Mereka meniti lempeng batu yang melayang di atas kehampaan. “Fragmen aktif dapat merobek lapisan dimensi. Banyak orang masuk ke sini. Sedikit yang menemukan jalan pulang.”
+Di balik lengkungan hanya ada kabut.
 
-Anehnya, Kael tidak merasa asing.
+Kael ragu. "Ke mana?"
 
-Tempat itu kacau, tetapi denyut di dadanya justru menjadi lebih teratur. Seolah-olah sebagian dari dirinya mengenali kerusakan di sekeliling mereka.
+"Kalau kita tetap di sini, kau bisa menanyakannya pada pemburu itu."
 
-Auman rendah mengguncang udara.
+Raungan mengguncang pepohonan.
 
-Dari pusaran gelap di langit, seekor makhluk bermata tiga turun dengan tubuh yang berubah-ubah seperti asap.
+Kael memilih kabut.
 
-“Shadowblood Beast!” Sylvara menarik panah rune dan melepaskannya.
+Begitu melangkah melewati gerbang, gravitasi menghilang sesaat.
 
-Anak panah itu menembus tubuh makhluk tersebut tanpa meninggalkan luka.
+Perutnya terangkat. Langkah berikutnya menghantam tanah begitu keras sampai lututnya nyeri.
 
-“Ilusi,” katanya cepat. “Ia membaca ketakutanmu. Jangan biarkan—”
+Dunia di seberang bukan hutan.
 
-Wujud makhluk itu mencair sebelum berubah menjadi seorang perempuan dengan kulit hangus dan pakaian yang terbakar.
+Bongkahan tanah melayang di udara tanpa penyangga. Sungai mengalir ke atas, lenyap ke langit yang tampak seperti cermin pecah. Di kejauhan, gunung terlihat terbalik dengan puncaknya menggantung ke bawah.
 
-Kael membeku.
+Kael lupa pada pengejar selama beberapa detik.
 
-“Ibu?”
+"Apa... ini?"
 
-*Kaulah penyebabnya,* bisik sosok itu dengan suara yang sangat dia kenal. *Kau membakar kami semua.*
+"Zona Fragmented." Sylvara langsung berjalan. "Jangan menatap satu tempat terlalu lama. Jangan mengikuti suara. Dan kalau melihat dirimu sendiri berdiri di tempat yang tidak seharusnya—jangan dekati."
 
-Api merah menyembur dari dada Kael dan membungkus tubuhnya. Panasnya memaksa Sylvara mundur.
+Kael menatapnya.
 
-“Diam!”
+"Kau bisa mulai dengan penjelasan yang tidak lebih menakutkan?"
 
-Ledakan energi menghantam bayangan itu hingga tercerai-berai. Kael berdiri di tengah kobaran api, tubuhnya gemetar, tetapi tatapannya tidak lagi menghindar.
+"Tidak."
 
-“Aku akan mencari tahu siapa diriku,” katanya. “Dan tak akan kubiarkan siapa pun memakai ingatanku untuk mengendalikanku.”
+Anehnya, Fragmen di dadanya menjadi tenang.
 
-Api di kulitnya belum padam. Ia bergerak liar, seolah masih mencari sesuatu untuk dibakar.
+Sejak Aranyel terbakar, benda itu terus terasa seperti bara yang menekan tulang. Di sini denyutnya melambat, menyelaraskan diri dengan getaran halus di udara.
 
-Sylvara mengamatinya dengan hati-hati. “Kau baru menyentuh potensi tingkat pertama. Masalahnya, Fragmen itu tampaknya menginginkan lebih.”
+Kael tidak menyukai betapa alaminya perasaan itu.
 
-Kael menatap nyala api di telapak tangannya.
+Mereka meniti lempeng batu sempit di atas jurang tanpa dasar. Setiap beberapa langkah, bobot tubuh berubah. Sekali Kael hampir melayang dari permukaan sebelum Sylvara menarik lengannya.
 
-“Biarkan ia mencoba. Aku tidak akan tunduk.”
+Kemudian terdengar auman.
 
-Jauh di luar Zona Fragmented, Rowan berdiri di atas batu tinggi. Jubah hitamnya berkibar diterpa angin.
+Bukan dari belakang.
 
-“Awal yang bagus, Kael,” gumamnya. “Tapi suatu hari nanti, kau sendiri yang akan memohon agar beban itu dilepaskan.”
+Dari atas.
+
+Bayangan turun dari langit terbalik. Tubuhnya seperti asap yang dipaksa mengambil bentuk binatang. Tiga mata pucat membuka satu demi satu pada kepalanya.
+
+Sylvara menembakkan panah.
+
+Anak panah menembus dada makhluk itu tanpa hambatan.
+
+"Jangan serang," katanya cepat. "Itu bukan tubuh."
+
+Makhluk tersebut berhenti.
+
+Ketiga matanya menatap Kael.
+
+Lalu bentuknya mencair.
+
+Kael tidak sempat memalingkan wajah.
+
+Asap itu menjadi seorang perempuan.
+
+Rambut panjang. Bahu yang selalu sedikit miring saat lelah. Gaun rumah berwarna hijau yang pernah dijahit ulang berkali-kali.
+
+Kulitnya hangus.
+
+"Ibu."
+
+Sylvara memegang bahu Kael. "Jangan dengarkan."
+
+Sosok itu membuka mulut.
+
+*Kenapa kau menyentuhnya?*
+
+Kael tidak bisa bergerak.
+
+*Ibu sudah bilang jangan.*
+
+Panas tumbuh di dadanya.
+
+*Lihat apa yang kau lakukan pada kami.*
+
+Api menyala di lengan Kael.
+
+"Kael."
+
+*Kalau kau tidak lahir—*
+
+"Cukup!"
+
+Gelombang merah meledak dari tubuhnya.
+
+Sylvara terlempar ke belakang. Lempeng batu di bawah kaki mereka retak. Sosok ibunya tercerai menjadi asap hitam, tetapi nyala di kulit Kael tidak padam.
+
+Dia berdiri terengah-engah, kedua tangan gemetar.
+
+Di sela amarah, satu kesadaran yang lebih dingin muncul.
+
+Makhluk itu tidak menciptakan kata-kata baru.
+
+Ia hanya mengambil hal yang sudah ada di dalam dirinya.
+
+Ketakutan bahwa semua ini memang salahnya.
+
+Kael menutup mata.
+
+Api di lengannya mengecil sedikit.
+
+"Kau baik-baik saja?" Sylvara bangkit sambil meringis.
+
+Kael ingin menjawab iya. Kata itu tidak keluar.
+
+"Aku hampir membakarmu."
+
+"Hampir."
+
+"Itu tidak membuatnya lebih baik."
+
+Sylvara mendekat satu langkah, tetap menjaga jarak dari nyala.
+
+"Tidak. Tapi kau berhenti. Itu beda."
+
+Kael menatap sisa asap makhluk yang menghilang ke udara.
+
+"Ia menggunakan wajah ibuku karena aku takut padanya."
+
+"Bukan takut pada ibumu."
+
+Kael tahu maksudnya.
+
+Mereka melanjutkan perjalanan.
+
+Beberapa saat kemudian, suara ledakan samar terdengar dari gerbang yang mereka tinggalkan. Void Hunter mencoba masuk, tetapi ruang di belakang mereka bergetar dan melipat dirinya sendiri.
+
+Kael menoleh sekali.
+
+Di permukaan batu yang mengambang jauh di belakang, sesosok manusia berdiri.
+
+Terlalu jauh untuk dikenali.
+
+Rambutnya terlihat pucat di bawah cahaya aneh Zona Fragmented.
+
+Kael berkedip.
+
+Sosok itu sudah tidak ada.
+
+Dia tidak memberi tahu Sylvara.
+
+Belum.

@@ -1,63 +1,137 @@
 # Episode 021 — Jejak di Pasir
 
-Kael masih memandangi pria di depan api unggun.
+Kulit palsu itu pecah lebih jauh ketika Zireth menghantam rahangnya.
 
-“Zireth? Pengawas Vorth Aereth? Di tengah Gurun Bisikan?”
+Potongan tipis menyerupai daging jatuh ke pasir. Di bawahnya tampak rangka kristal, kawat hitam, dan rune yang bergerak seperti urat.
 
-Pria itu tertawa kecil. “Kau tampak sangat terkejut, Kael Drayven. Melkisha tidak memberi tahu bahwa dia mengirim seseorang untuk memastikan aset berharganya tidak meledak sebelum waktunya?”
+"Kau bukan manusia," kata Sylvara.
 
-“Melkisha yang mengirimmu?” Kael tidak menurunkan kewaspadaan. “Bagaimana kau sampai di sini begitu cepat? Dan lengan itu?”
+Sosok itu memiringkan kepala.
 
-“Aku punya cara sendiri untuk bepergian.” Dia menepuk tangan mekanisnya. “Yang ini hasil eksperimen pribadi. Lebih berguna daripada menunggu sihir penyembuhan bekerja.”
+"Definisi yang sempit."
 
-Kael teringat jejak yang mereka temukan.
+Ia melepaskan lengan dari tangkisan Zireth dan mundur ke dekat kolam. Gerakannya tidak lagi mencoba meniru manusia. Setiap langkah presisi, cepat, tanpa bobot berlebih.
 
-“Sepatu bot di dekat Sky-skiff dan kawah. Itu milikmu?”
+Kael menjaga jarak.
 
-“Tepat.” Zireth kembali duduk di dekat api. “Aku mengikuti jatuhnya bintang ungu. Aku juga memeriksa bangkai pesawat itu, tetapi mesinnya sudah tidak dapat diselamatkan.”
+"Dari mana kau mendapat ingatan Zireth?"
 
-Dia membalik daging kadal di atas bara.
+"Pengamatan. Jejak resonansi. Percakapan yang tidak kalian sadari sedang direkam."
 
-“Setelah itu, aku melihat cahaya dari kawah. Pertarungan besar?”
+Zireth mengumpat pelan.
 
-“Kau melihat kami menghadapi Penjaga Kawah?”
+"Sejak akademi?"
 
-“Ledakan energi sebesar itu sulit dilewatkan.” Tatapan Zireth beralih ke dada Kael. “Jadi, kau mendapatkan Fragmen kelima?”
+"Lebih awal."
 
-Kael menggeleng. “Aku memilih meninggalkannya.”
+Jawaban itu membuat Kael merasakan hawa dingin yang tidak berasal dari Fragmen biru.
 
-Alis Zireth terangkat. “Kau menolak kekuatan sebesar itu?”
+"Aranyel?"
 
-“Fragmen tersebut sedang menyembuhkan Zerath. Mengambilnya akan merusak keseimbangan.”
+Sosok itu tidak menjawab.
 
-“Keputusan yang tidak biasa untuk orang dengan beban sepertimu.” Zireth menyipitkan mata. “Apa yang kau bawa pulang dari kawah?”
+Sebaliknya, wajahnya berubah.
 
-“Petunjuk. Gema Kebenaran di bawah Langit Beku.”
+Garis kristal bergerak di bawah kulit palsu, menggeser bentuk tulang pipi dan rahang. Beberapa detik kemudian Kael melihat wajahnya sendiri.
 
-Zireth mengulang kata-kata itu pelan. “Utara. Pegunungan Es Karag Thürm atau wilayah Iskali.”
+Mata merah dan biru.
 
-Dia mengambil daging dari api.
+Bekas luka yang sama.
 
-“Sepertinya tujuan kita searah.”
+"Hentikan."
 
-“Aku belum percaya padamu,” kata Kael. “Mengetahui namaku dan Vorth Aereth bukan bukti bahwa Melkisha mengirimmu.”
+Salinan Kael tersenyum.
 
-Suara Sylvara datang dari tebing.
+"Lebih efektif?"
 
-“Kael, jangan lengah. Dia bisa berbohong.”
+Kael menyerang.
 
-Zireth mengangkat tangan ke arah tempat persembunyiannya. “Halo, Pemanah Elf. Jika berniat membunuh kalian, aku punya banyak kesempatan sejak kalian keluar dari kawah.”
+Zerath's Fang memotong udara karena makhluk itu sudah bergeser sebelum bilah tiba. Ia membaca perubahan energi Kael—persis seperti bayangan di zona mati.
 
-Dia menatap Kael lagi.
+Namun kali ini Kael sudah pernah menghadapi pola itu.
 
-“Percaya atau tidak, terserah. Tapi aku tahu namamu, Fragmen kelima, dan tujuan akademi. Anggap itu bukti awal.”
+Dia mematikan aliran sihir.
 
-Zireth menunjuk daging panggang.
+Serangan kedua murni fisik.
 
-“Sekarang, kau mau makan atau terus berdiri di sana? Perjalanan ke utara masih panjang.”
+Bilah mengenai bahu palsu dan memecahkan lapisan kristal.
 
-Kael tetap ragu. Kemunculan pria itu terlalu tepat, dan jawabannya selalu menyisakan ruang untuk kebohongan.
+Makhluk itu mundur.
 
-Namun mereka membutuhkan informasi dan jalan keluar dari gurun.
+"Adaptasi dicatat."
 
-Di bawah langit senja, Kael harus memutuskan apakah bantuan tersebut pantas menerima kepercayaan—meski hanya untuk sementara.
+"Aku bukan bahan penelitianmu."
+
+"Semua yang hidup meninggalkan data."
+
+Sylvara menembakkan panah ke kaki makhluk. Zireth mengirim pulsa sonik ke samping tubuhnya. Kael menutup jalur ketiga.
+
+Mereka tidak memberi ruang untuk pola sempurna.
+
+Makhluk itu terpaksa bertahan.
+
+Kael mulai mendengar frekuensi inti di balik tubuh tiruan—satu nada tipis yang berulang setiap tujuh detik, sama seperti gerakannya saat duduk di api unggun.
+
+"Zireth, tujuh detik."
+
+Zireth langsung mengerti.
+
+Dia menghitung tanpa suara dengan kedipan mata mekanis.
+
+Pada siklus berikutnya, pulsa sonik menghantam tepat ketika inti makhluk membuka jalur energi ke seluruh tubuh.
+
+Kael menyusul dengan resonansi pendek.
+
+Kristal di dada sosok palsu retak.
+
+Ia tersentak.
+
+Wajah Kael di kepalanya rusak setengah, menampilkan wajah Zireth di bawahnya, lalu wajah orang asing yang tidak mereka kenal.
+
+"Sumber kendali?" tanya Zireth.
+
+Makhluk itu mengangkat kepala.
+
+"Tidak ada satu sumber."
+
+Kael menekan Zerath's Fang ke dadanya.
+
+"Siapa yang membuat jaringanmu?"
+
+"Pertanyaan itu berada di luar rekaman yang diizinkan."
+
+Intinya menyala terang.
+
+Zireth berteriak, "Mundur!"
+
+Mereka melompat menjauh.
+
+Tubuh tiruan tidak meledak.
+
+Ia runtuh menjadi pasir kristal ungu, seolah ikatan yang membuatnya padat mendadak dilepas. Serat logam hitam tenggelam ke tanah dan lenyap.
+
+Yang tersisa hanya sebuah cakram tipis seukuran koin.
+
+Zireth mengambilnya dengan penjepit dari lengan mekanis.
+
+Satu kalimat muncul di permukaannya.
+
+**GEMA DICATAT. PEWARIS BERADAPTASI.**
+
+Kael membaca tanpa berkedip.
+
+"Pewaris. Lagi."
+
+Sylvara menatap gurun di sekeliling mereka.
+
+"Kalau benda itu bukan satu-satunya?"
+
+Tidak ada yang menjawab.
+
+Jejak sepatu bot yang selama ini mereka ikuti kini memiliki penjelasan.
+
+Namun penjelasan tersebut jauh lebih buruk daripada misterinya.
+
+Seseorang tidak sekadar memburu Fragmen.
+
+Seseorang sedang mempelajari Kael.

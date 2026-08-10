@@ -1,67 +1,125 @@
 # Episode 023 — Perjanjian di bawah Bintang Asing
 
-Malam menyelimuti oasis. Api unggun milik Zireth masih menyala, tetapi Kael dan Sylvara duduk agak jauh darinya.
+Malam kedua di oasis jauh lebih tenang.
 
-Zireth membersihkan sambungan pada tangan mekanisnya seolah kehadiran mereka tidak mengganggu.
+Tidak ada salinan manusia. Tidak ada serangan. Hanya angin gurun dan bunyi sambungan lengan mekanis Zireth saat dia membongkar bagian luarnya untuk dibersihkan.
 
-“Aku tidak suka ini,” bisik Sylvara. “Dia muncul terlalu tepat.”
+Kael duduk di seberang api.
 
-“Aku tahu.” Kael melirik ke arah pengawas itu. “Tapi dia belum menyerang. Setidaknya dia bukan pasukan Arkanis atau pengikut Rowan.”
+"Ada sesuatu yang belum kau ceritakan."
 
-Dia meninggikan suara. “Kau benar-benar dikirim Melkisha?”
+Zireth tidak berhenti bekerja.
 
-“Ya.” Zireth tidak menoleh. “Tugasku memastikan kau tidak menghancurkan setengah benua sebelum potensi penuhmu terlihat.”
+"Banyak. Kau harus lebih spesifik."
 
-Dia mengencangkan sebuah sekrup kecil pada ruas jarinya.
+Sylvara mengangkat kepala dari busurnya.
 
-“Atau sebelum Melkisha mendapatkan apa yang dia inginkan darimu.”
+"Tentang Melkisha."
 
-Kael mengerutkan kening. “Apa yang dia inginkan?”
+Kali ini tangan Zireth berhenti.
 
-Zireth menghentikan pekerjaannya dan menatap Kael.
+Kael menunggu.
 
-“Kau anomali. Darah campuran yang menyatu dengan Fragmen hidup dan terus berubah. Kau bisa menjadi kunci atau bom waktu. Melkisha bertaruh kau adalah yang pertama.”
+Akhirnya Zireth meletakkan alat kecil di pasir.
 
-“Kunci untuk apa?” tanya Sylvara.
+"Tugasku memang mengawasimu. Bukan hanya melindungi."
 
-“Membuka sesuatu yang seharusnya tetap tertutup. Atau menghancurkan sesuatu yang dianggap abadi.” Zireth mengangkat bahu. “Tergantung siapa yang bercerita.”
+"Aku sudah menduga."
 
-Dia kembali membersihkan lengannya.
+"Melkisha ingin data tentang bagaimana tubuhmu menerima lebih dari satu resonansi Fragmen. Dia percaya kau mungkin bisa membuka struktur yang tidak bisa disentuh orang biasa."
 
-“Untuk sekarang, kita terjebak di gurun yang sama. Aku tahu jalan tercepat menuju perbatasan utara.”
+Kael teringat pulau terbelah.
 
-“Kenapa membantu kami?” tanya Kael.
+*Dua belas retakan. Satu wadah.*
 
-“Karena tugasku menjagamu tetap hidup.” Senyum sinis muncul di wajah Zireth. “Mati kehausan tidak termasuk rencana Melkisha.”
+"Kunci."
 
-Tatapannya beralih ke langit malam.
+"Itu istilah yang pernah dia pakai."
 
-“Selain itu, aku punya urusan pribadi di utara.”
+Sylvara menyipitkan mata.
 
-Kael tahu pria itu menyembunyikan sesuatu. Namun mereka membutuhkan pemandu, dan lengan kirinya semakin sulit dikendalikan.
+"Kunci untuk apa?"
 
-“Baik,” katanya. “Kita berjalan bersama sampai perbatasan. Kalau kau mencoba sesuatu—”
+"Dia tidak bilang. Atau tidak tahu."
 
-Zireth tertawa pendek. “Aku tidak cukup bodoh untuk menusuk orang yang bisa mengubahku menjadi abu.”
+Kael mengamati wajah Zireth, mencari tanda kebohongan.
 
-Dia menunjuk Sylvara dengan tangan mekanis.
+Setelah bertemu makhluk yang bisa meniru ekspresi manusia, kepercayaan terasa jauh lebih mahal.
 
-“Aku tunjukkan jalan keluar. Kalian memastikan makhluk gurun tidak memakanku. Setelah mencapai utara, kita berpisah.”
+"Kenapa baru sekarang?"
 
-Sylvara masih tidak menyukai kesepakatan itu, tetapi akhirnya mengangguk.
+Zireth melihat lengan mekanisnya sendiri.
 
-“Coba macam-macam, panahku yang menjawab.”
+"Karena setelah melihat salinan tadi, aku sadar menyembunyikan informasi hanya membuat orang lain lebih mudah memakai bentukku untuk menipumu."
 
-“Disepakati.”
+Jawaban itu tidak menghapus kecurigaan.
 
-Zireth berdiri dan memadamkan sebagian api.
+Tapi setidaknya terdengar seperti sesuatu yang dipilih manusia, bukan kalimat hasil rekaman.
 
-“Istirahat. Kita berangkat sebelum fajar. Gurun ini tidak ramah kepada orang yang berjalan malam.”
+Kael mengangguk pelan.
 
-Kael dan Sylvara bergantian berjaga. Zireth tampak tidur, tetapi mata mekanisnya tetap memancarkan cahaya redup.
+"Kalau ada perintah baru dari Melkisha, kau bilang padaku."
 
-Kael menatap lengan kirinya yang tersembunyi di balik kain.
+"Kalau bisa."
 
-Jalan Keempat mungkin tidak berarti berjalan sendirian. Namun dia masih belum tahu siapa yang layak berjalan di sisinya.
+"Tidak. Bukan kalau bisa."
 
-Di atas oasis, bintang-bintang bergerak dalam pola ganjil. Sebuah retakan Void kecil terbuka jauh di udara, lalu lenyap sebelum siapa pun menyadarinya.
+Zireth menatapnya.
+
+Kael tidak berpaling.
+
+"Kalau kita terus jalan bersama, aku tidak mau mengetahui keputusan tentang tubuhku setelah semuanya terlambat."
+
+Zireth diam cukup lama.
+
+"Baik."
+
+Sylvara menambahkan, "Dan kalau kau berbohong, aku menembak bagian tubuh yang masih organik."
+
+Zireth memasang kembali pelat lengannya.
+
+"Perjanjian yang menyentuh."
+
+Ketegangan pecah sedikit.
+
+Kael memandang langit.
+
+Bintang-bintang di gurun jauh lebih jelas daripada di Aranyel. Salah satu pola yang diberikan Gema Sang Penjaga tampak cocok dengan tiga bintang di utara.
+
+Kemudian salah satunya bergerak.
+
+Kael berdiri.
+
+"Kalian lihat?"
+
+Sylvara mengikuti arah jarinya.
+
+Titik cahaya itu bergeser perlahan, lalu membelah menjadi dua dan menghilang.
+
+Zireth mengaktifkan sensor.
+
+"Distorsi ruang. Sangat kecil."
+
+Kael merasakan lengan kirinya berdenyut.
+
+Retakan Void.
+
+Jauh sekali, tetapi nyata.
+
+"Hal yang sama muncul dekat Zona Fragmented," katanya.
+
+"Dan di atas pulau," tambah Sylvara.
+
+Zireth menatap data.
+
+"Frekuensinya mirip dengan tubuh tiruan."
+
+Kael menatap langit yang kembali normal.
+
+Mereka tidak tahu siapa yang menempatkan mata-mata tersebut, seberapa luas jaringan itu, atau apa hubungannya dengan Rowan dan Sang Arsitek.
+
+Namun ada satu hal yang menjadi lebih jelas.
+
+Perjalanan ke utara bukan lagi hanya mencari jawaban tentang Kael.
+
+Sesuatu di sana tampaknya sedang menunggu mereka.

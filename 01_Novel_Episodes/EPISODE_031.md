@@ -1,49 +1,87 @@
-# Episode 031 — Kesepakatan di Krangmar
+# Episode 031 — Kesepakatan di Kragmar
 
-Kael menatap Kapten Garn dari dalam sel sementara Kragmar.
+Garn tidak membuang waktu setelah Kael menerima tugas.
 
-Menyelidiki Puncak Beku berarti berjalan langsung menuju Gerbang Es dan rencana Rowan. Berbahaya, tetapi juga satu-satunya kesempatan untuk mendapatkan jawaban.
+Pintu ruang tahanan dibuka penuh. Seorang penjaga membawa jubah tebal, ransum, kait es, dan dua kantung kecil berisi batu pemanas rune.
 
-“Baik,” kata Kael. “Kami menerima tawaranmu.”
+"Kalian berangkat setelah badai pagi lewat," kata Garn. "Borin dan Dagna mengantar sampai kaki Puncak Beku. Setelah itu mereka kembali."
 
-Garn mengangguk singkat. “Keputusan yang bijak. Mungkin.”
+Dwarf perempuan di samping Borin mengangkat palu pendek sebagai salam.
 
-Dia memberi isyarat kepada penjaga untuk membuka pintu.
+"Dagna."
 
-“Kalian tidak sepenuhnya pergi sendiri. Borin dan Dagna akan mengawal sampai kaki Puncak Beku. Mereka paling mengenal medan awal.”
+Sylvara menatap peta kulit yang Garn serahkan kepada Kael.
 
-“Hanya sampai kaki gunung?” tanya Zireth.
+"Kenapa hanya sampai kaki gunung?"
 
-“Setelah itu kalian melanjutkan bertiga.” Garn tidak memberi ruang untuk perdebatan. “Wilayah atas dipenuhi anomali. Mengirim lebih banyak pasukan hanya menambah korban.”
+"Karena kami sudah kehilangan cukup banyak orang di atas sana."
 
-Dia menyerahkan peta kulit kepada Kael. Beberapa jalurnya terputus dan tanda-tanda patroli berhenti jauh sebelum puncak.
+Garn menunjuk tiga tanda silang pada jalur.
 
-“Ini rute terakhir yang berhasil dilalui pasukan kami. Tidak lengkap, tetapi lebih baik daripada berjalan tanpa arah.”
+"Ini titik terakhir patroli kami bisa dipastikan masih hidup. Setelah itu peta adalah dugaan."
 
-Para penjaga membawa kantung ransum Dwarf dan jubah tebal.
+Zireth memperbesar simbol pada salah satu persimpangan.
 
-“Jangan mati,” lanjut Garn. “Aku membutuhkan laporan.”
+"Reruntuhan?"
 
-Sylvara menerima salah satu kantung. “Apa yang kami dapat jika berhasil?”
+"Mungkin. Catatan lama menyebut pos pengamat sebelum kerajaan sekarang berdiri."
 
-“Informasi tentang Gerbang Es lebih berharga daripada emas Karag Thürm.” Tatapan Garn berpindah kepada Kael. “Jika laporan kalian berguna, kalian bebas melintasi wilayah kami. Mungkin ada hadiah tambahan.”
+Kael menyimpan peta.
 
-Dia tampak ingin menanyakan sesuatu lagi, tetapi akhirnya berbalik.
+"Apa yang kami bawa pulang?"
 
-“Berangkat saat badai mereda.”
+"Informasi. Kalau bisa orang yang membuka gerbang. Kalau tidak bisa, alasan kenapa dia harus diburu."
 
-Garn dan pasukannya meninggalkan ruangan. Pintu sel tetap terbuka.
+"Sangat fleksibel."
 
-Sylvara memandang lorong yang kosong. “Dia mengirim kita ke tempat pasukannya sendiri menghilang. Entah dia percaya atau sedang memakai kita sebagai umpan.”
+Garn menatapnya datar.
 
-“Keduanya bisa benar,” jawab Zireth sambil membuka peta. “Namun tujuan kita sama. Kita perlu mengetahui apa yang terjadi di Puncak Beku.”
+"Pegunungan membunuh orang yang terlalu menyukai rencana kaku."
 
-Kael memeriksa perbekalan. “Kita istirahat selama masih bisa. Pendakian nanti akan lebih berat daripada gurun.”
+Setelah kapten pergi, Kael duduk di ranjang tamu yang akhirnya mereka dapatkan. Gelang peredam di lengan kiri mulai panas.
 
-Rasa sakit berdenyut di lengan kirinya. Kael menyentuh kain penutupnya dan menahan raut wajah.
+Zireth menyentuhnya.
 
-Gerbang Es. Pengorbanan. Rowan.
+"Sudah hampir penuh."
 
-Apa pun yang menunggu di puncak, dia belum cukup kuat untuk menghadapinya dengan ceroboh.
+"Penuh apa?"
 
-Rune tua pada dinding di dekatnya menyala redup sesaat, lalu padam kembali—seolah ikut menunggu badai berikutnya.
+"Energi yang seharusnya masuk ke jaringanmu."
+
+Sylvara langsung menoleh. "Kalau penuh?"
+
+"Aku ganti."
+
+"Dan kalau tidak punya cadangan?"
+
+Zireth tidak menjawab.
+
+Kael menarik lengan kembali.
+
+"Kita punya berapa?"
+
+"Dua."
+
+Perjalanan ke puncak tiga hari.
+
+Kael menghitung cepat dan berhenti karena hasilnya tidak membantu.
+
+Malam itu dia tidur beberapa jam tanpa mimpi.
+
+Saat bangun, badai sudah lewat.
+
+Borin menunggu di gerbang pos bersama Dagna.
+
+"Siap?"
+
+Kael melihat pegunungan putih di depan.
+
+Tidak.
+
+"Ya."
+
+Mereka mulai mendaki.
+
+Di belakang, dinding Kragmar menutup perlahan.
+
+Untuk pertama kalinya Kael merasa sebuah pintu tertutup bukan untuk mengurungnya, melainkan karena orang-orang di dalam berharap dia kembali.

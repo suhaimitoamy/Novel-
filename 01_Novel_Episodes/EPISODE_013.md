@@ -1,51 +1,141 @@
 # Episode 013 — Gurun yang Berbisik
 
-Matahari Gurun Bisikan membakar kulit mereka sejak pagi. Pasir membentang tanpa ujung, memantulkan cahaya yang menyilaukan. Setiap tarikan napas membawa debu kering ke tenggorokan.
+Pada hari pertama, Gurun Bisikan hanya terasa panas.
 
-“Tempat ini benar-benar sesuai namanya,” kata Sylvara sambil menyeka keringat. “Anginnya seperti sedang berbicara.”
+Pada hari kedua, panas itu menjadi musuh.
 
-Zireth mengaktifkan sensor pada lengan mekanisnya. “Catatan kuno menyebut wilayah ini pernah menjadi lautan sebelum Perang Primordial. Suara yang kita dengar mungkin sisa energi masa lalu yang terperangkap di bawah pasir.”
+Menjelang hari ketiga, Kael mulai mengerti kenapa orang memberi tempat itu nama sendiri seolah ia makhluk hidup.
 
-Kael berjalan tanpa menjawab.
+Angin tidak pernah benar-benar diam. Ia menggesek bukit pasir dan kristal kering, menghasilkan suara tipis yang kadang menyerupai kata.
 
-Di akademi, pernyataan tentang Jalan Keempat terdengar tegas. Di tengah gurun yang kejam, keyakinan itu terasa jauh lebih rapuh.
+"Kau dengar juga?" tanya Sylvara.
 
-Apakah jalan tersebut benar-benar ada, atau dia hanya menolak pilihan yang terlalu menyakitkan?
+Kael mengangguk.
 
-Pasir di depan mereka berguncang.
+"Jangan bilang itu orang mati."
 
-Beberapa tubuh raksasa bangkit dari bawah permukaan. Golem pasir berdiri mengelilingi mereka, dengan mata merah redup dan kepalan sebesar bongkahan batu.
+"Aku mau bilang kemungkinan hanya resonansi di bawah pasir."
 
-“Penjaga gurun.” Zireth mengangkat meriam kecil pada lengannya. “Mereka seharusnya tidak seagresif ini.”
+Zireth berjalan di belakang mereka sambil membaca sensor.
 
-“Penjaga atau ilusi, mereka tetap menyerang,” ujar Sylvara sambil memasang panah rune.
+"Dulu wilayah ini laut. Lapisan mineral di bawah tanah menyimpan getaran dengan baik. Kalau ada sisa energi Perang Primordial—"
 
-Golem pertama menghantamkan tinjunya.
+"Aku lebih suka teori orang mati," kata Sylvara. "Lebih pendek."
 
-Kael membentuk perisai api merah dan biru. Benturan itu membuat kakinya tenggelam ke dalam pasir, tetapi pertahanan tersebut bertahan.
+Kael tersenyum kecil.
 
-Golem lain datang dari samping. Sylvara menembakkan panah ke sendi lututnya, sementara Zireth melepaskan tembakan energi ke bagian kepala.
+Itu pertama kalinya sejak Craveth Hollow.
 
-Pertarungan berlangsung di bawah terik yang menguras tenaga. Setiap kali Kael bergerak, para golem mengubah arah dan mengejarnya.
+Mereka mengikuti arah lonjakan energi dengan kompas rune Vorth Aereth. Semakin jauh masuk gurun, semakin sering alat itu kehilangan arah.
 
-“Mereka tertarik pada Fragmenku,” teriaknya. “Tarik sebagian menjauh.”
+Fragmen di tubuh Kael justru semakin mudah membaca jalur.
 
-Sylvara dan Zireth menyerang dari dua sisi. Beberapa golem berbalik mengejar mereka, memberi Kael ruang untuk menghadapi yang tersisa.
+Seolah sesuatu jauh di depan menariknya.
 
-Dia menunggu hingga salah satu golem mengangkat tangan. Di balik lapisan pasir pada dadanya, inti energi berpendar sesaat.
+Masalahnya, sesuatu di bawah mereka juga mulai bergerak.
 
-Kael melepaskan api dan es bersamaan.
+Pasir meledak.
 
-Perubahan suhu mendadak meretakkan pelindung di sekitar inti. Serangan berikutnya menembus tepat ke pusatnya.
+Tiga golem raksasa bangkit dari dalam bukit. Tubuh mereka terbentuk dari batu, pasir, dan potongan kristal merah. Simbol kuno menyala di bagian dada.
 
-Golem itu runtuh menjadi tumpukan pasir.
+Zireth mengangkat lengan mekanis.
 
-Mereka menghancurkan penjaga terakhir beberapa saat kemudian. Kael berdiri terengah-engah di antara sisa tubuh yang perlahan kembali menyatu dengan gurun.
+"Penjaga lama."
 
-“Ini baru awal,” gumamnya sambil memandang cakrawala. “Dan tempat ini sudah terasa seperti neraka.”
+"Bisa dimatikan?"
 
-Zireth memeriksa persediaan. “Air kita tinggal sedikit. Kita harus menemukan sumber air atau lokasi Fragmen sebelum tubuh kita menyerah.”
+"Kalau ada manual, mungkin."
 
-Mereka melanjutkan perjalanan di bawah matahari yang semakin tinggi.
+Golem pertama menghantam tanah.
 
-Bisikan angin terus mengikuti, menyusup di antara keraguan yang belum berhasil Kael bungkam.
+Kael membentuk perisai panas di depan mereka. Pukulan itu tidak langsung menembus, tetapi gelombangnya membuat kaki Kael tenggelam sampai mata kaki.
+
+"Berpencar!"
+
+Sylvara bergerak ke kiri. Zireth ke kanan.
+
+Kael menarik perhatian dua golem sekaligus, memancing mereka menjauh dari kelompok. Setiap makhluk berputar mengikuti denyut Fragmen di dadanya.
+
+"Mereka memburumu," teriak Sylvara.
+
+"Aku sudah perhatikan!"
+
+Panah rune menghantam lutut salah satu golem. Batu terkelupas, tetapi segera ditutup pasir baru.
+
+Zireth menembakkan pulsa sonik ke dada makhluk lain.
+
+Kristal merah di dalamnya bergetar.
+
+Kael mendengar frekuensinya.
+
+Dia berhenti menyerang permukaan.
+
+"Zireth, lakukan lagi."
+
+"Apa?"
+
+"Pulsa yang sama."
+
+Zireth mengerti. Gelombang kedua menghantam inti.
+
+Kael meletakkan telapak tangan pada tanah.
+
+Fragmen merah dan biru menyala bersamaan. Dia mengirim getaran pendek melalui pasir, menyesuaikannya dengan frekuensi kristal yang baru saja terguncang.
+
+Inti golem beresonansi.
+
+Retakan muncul dari dalam.
+
+Makhluk itu runtuh tanpa ledakan besar, seperti bangunan yang mendadak kehilangan alasan untuk tetap berdiri.
+
+"Satu," kata Zireth.
+
+"Dua lagi."
+
+Mereka mengulang pola itu.
+
+Sylvara memaksa golem membuka sisi dada dengan panah. Zireth mencari frekuensi. Kael memecahkan inti dari dalam.
+
+Ketika golem terakhir jatuh, ketiganya hanya berdiri terengah-engah di tengah debu.
+
+Kael menatap reruntuhan batu.
+
+Dulu dia akan mencoba membakarnya sampai hancur.
+
+Sekarang dia menang dengan energi lebih sedikit.
+
+Jalan Keempat mungkin bukan sekadar pilihan moral.
+
+Mungkin juga cara bertarung.
+
+Zireth membuka kantung air dan mengocoknya.
+
+Suara di dalam terlalu kecil.
+
+"Kabar buruk."
+
+Sylvara menatap matahari yang masih tinggi.
+
+"Seberapa buruk?"
+
+"Kalau tidak menemukan air dalam dua hari, Fragmen kelima akan menjadi masalah paling kecil kita."
+
+Kael memandang cakrawala.
+
+Angin berbisik lagi.
+
+Kali ini dia tidak mendengar kata.
+
+Dia merasakan arah.
+
+Timur laut.
+
+"Ke sana."
+
+Sylvara menyipitkan mata. "Apa yang kau lihat?"
+
+"Tidak ada."
+
+Kael mulai berjalan.
+
+"Tapi sesuatu di bawah pasir sedang bernyanyi dari arah itu."

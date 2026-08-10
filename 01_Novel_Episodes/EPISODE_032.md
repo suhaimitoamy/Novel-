@@ -1,55 +1,81 @@
 # Episode 032 — Badai Pertama di Puncak Beku
 
-Kael, Sylvara, Zireth, Borin, dan Dagna mendaki lereng bawah Puncak Beku. Salju menelan langkah mereka hingga betis, sementara angin menebas wajah dengan butiran es.
+Badai datang sebelum tengah hari.
 
-“Badai datang lebih cepat!” teriak Borin. Suaranya hampir hilang. “Kita harus mencari perlindungan.”
+Awalnya hanya butiran kecil yang menempel di jubah. Dalam waktu kurang dari sepuluh menit, angin berubah menjadi dinding putih.
 
-Zireth membersihkan es dari kacamata pelindungnya. “Jarak pandang turun. Peta ini tidak banyak membantu.”
+"Ke kanan!" teriak Borin.
 
-Dingin menusuk tubuh Kael dengan cara yang berbeda. Retakan hitam pada lengan kirinya berdenyut di bawah kain.
+Kael hampir tidak mendengar.
 
-“Dingin ini aneh,” katanya.
+Mereka merapat ke tebing. Salju menelan jejak secepat kaki membuatnya.
 
-Sylvara mendekat. “Fragmenmu bereaksi?”
+Lengan kiri Kael berdenyut setiap kali angin membawa kilatan ungu tipis.
 
-“Bukan hanya Fragmen. Ada sesuatu di udara yang menarik energi.”
+"Ada Void di badai," katanya.
 
-Badai menghantam lebih keras. Mereka merapat ke dinding tebing, tetapi salju terus menumpuk dan menutup jejak di belakang.
+Zireth menatap sensor yang dipenuhi gangguan. "Sedikit. Tapi menyebar di seluruh udara."
 
-“Kapten Garn benar,” ujar Dagna sambil melindungi wajah. “Tempat ini dikutuk.”
+Dagna menunjuk ke depan.
 
-Zireth mengaktifkan pemindai pada lengannya. Gangguan memenuhi layar, lalu sebuah titik samar muncul.
+"Gua!"
 
-“Ada ruang kosong sekitar lima puluh meter di depan. Mungkin gua.”
+Mereka bergerak dalam barisan rapat sampai menemukan celah di balik tirai es.
 
-“Pimpin,” kata Borin.
+Begitu masuk, suara badai turun menjadi dengungan jauh.
 
-Mereka bergerak mengikuti pembacaan sensor. Beberapa kali Kael hampir kehilangan pijakan karena permukaan es tertutup salju baru.
+Kael menghembuskan napas.
 
-Akhirnya mereka menemukan mulut gua di balik tirai es. Udara di dalam lebih tenang dan sedikit hangat.
+Lalu mencium sesuatu yang busuk.
 
-Sylvara mengembuskan napas lega. “Akhirnya.”
+Zireth menyalakan lentera.
 
-Kelima orang itu masuk. Zireth menyalakan lentera rune.
+Bangkai serigala besar tergeletak di lantai. Tubuhnya bukan daging sepenuhnya—lapisan es hitam menyatu dengan tulang dan kulit. Cakar obsidian menancap pada batu.
 
-Cahaya memperlihatkan simbol melingkar pada dinding. Bentuknya bukan rune Dwarf atau tulisan Elf. Garis-garisnya saling memotong dalam pola yang terasa asing.
+Borin mengangkat kapak.
 
-Di tengah lantai tergeletak bangkai makhluk menyerupai serigala besar. Tubuhnya terbentuk dari es hitam buram, dengan gigi dan cakar obsidian.
+"Ini bukan hewan wilayah sini."
 
-Dagna mengangkat palunya. “Makhluk apa itu?”
+Zireth memindai bangkai.
 
-Zireth berjongkok di samping bangkai. “Bukan es biasa.” Sensor pada jarinya menyala. “Ada residu Void.”
+"Pernah hidup. Lalu sesuatu menumbuhkan kristal Void melalui jaringan tubuhnya."
 
-Fragmen di dada Kael bereaksi.
+Kael melihat simbol di dinding gua.
 
-“Seperti retakan yang muncul di langit gurun,” gumamnya.
+Spiral retak lagi.
 
-Borin menatap kedalaman gua. “Jadi bukan hanya Elemental yang berkeliaran di wilayah ini.”
+"Simbol itu."
 
-Geraman rendah terdengar dari kegelapan.
+Sylvara menyentuh ukirannya tanpa menekan.
 
-Dua pasang mata merah menyala di ujung jangkauan lentera.
+"Sama seperti di Kragmar."
 
-Sylvara menarik busur. “Kita tidak sendirian.”
+Dagna mengerutkan kening. "Bukan rune Dwarf."
 
-Semua senjata terangkat ketika dua bayangan bergerak keluar dari kedalaman gua.
+Geraman terdengar dari kegelapan.
+
+Semua menoleh.
+
+Dua pasang mata merah membuka jauh di dalam gua.
+
+Kemudian satu pasang lagi.
+
+Borin mengumpat.
+
+"Kupikir kau bilang bangkainya satu."
+
+"Yang mati memang satu," kata Zireth.
+
+Tiga serigala es hitam keluar perlahan.
+
+Kael menghunus Zerath's Fang.
+
+Dia mendengar pola mereka sebelum mereka berlari—denyut ungu pada dada masing-masing bergerak dengan ritme yang sama.
+
+Bukan tiga makhluk yang kebetulan terinfeksi.
+
+Sesuatu menyelaraskan mereka.
+
+"Jangan biarkan mereka memisahkan kita," kata Kael.
+
+Serigala pertama menerjang.

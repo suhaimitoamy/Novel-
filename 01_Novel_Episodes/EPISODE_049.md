@@ -1,65 +1,81 @@
 # Episode 049 — Puncak yang Membeku
 
-Keheningan turun setelah pertempuran.
+Tidak ada kemenangan yang terasa seperti kemenangan.
 
-Gerbang Es berdiri tertutup dengan rune biru yang bersinar redup. Sisa tubuh Nyanyian Kehampaan telah menjadi debu hitam dan perlahan tertutup salju baru.
+Borin masih berdarah. Dagna hampir tidak bisa berdiri. Beberapa prajurit Dwarf yang sebelumnya dikendalikan belum sadar. Kael sendiri tidak bisa mengangkat lengan kiri.
 
-Sylvara dan Zireth membantu Kael berdiri.
+Namun Gerbang Es tertutup.
 
-“Rowan kabur lagi,” kata Kael di sela napas. Lengan kirinya menggantung kaku di sisi tubuh.
+Untuk saat itu, cukup.
 
-“Bersama jejak liontin Vorthax yang dia lemparkan ke gerbang,” ujar Zireth. “Aku tidak suka ucapannya tentang kunci lain.”
+Suara terompet datang dari lereng bawah beberapa jam kemudian.
 
-Sylvara memandang lengkungan yang kini sunyi. “Dan kita masih belum tahu siapa sebenarnya Sang Arsitek.”
+Kapten Garn muncul bersama pasukan Kragmar.
 
-Dagna mendekat. Bekas rantai Void melingkari pergelangan tangannya, tetapi langkahnya tetap tegak.
+Dia berhenti ketika melihat puncak: altar rusak, jejak pertempuran, prajurit yang terbaring, dan lengkungan es hitam yang kembali sunyi.
 
-“Apa pun yang kalian lakukan, kalian menyelamatkan kami.” Suaranya serak. “Mungkin seluruh Karag Thürm.”
+"Aku meninggalkan kalian sebentar," katanya datar.
 
-Dia memandang Gerbang Es dengan ngeri yang tidak mampu disembunyikan.
+Dagna tertawa serak.
 
-“Legenda itu ternyata nyata.”
+"Kami menemukan masalahnya."
 
-Suara terompet Dwarf terdengar dari lereng bawah. Kali ini jumlahnya lebih banyak.
+Garn mendengar laporan langsung dari Dagna dan Borin. Kael hanya menambahkan bagian tentang Rowan, jaringan Hollowed, dan liontin Vorthax yang dilempar ke sisi lain gerbang.
 
-Kapten Garn tiba bersama pasukan bersenjata lengkap. Mereka berhenti ketika melihat puncak yang porak-poranda, prajurit yang jatuh, dan gerbang hitam di atas mereka.
+Kapten memandang lengkungan lama.
 
-“Demi janggut leluhur,” gumam Garn. “Apa yang terjadi?”
+"Jadi ia tertutup."
 
-Dagna segera memberi hormat, lalu menceritakan ritual Rowan, pengorbanan yang gagal, kemunculan Nyanyian Kehampaan, dan cara Kael menyegel gerbang.
+"Ya," kata Kael. "Tapi aku tidak akan menyebutnya aman."
 
-Wajah Garn berubah semakin berat pada setiap bagian cerita.
+"Tidak ada Dwarf waras yang menyebut gerbang antardimensi aman."
 
-“Kau benar-benar menutupnya?” tanyanya kepada Kael.
+Garn memberi perintah mengamankan area dan mengevakuasi korban.
 
-“Untuk sementara.” Kael menahan tubuhnya agar tidak kembali jatuh. “Rowan bekerja untuk seseorang yang disebut Sang Arsitek.”
+Ketika akhirnya dia kembali kepada Kael, dia memberi hormat ala Karag Thürm—kepalan tangan ke dada.
 
-“Nama-nama itu tidak kukenal, tetapi kejadian ini menjelaskan patroli yang hilang dan rune peringatan.”
+"Kalian memenuhi kesepakatan. Lebih dari itu."
 
-Kapten Garn memberi hormat ala Dwarf.
+Kael membalas gerakan sebisanya dengan tangan kanan.
 
-“Kalian memenuhi kesepakatan—jauh melebihi yang kuminta. Karag Thürm berutang kepada kalian.”
+"Kami juga membawa masalah baru."
 
-Dia memerintahkan pasukan mengamankan wilayah dan mengevakuasi korban.
+"Itu terdengar seperti sifat petualang."
 
-“Kalian bebas melintasi wilayah kami. Kami juga akan mengawal turun dari puncak.”
+Sylvara mengangkat alis. "Kami bukan petualang."
 
-“Terima kasih,” kata Zireth.
+Garn melihat kondisi mereka.
 
-Kael memandang lebih jauh ke utara. “Petunjuk kami masih mengarah melewati tempat ini. Apa yang ada di sana?”
+"Kalian terlihat cukup bodoh untuk memenuhi syarat."
 
-Garn mengerutkan kening. “Gletser Abadi Iskali. Mungkin juga Kuil Langit Kuno di Puncak Aethelgard, kalau legenda dapat dipercaya.”
+Untuk pertama kalinya sejak gerbang menutup, Kael tertawa tanpa rasa terpaksa.
 
-Dia menunjuk jalur turun.
+Saat pasukan mulai turun, dia berdiri menghadap utara.
 
-“Kembalilah ke Kragmar dahulu. Kalian membutuhkan perawatan. Kita bicara setelah itu.”
+Peta bintang dalam pikirannya masih menunjuk melewati Puncak Beku.
 
-Rombongan mulai menuruni Puncak Beku.
+"Apa yang ada di sana?"
 
-“Setidaknya kita menghentikannya,” kata Sylvara kepada Kael.
+Garn mengikuti pandangannya.
 
-Kael memandang lengan kirinya yang tersembunyi di balik jubah.
+"Gletser Abadi Iskali. Lebih jauh ada cerita tentang Aethelgard, kuil lama di wilayah yang pernah berhubungan dengan bangsa Celestial Lykaros."
 
-“Ya. Tapi aku belum tahu harga yang baru saja kubayar.”
+"Pernah?"
 
-Di belakang mereka, bekas spiral retak muncul sesaat pada permukaan Gerbang Es—seperti luka bakar dingin—lalu menghilang.
+"Mereka menghilang dari catatan."
+
+Kael menatap pegunungan yang lebih jauh.
+
+Jawabannya belum selesai.
+
+Bahkan mungkin baru dimulai.
+
+Mereka meninggalkan puncak.
+
+Sebelum jalur berbelok, Kael menoleh sekali ke Gerbang Es.
+
+Pada permukaannya muncul bekas hitam kecil.
+
+Spiral retak.
+
+Lalu salju menutupnya.

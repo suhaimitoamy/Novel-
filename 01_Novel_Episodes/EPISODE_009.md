@@ -1,73 +1,161 @@
 # Episode 009 — Pertarungan Pertama: Bayangan tanpa Nama
 
-Kael, Sylvara, Zireth, dan seorang murid Beastmen berdiri di depan gerbang reruntuhan tua di luar akademi. Tanaman merambat hitam menutupi dindingnya dan bergerak pelan seolah sedang bernapas.
+Kael tidak tidur malam setelah duel.
 
-“Fragmen ketiga jatuh di pusat tempat ini tiga tahun lalu,” ujar Zireth. “Belum ada yang berhasil membawanya keluar. Mereka yang kembali tidak pernah pulang dengan jiwa yang utuh.”
+Pagi berikutnya dia tetap ikut ekspedisi.
 
-Sylvara menatap Kael. Sarung tangan kulit berlapis rune penahan menutupi kedua tangannya.
+Sylvara menyebutnya keras kepala. Zireth menyebutnya bentuk kebodohan yang konsisten. Kael tidak membantah keduanya.
 
-“Kau yakin ingin masuk sekarang? Tubuhmu belum pulih dari duel kemarin.”
+Zona mati berada beberapa jam dari akademi. Tanaman merambat hitam menutupi gerbang reruntuhan dan bergerak pelan meski tidak ada angin.
 
-“Aku tidak butuh istirahat.” Kael memandang gerbang. “Aku butuh jawaban.”
+Selain Kael, Sylvara, dan Zireth, Melkisha mengirim seorang Beastman bernama Hask untuk membantu membawa peralatan.
 
-Mereka melangkah masuk.
+Zireth memeriksa sarung tangan rune yang menutupi tangan Kael.
 
-Udara langsung terasa berat. Bayangan mereka bergerak ke arah yang berlawanan, sementara waktu tersendat tanpa pola. Sesaat Kael melihat Sylvara berjalan sangat lambat, lalu dalam kedipan berikutnya dia telah berada beberapa langkah di depan.
+"Kalau retakan di lenganmu menyala hitam, kau berhenti."
 
-Murid Beastmen itu menelan ludah. “Ada sesuatu di dalam dinding.”
+"Kalau sesuatu mencoba membunuh kita?"
 
-Kael merasakan hal yang sama. Bukan sekadar diawasi—seolah yang mengintai adalah bagian dari dirinya sendiri.
+"Kau berhenti dengan kreatif."
 
-Di pusat reruntuhan berdiri sebuah cermin hitam besar. Permukaannya retak, tetapi pantulan Kael di dalamnya tampak utuh dan tenang. Wajah yang belum mengenal kehancuran Aranyel.
+Kael menghela napas.
 
-“Apakah kau merasa lebih kuat sekarang?” tanya pantulan itu. Suaranya sama dengan suara Kael, hanya tanpa emosi. “Atau kau semakin jauh dari dirimu yang dulu?”
+Mereka masuk.
 
-Bayangan tersebut melangkah keluar dari cermin. Wajahnya lenyap, menyisakan permukaan kulit yang kosong. Sebuah Fragmen biru es bersinar di dadanya.
+Waktu terasa salah di dalam reruntuhan. Sekali Kael melihat Sylvara berada dua langkah di depannya; ketika berkedip, gadis itu sudah hampir sepuluh langkah jauh. Bayangan mereka jatuh ke arah yang berbeda dari sumber cahaya.
 
-“Itu bukan Voidborn,” kata Sylvara.
+Di pusat kompleks berdiri cermin hitam setinggi tiga orang.
 
-“Bukan Fragmen biasa juga,” sambung Kael. “Apa itu... aku?”
+Tidak ada debu pada permukaannya.
+
+Kael melihat pantulannya.
+
+Wajah yang tampak di sana bukan wajahnya sekarang.
+
+Tidak ada luka di pipi. Tidak ada mata lelah. Tidak ada retakan hitam di lengan.
+
+Kael sebelum Aranyel terbakar.
+
+Pantulan itu tersenyum sedih.
+
+"Kau kelihatan buruk."
+
+Sylvara menarik busur.
+
+"Kael, menjauh."
+
+Pantulan melangkah keluar dari cermin.
+
+Begitu kakinya menyentuh lantai, wajahnya menghilang. Kulit rata menutupi tempat mata, hidung, dan mulut seharusnya berada. Di dada makhluk itu tertanam kristal biru pucat.
+
+Fragmen ketiga.
+
+Zireth mengangkat lengan mekanis.
+
+"Jangan pecahkan kristalnya. Kita belum tahu apa yang terjadi jika inti itu meledak."
 
 Makhluk tanpa wajah menyerang.
 
-Setiap gerakannya meniru Kael dengan sempurna. Ia memakai langkah, tebasan, dan sihir api yang sama, tetapi semuanya lebih tenang dan terkendali.
+Kael menangkis.
 
-Kael menyerang dari sisi kiri. Bayangan itu telah bergerak lebih dulu dan menangkis sebelum Zerath's Fang mendekat.
+Bilah mereka bertemu—Zerath's Fang melawan pedang yang bentuknya hampir sama.
 
-“Kenapa dia selalu tahu?” geram Kael.
+Gerakannya identik.
 
-“Karena aku adalah dirimu yang tidak menukar kemanusiaan dengan kekuatan,” jawab bayangan itu. “Aku datang untuk mengambil tubuh yang seharusnya menjadi milikku.”
+Kael menggeser kaki kiri; makhluk itu sudah mengantisipasi. Dia memutar bahu; lawan melakukan pola yang sama lebih cepat.
 
-Kael terdiam sesaat. Kata-kata itu menemukan luka yang belum tertutup.
+"Dia membaca pikiranku?"
 
-Fragmen merah di dadanya menyala. Energi hitam menjalar dari lengan kirinya, sementara bayangan naga muncul di belakang tubuhnya.
+"Bukan," teriak Zireth. "Ia membaca resonansimu. Gerakmu selalu didahului perubahan energi."
 
-“Aku bukan dirimu,” kata Kael.
+Makhluk itu menendang Kael ke belakang.
 
-Bayangan itu melangkah mendekat.
+Suara muncul di kepalanya.
 
-“Aku bukan salah satu kemungkinan yang kalian pilihkan.” Suara Kael mengeras. “Aku adalah semua luka yang kalian tinggalkan—dan aku masih berdiri.”
+*Begini dirimu tanpa rasa takut.*
 
-Api merah dan hitam menyatu, membentuk spiral destruktif yang menghantam cermin asal bayangan itu.
+Kael bangkit.
 
-Retakan menyebar ke seluruh permukaan.
+*Lebih tenang. Lebih bersih. Tidak membawa semua luka yang membuatmu lambat.*
 
-“Kalau begitu,” ujar sosok tanpa wajah sebelum pecah bersama cermin, “biarkan kita terbakar dalam pilihanmu.”
+Kael menatap tubuh tanpa wajah itu.
 
-Ledakan energi mengguncang reruntuhan.
+"Kalau kau adalah aku tanpa luka, kenapa kau tidak punya wajah?"
 
-Ketika debu turun, hanya Kael yang masih berdiri. Mata kanannya menyala merah, sedangkan mata kirinya berubah biru sedingin Fragmen milik bayangannya.
+Makhluk itu berhenti sepersekian detik.
 
-Sylvara berlari menghampiri. “Kael, matamu—”
+Cukup.
 
-Kael menyentuh wajahnya.
+Kael mengubah cara bertarung.
 
-“Dia tidak hilang,” gumamnya. “Dia menunggu di dalam diriku.”
+Dia berhenti merencanakan serangan panjang. Tidak ada pola. Satu gerak pendek, jeda, perubahan arah. Sylvara menembakkan panah ke lantai untuk memaksanya bergerak. Hask melempar batu rune. Zireth memancarkan gangguan sonik.
 
-Di tempat jauh, Rowan mengaktifkan rune berbentuk mata naga pada patung Void kuno.
+Makhluk itu masih kuat, tetapi tidak lagi sempurna.
 
-“Dia telah menyatu dengan sisi dirinya yang tak memiliki nama,” katanya. “Satu langkah lagi.”
+Kael mendekati cermin.
 
-Malam itu, Kael memandang langit dari atap reruntuhan.
+Inti biru di dada lawan berdenyut mengikuti permukaannya.
 
-Jika dia terus kehilangan bagian dari dirinya tetapi tetap bertahan hidup, apakah sebutan manusia masih berarti?
+Bukan makhluk itu yang menjadi sumber.
+
+Cerminlah yang terus menyalin.
+
+Kael menancapkan Zerath's Fang ke lantai.
+
+Dia menyentuhkan telapak tangan pada cermin.
+
+Dingin menembus lengan.
+
+Makhluk tanpa wajah menjerit tanpa mulut.
+
+Kael mencari frekuensi yang sama seperti di Vault of Shards—bukan tenaga terbesar, melainkan titik paling rapuh.
+
+Dia menemukannya.
+
+Satu denyut.
+
+Cermin pecah.
+
+Makhluk itu ikut retak dari kepala sampai kaki.
+
+Namun Fragmen biru tidak jatuh ke tanah.
+
+Ia melesat.
+
+Menembus dada Kael.
+
+Dingin menyapu seluruh tubuhnya.
+
+Dia jatuh berlutut. Mata kirinya terasa seperti dibakar es.
+
+"Kael!"
+
+Ketika Sylvara menangkap bahunya, Kael membuka mata.
+
+Wajah gadis itu berubah.
+
+"Matamu."
+
+Kael menyentuh kelopak kiri.
+
+"Kenapa?"
+
+Zireth menatap pemindai.
+
+"Fragmen ketiga tidak hilang. Ia menyatu dengan struktur yang sudah ada di tubuhmu."
+
+Kael memandang telapak tangannya.
+
+Api merah muncul di tangan kanan.
+
+Di tangan kiri, embun beku membentuk lapisan tipis di udara.
+
+Panas dan dingin.
+
+Dua irama yang seharusnya saling mematikan kini berdenyut dari tubuh yang sama.
+
+Di permukaan serpihan cermin yang tersisa, pantulan Kael tersenyum.
+
+Kael tidak.
+
+Ketika dia menoleh lagi, pecahan itu hanya memantulkan langit-langit.

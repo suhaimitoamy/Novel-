@@ -1,67 +1,135 @@
 # Episode 020 — Pertemuan di Oase
 
-Senja turun di Gurun Bisikan. Kael, Sylvara, dan Zireth bersembunyi di balik formasi batu sambil mengamati oasis di depan.
+Kael tidak menerima uluran tangan itu.
 
-Satu api unggun menyala di antara pepohonan palem.
+Dari atas lereng terdengar suara logam bergerak.
 
-“Hanya satu orang,” bisik Sylvara sambil menyiapkan panah.
+Zireth yang asli turun perlahan dengan lengan mekanis sudah berubah menjadi posisi tempur. Sylvara mengikuti beberapa langkah di belakang, busur terarah ke kepala orang asing.
 
-“Wilayah ini seharusnya kosong,” kata Zireth.
+Pria di dekat api memandang mereka seolah situasi ini sama sekali tidak mengejutkan.
 
-Kael memusatkan perhatian pada energi di sekitar api. “Tidak ada sihir kuat atau niat membunuh. Tapi aku merasakan sesuatu yang mekanis.”
+"Menarik," katanya.
 
-Jejak sepatu bot yang mereka ikuti mungkin milik orang di sana. Pertanyaannya, apakah dia sekadar beristirahat atau sengaja menunggu mereka.
+Zireth berhenti sepuluh langkah darinya.
 
-“Aku akan mendekat,” ujar Kael.
+"Coba ulangi namamu."
 
-Sylvara menahan lengannya. “Sendirian?”
+"Zireth. Pengawas Vorth Aereth."
 
-“Kalau dia memang mengikuti kita, urusannya kemungkinan denganku. Kalian awasi dari sini.”
+"Salah."
 
-Setelah ragu beberapa saat, Sylvara melepaskannya. Zireth mengangguk singkat.
+"Bagian mana?"
 
-“Beri sinyal jika dia bergerak mencurigakan.”
+"Kau lupa menyebut bahwa aku sedang berdiri di depanmu."
 
-Kael menuruni lereng batu tanpa suara. Semakin dekat ke oasis, aroma daging panggang mulai tercium. Suasana di sana terlalu tenang dibanding gurun yang selama ini terus mencoba membunuh mereka.
+Sosok itu tersenyum lagi.
 
-Dia berlindung di balik pohon palem dan mengintip.
+Kael memperhatikan detail wajahnya. Bekas luka kiri sama. Bentuk rahang sama. Bahkan sambungan pada lengan mekanis meniru pola rune milik Zireth.
 
-Seorang pria muda duduk membelakangi Kael, memanggang kadal gurun di atas api. Dia mengenakan zirah kulit usang yang diperkuat pelat logam. Kacamata pelindung bertengger di dahinya, di antara rambut cokelat yang berantakan.
+Namun rambutnya sedikit lebih panjang. Dan matanya terlalu tenang.
 
-Kael memanggil api kecil di telapak tangannya, lalu keluar dari persembunyian.
+"Siapa kau sebenarnya?" tanya Kael.
 
-“Permisi.”
+"Aku sudah menjawab."
 
-Pria itu tersentak dan menoleh. Tatapannya tajam, tetapi tidak menunjukkan kepanikan. Senyum tipis muncul di bibirnya.
+"Tidak cukup."
 
-“Pengelana lain di tengah gurun,” katanya. “Kukira hanya aku yang cukup gila untuk berada di sini.”
+Sosok itu menatap Zireth asli.
 
-Dia menepuk tanah di sampingnya. “Mau makan? Kadal ini terlalu besar untuk satu orang.”
+"Melkisha menugaskanku mengawasi Kael Drayven setelah insiden di ruang resonansi. Tangan kiriku hilang dalam eksperimen Magitek tahun ketiga. Aku tidak suka teh pahit. Aku tidur dengan mata mekanis tetap aktif karena sambungan saraf akan mati rasa kalau dimatikan terlalu lama."
 
-Kael tidak bergerak. “Siapa kau? Kenapa ada di sini?”
+Sylvara perlahan menurunkan busur beberapa sentimeter, bingung.
 
-“Pertanyaan yang sama bisa kutanyakan kepadamu.”
+Zireth justru terlihat lebih marah.
 
-Pria itu bangkit perlahan. Tangannya tidak mendekati senjata, tetapi kilatan logam pada lengan kanannya langsung menarik perhatian Kael.
+"Semua itu benar."
 
-Sebuah tangan mekanis.
+"Tentu."
 
-Desainnya menyerupai teknologi Vorth Aereth, meski susunan rune dan pelatnya berbeda.
+"Kau membaca pikiranku?"
 
-Pria itu menyadari tatapan Kael dan mengangkat lengan tersebut.
+"Tidak."
 
-“Ini? Modifikasi pribadi.”
+Kael merasakan Fragmen di dadanya berdenyut.
 
-Dia kembali menatap Kael.
+Sosok itu menoleh kepadanya sebelum dia sempat melakukan apa pun.
 
-“Namaku Zireth. Aku pengawas barumu dari Akademi Vorth Aereth.”
+"Jangan. Resonansimu akan membuat kulit ini rusak lebih cepat."
 
-Kael membeku.
+Kalimat itu memastikan satu hal.
 
-“Zireth?”
+Ia tahu terlalu banyak.
 
-Nama itu membuat semua kewaspadaannya berubah menjadi kebingungan. Bagaimana mungkin seorang pengawas Vorth Aereth telah menunggu di oasis terpencil ini?
+Kael menghunus Zerath's Fang.
 
-Api di telapak tangannya menyala sedikit lebih terang.
+"Jejak di Sky-skiff milikmu?"
 
-Pertemuan tersebut jelas bukan kebetulan biasa.
+"Ya."
+
+"Kau mengawasi kawah?"
+
+"Ya."
+
+"Kenapa tidak mengambil Fragmen kelima?"
+
+Sosok itu menunduk melihat daging panggang.
+
+"Bukan tugasku."
+
+"Lalu tugasmu apa?"
+
+"Mendengar."
+
+Kata itu membuat Kael teringat pesan Nyrah.
+
+*Ia mendengar dunia pada frekuensi yang tidak dapat kau dengar.*
+
+Zireth maju satu langkah.
+
+"Siapa yang membuatmu?"
+
+Untuk pertama kalinya, senyum sosok itu berubah.
+
+Bukan ekspresi manusia.
+
+Terlalu cepat. Terlalu simetris.
+
+"Pertanyaan yang lebih tepat: siapa yang merekammu?"
+
+Api unggun padam.
+
+Bukan karena angin.
+
+Seluruh oasis kehilangan suara selama satu detik.
+
+Kael merasakan perubahan tekanan dan langsung mengangkat pedang.
+
+Sosok palsu bergerak.
+
+Lengan mekanisnya terbuka menjadi bilah sempit.
+
+Zireth menangkis dengan lengan sendiri.
+
+Dua logam hampir identik beradu.
+
+Nada yang dihasilkan sama persis.
+
+Kael merasakan resonansinya.
+
+Dan di balik suara itu, ada frekuensi lain—dingin, teratur, tidak hidup.
+
+Sesuatu yang pernah dia rasakan dari Hollowed.
+
+Namun ini lebih rapi.
+
+Lebih baru.
+
+Sosok palsu menoleh kepada Kael di tengah benturan.
+
+"Rekaman dimulai jauh sebelum kau menemukan jejak pertama."
+
+Kemudian kulit di pipinya retak.
+
+Di bawahnya tidak ada darah.
+
+Hanya kristal ungu dan serat logam hitam.

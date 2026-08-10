@@ -1,85 +1,111 @@
 # Episode 037 — Topeng Terbuka
 
-Keheningan kembali memenuhi reruntuhan setelah pertarungan berakhir.
+Mereka meninggalkan reruntuhan saat badai mulai terbentuk lagi.
 
-Kael memandang liontin spiral retak di tangan Zireth, lalu menatap Sylvara.
+Semakin tinggi mendaki, semakin banyak bekas pertempuran muncul di salju.
 
-“Vorthax? Maksudmu Vorthax sang Pengkhianat?”
+Potongan zirah Dwarf.
 
-Sylvara mengangguk pelan. “Lambang itu milik cabang keluarga Vorthax yang dianggap sesat dan diasingkan, bahkan oleh kaum Necromancer. Mereka sudah ada sebelum Dark Convergence.”
+Jejak seretan.
 
-Dia menahan tatapan pada liontin tersebut.
+Noda hitam yang tidak membeku.
 
-“Aku tidak tahu simbol itu masih digunakan.”
+Sylvara berhenti di dekat dinding es.
 
-Zireth menyentuhkan sensor jarinya ke permukaan logam. Cahaya tipis bergerak di sepanjang retakan spiral.
+Sebuah kapak tertancap di sana.
 
-“Ada energi tersimpan di dalamnya. Mungkin kunci resonansi.”
+Kael mengenali cincin baja pada gagangnya.
 
-“Kunci untuk apa?” tanya Kael.
+"Borin."
 
-“Belum tahu.” Zireth membungkus liontin itu dan menyimpannya. “Tapi hubungan antara cabang Vorthax dan kelompok Kehampaan Abadi tidak bisa diabaikan.”
+Tidak ada tubuh di sekitar.
 
-Kael menatap Sylvara. Berapa banyak rahasia keluarganya yang belum pernah dia ceritakan?
+Zireth memindai salju.
 
-Sylvara menangkap keraguan itu.
+"Jejak dua Dwarf naik dari sini. Mereka kembali setelah meninggalkan kita."
 
-“Aku bersumpah tidak mengetahui semua ini. Keluargaku telah meninggalkan ajaran gelap Vorthax sejak lama.”
+"Kenapa?"
 
-“Aku percaya padamu,” kata Kael.
+"Mungkin melihat sesuatu. Mungkin menerima perintah baru."
 
-Sylvara mengangkat wajah.
+Kael mencabut kapak dari es dan membawanya.
 
-“Tapi sekarang kita tahu masalah ini lebih besar dari Rowan.” Kael mengambil buku kuno dari altar. “Ritual di Puncak Beku masih berlangsung. Kita harus pergi.”
+Mereka mengikuti tanda pertempuran sampai dataran tinggi di bawah puncak.
 
-Mereka meninggalkan reruntuhan dan kembali mendaki.
+Di sana angin membawa bau darah.
 
-Semakin tinggi, semakin banyak jejak pertempuran terlihat di salju. Lapisan es bercampur dengan residu Void hitam. Senjata-senjata Dwarf tergeletak patah di sepanjang lereng.
+Puluhan prajurit Dwarf tergeletak di salju. Sebagian bergerak lemah. Sebagian tidak.
 
-Zireth berhenti untuk memeriksa bekas ledakan.
+Dan di tengah mereka berdiri Rowan.
 
-“Pertarungan besar terjadi belum lama ini. Patroli Dwarf mencoba menghentikan seseorang yang menuju puncak.”
+Rambut putihnya hampir menyatu dengan badai. Tongkat obsidian pendek berada di tangan kanan. Cahaya ungu mengalir dari ujungnya ke rune yang ditanam di tanah.
 
-“Lihat.” Sylvara menunjuk dinding es.
+Kael berhenti.
 
-Sebuah kapak rune tertancap jauh di dalamnya. Kael mengenali cincin logam pada gagangnya.
+Semua percakapan mereka sejak Lyrenith mengerucut ke satu titik.
 
-“Itu milik Borin.”
+"Rowan."
 
-“Borin dan Dagna mungkin kembali ke sini,” kata Sylvara.
+Pria itu menoleh.
 
-“Atau mereka tidak pernah benar-benar menuju Kragmar,” ujar Zireth. “Kapten Garn bisa saja memerintahkan mereka mengawasi kita.”
+Tidak ada senyum kali ini.
 
-Jejak pertempuran mengarah ke dataran tinggi tepat di bawah puncak.
+"Kau lebih cepat daripada perhitunganku."
 
-Ketika mereka tiba, Kael berhenti.
+Kael melempar kapak Borin ke salju di antara mereka.
 
-Puluhan prajurit Dwarf tergeletak di atas salju. Sebagian membeku, sebagian hangus oleh energi gelap. Di tengah medan pembantaian berdiri Rowan.
+"Di mana pemiliknya?"
 
-Jubah hitamnya berkibar diterpa angin. Sebuah tongkat obsidian pendek berdenyut ungu di tangannya.
+Rowan melihat kapak.
 
-Rowan menoleh dan tersenyum.
+"Masih hidup ketika terakhir kulihat. Lebih keras kepala daripada yang sehat."
 
-“Kalian datang lebih cepat daripada dugaanku.”
+Sylvara mengangkat busur.
 
-Amarah memanaskan dada Kael. “Apa yang kau lakukan kepada mereka?”
+"Apa yang kau lakukan?"
 
-“Membunuh?” Rowan melihat tubuh-tubuh di sekelilingnya. “Tidak. Aku hanya membuat mereka tidur. Mereka terlalu berisik.”
+Rowan menunjuk puncak dengan tongkat.
 
-Dia menunjuk puncak dengan tongkat.
+Di balik badai, cahaya ungu menyala vertikal.
 
-“Ritual hampir selesai. Gerbang Es akan segera terbuka.”
+"Membuka sesuatu yang terlalu lama dikunci oleh orang-orang yang takut mendengar jawabannya."
 
-Sylvara mengangkat busurnya. “Apa yang akan keluar dari sana?”
+"Gerbang Es."
 
-Rowan tertawa pelan.
+Mata Rowan sedikit menyipit.
 
-“Bukan apa. Siapa.”
+"Jadi kristal itu memang menunjukkan cukup banyak."
 
-Mata kuningnya memandang Puncak Beku.
+Kael merasakan amarah naik, tetapi menahannya.
 
-“Sesuatu yang lebih tua daripada Aelarion, Zhorak, dan Malgorath. Sesuatu yang akan mengembalikan keseimbangan Zerath.”
+"Kau butuh darah pewaris."
 
-Kael menggenggam Zerath's Fang.
+"Aku butuh resonansi yang kompatibel. Darah hanya salah satu cara."
 
-Di belakang Rowan, gunung bergetar pelan.
+"Aku bukan kuncimu."
+
+Rowan menatap dada Kael.
+
+"Kau tidak harus setuju untuk menjadi satu."
+
+Gunung bergetar.
+
+Dengungan rendah keluar dari puncak.
+
+Kael merasakan gigi-giginya ikut bergetar.
+
+Bukan suara biasa.
+
+Frekuensi yang terasa di tulang.
+
+Rowan memandang ke atas.
+
+Untuk pertama kalinya Kael melihat sedikit ketegangan di wajahnya.
+
+"Ritual bergerak lebih cepat."
+
+Kael mencabut Zerath's Fang.
+
+"Bagus. Berarti kita tidak punya waktu mendengar pidatomu."
+
+Dia menyerang.

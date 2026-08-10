@@ -1,61 +1,103 @@
 # Episode 018 — Memilih Jalan
 
-Kael menatap Hati Bintang Jatuh yang melayang di atas altar. Cahaya ungunya berdenyut tenang, tetapi kekuatan di dalamnya terasa sangat besar.
+Ujung jari Kael berhenti beberapa sentimeter dari Fragmen kelima.
 
-Fragmen di dada Kael merespons dengan rasa lapar. Energi Void pada lengan kirinya ikut bergerak, seolah ingin menelan apa pun yang berada di hadapannya.
+Kehangatan lembut menyentuh kulitnya.
 
-Kekuatan itu dapat membantunya melindungi Sylvara dan Zireth. Dapat dipakai untuk menghentikan Rowan, bahkan menghadapi Sang Arsitek.
+Tubuhnya merespons seketika. Retakan ungu pada lengan kiri mereda. Dingin di mata kirinya turun. Bahkan napas terasa lebih mudah.
 
-Kael melangkah menuju altar.
+Semudah itu.
 
-Sylvara dan Zireth tidak berkata apa-apa. Penjaga Kawah juga diam, menyerahkan pilihan sepenuhnya kepadanya.
+Satu sentuhan, mungkin satu penyatuan, dan sebagian besar masalah yang menghantuinya bisa menjadi lebih ringan.
 
-Kael mengangkat tangan.
+Kael menatap geode ungu.
 
-Jarak antara ujung jarinya dan Fragmen tinggal beberapa sentimeter. Energi dari Hati Bintang Jatuh mengalir ke kulitnya, menawarkan kekuatan tanpa perlawanan.
+Lalu menurunkan tangan.
 
-Lalu penglihatan tadi kembali terlintas.
+"Tidak."
 
-Zerath yang retak. Perang yang lahir dari perebutan Fragmen. Dirinya sendiri berdiri di antara pahlawan dan penghancur.
+Sylvara menghembuskan napas yang baru Kael sadari sedang ditahannya.
 
-Selama ribuan tahun, Hati Bintang Jatuh menyerap racun dunia dalam diam. Mengambilnya berarti meninggalkan luka Zerath tanpa penawar.
+Gema tetap diam.
 
-Suara ibunya muncul dalam ingatan.
+Kael mundur satu langkah.
 
-“Kekuatan sejati bukan tentang seberapa banyak yang bisa kau ambil, Kael. Melainkan seberapa banyak yang mampu kau lindungi.”
+"Kalau aku mengambilnya, apa yang terjadi pada gurun?"
 
-Tangannya berhenti.
+*Penyerapannya berhenti.*
 
-Kael menurunkannya dan mundur satu langkah.
+"Berapa lama sebelum sisa energi lama naik lagi?"
 
-“Aku tidak akan mengambilnya.”
+*Tidak dapat dihitung. Tetapi akan terjadi.*
 
-Cahaya di tubuh Penjaga Kawah bergetar.
+Itu cukup.
 
-“Tugas Fragmen ini terlalu penting bagi Zerath,” lanjut Kael. “Mengorbankannya demi kekuatanku bukan Jalan Keempat yang kucari.”
+Kael memandang lengan kirinya.
 
-Untuk beberapa saat, tidak ada jawaban. Kemudian suara Penjaga terdengar di dalam pikiran mereka.
+"Aku ingin sembuh. Tapi bukan dengan memindahkan penyakitku ke dunia."
 
-*Pilihan yang bijak, Pewaris Luka. Kau memilih keseimbangan yang bertahan lama daripada kekuatan sesaat.*
+Tidak ada cahaya besar atau suara surgawi setelah keputusan itu.
 
-Cahaya lembut menyelimuti Kael. Kehangatan meresap ke tubuhnya, menenangkan denyut liar di dada dan mengurangi rasa lelah pada otot-ototnya.
+Gema hanya menundukkan kepala sedikit.
 
-*Jalanmu masih panjang. Aku tidak dapat memberikan kekuatan Hati Bintang Jatuh, tetapi aku dapat menunjukkan tempat jawaban berikutnya menunggu.*
+Kael justru menyukai itu.
 
-Penjaga mengulurkan tangan.
+Tidak semua pilihan membutuhkan tepuk tangan semesta.
 
-Pola bintang memasuki pikiran Kael. Garis-garis cahaya membentuk peta yang mengarah jauh ke utara, menuju deretan pegunungan es di batas dunia.
+Fragmen kelima tetap melayang di tempatnya.
 
-*Carilah Gema Kebenaran di bawah Langit Beku. Di sana kau akan menemukan jawaban tentang dirimu dan musuh yang mengintaimu.*
+Namun sebagian kecil cahaya ungu keluar dari permukaan dan menyentuh dada Kael.
 
-Peta itu menetap jelas dalam ingatan Kael.
+Dia menegang.
 
-Dia menundukkan kepala. “Terima kasih.”
+"Kupikir aku sudah bilang tidak."
 
-*Ingatlah, Jalan Keempat berada di antara Cahaya, Kegelapan, dan Api dalam dirimu. Jangan biarkan salah satunya menelan yang lain.*
+*Ini bukan inti.*
 
-Kael, Sylvara, dan Zireth meninggalkan dasar kawah. Di belakang mereka, Hati Bintang Jatuh tetap melayang dalam cahaya ungu, melanjutkan tugas yang telah dijalankannya selama ribuan tahun.
+Cahaya berubah menjadi pola bintang di udara.
 
-Kael pergi tanpa membawa kekuatan baru.
+Garis-garis tipis membentuk peta Zerath, lalu bergerak ke utara menuju pegunungan yang tertutup putih.
 
-Namun untuk pertama kalinya, dia memahami bahwa menolak kekuatan juga dapat menjadi sebuah kemenangan.
+Satu titik berdenyut di luar batas wilayah yang Kael kenal.
+
+*Gema Kebenaran berada di bawah Langit Beku.*
+
+"Apa itu?"
+
+*Tempat yang menyimpan catatan sebelum ingatan bangsa-bangsa kalian dipisahkan menjadi sejarah masing-masing.*
+
+Zireth memperbesar peta dengan proyeksi dari lengan mekanis.
+
+"Arahnya melewati Karag Thürm. Mungkin sampai wilayah Iskali."
+
+Sylvara mendecih. "Dari gurun ke pegunungan es. Alam benar-benar membenci kita."
+
+Kael mengingat bentuk geometris dalam penglihatan.
+
+"Di sana ada jawaban tentang Sang Arsitek?"
+
+*Ada jawaban tentang dirimu. Itu mungkin lebih berbahaya.*
+
+Kael menghela napas.
+
+"Tentu saja."
+
+Gema menurunkan tangan.
+
+Peta cahaya masuk ke dada Kael seperti percikan kecil. Arah utara menetap di pikirannya, terasa seperti kompas yang tidak membutuhkan jarum.
+
+Mereka meninggalkan kawah menjelang malam.
+
+Kael menoleh sekali dari lereng.
+
+Fragmen kelima masih melayang di atas altar. Gema berdiri di depannya, kembali menjadi bagian dari keheningan gurun.
+
+Kael tidak membawa kekuatan baru.
+
+Anehnya, langkahnya terasa lebih ringan.
+
+Selama ini setiap Fragmen tampak seperti sesuatu yang harus direbut sebelum orang lain mendapatkannya.
+
+Sekarang dia tahu satu kemungkinan lain.
+
+Kadang-kadang menjaga sesuatu berarti membiarkannya tetap berada di tempat yang benar.

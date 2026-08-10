@@ -1,63 +1,135 @@
 # Episode 019 — Bayangan di Balik Bukit Pasir
 
-Kael, Sylvara, dan Zireth keluar dari kawah dan kembali ke panas Gurun Bisikan.
+Jejak sepatu bot muncul lagi di bibir kawah.
 
-Sylvara memandang ke utara, mencoba mencocokkan peta bintang dalam pikiran Kael dengan wilayah yang dia kenal.
+Kael menemukannya saat matahari belum tinggi.
 
-“Arah itu menuju Pegunungan Es Karag Thürm,” katanya. “Mungkin bahkan lebih jauh, sampai wilayah Iskali.”
+Cetakan itu menghadap ke altar, tetapi berhenti jauh sebelum jalur turun.
 
-Zireth memeriksa arsip pada lengan mekanisnya. “Tidak ada catatan tentang Gema Kebenaran yang dapat kuakses. Tapi sebutan Langit Beku pasti merujuk pada bagian paling utara Zerath.”
+"Dia mengawasi," kata Sylvara.
 
-Kael memandang cakrawala.
+Zireth berjongkok. "Dan pergi sebelum kita naik."
 
-“Kalau begitu, jawaban berikutnya ada di sana.”
+"Ke mana?"
 
-Pertemuannya dengan Penjaga Kawah membuat pikirannya lebih tenang, walau beban di pundaknya justru terasa semakin berat. Jalan Keempat bukan lagi ucapan yang dilemparkan di depan tiga faksi. Dia harus benar-benar menemukannya.
+Zireth mengikuti arah jejak dengan pemindai. "Timur laut. Ada oasis tua di peta sekitar dua hari perjalanan."
 
-Saat mereka bersiap pergi, Zireth berhenti di dekat bibir kawah.
+Kael menatap bekas langkah yang sangat teratur itu.
 
-“Jejak itu muncul lagi.”
+Pemiliknya sudah berada di depan mereka sejak Sky-skiff, tetapi tidak pernah mencoba merebut Fragmen kelima.
 
-Bekas sepatu bot besar terlihat pada pasir yang mengeras. Zireth mengikutinya beberapa meter, lalu mengamati arah langkah.
+Kalau tujuannya bukan Fragmen, maka pertanyaan berikutnya menjadi jauh lebih tidak nyaman.
 
-“Pemiliknya tidak turun ke kawah. Dia hanya mengamati dari atas, lalu pergi.”
+"Kita tetap ke utara," kata Kael. "Kalau jejaknya searah, kita akan bertemu."
 
-“Ke mana?” tanya Kael.
+Mereka berjalan dua hari.
 
-Zireth menunjuk ke timur laut. “Jika petaku benar, menuju Oase Air Tersembunyi.”
+Perjalanan kali ini terasa berbeda.
 
-Sylvara mengerutkan kening. “Berarti dia tidak menginginkan Fragmen kelima. Lalu kenapa mengikuti kita?”
+Bukan lebih mudah. Panas masih menguras tenaga, badai pasir masih memaksa mereka berlindung, dan satu malam seekor kalajengking sebesar anjing mencoba masuk ke tenda Sylvara.
 
-Kael kembali memandangi jejak itu. Seseorang telah mengawasi perjalanan mereka sejak bangkai Sky-skiff, tetapi tidak pernah mencoba menyerang atau merebut Fragmen.
+Namun mereka mulai bergerak seperti kelompok yang sudah mengenal kebiasaan masing-masing.
 
-“Untuk sekarang, tujuan kita tetap ke utara,” katanya. “Kalau dia masih mengikuti, jalan kita akan bertemu lagi.”
+Sylvara memilih jalur berdasarkan arah angin. Zireth menghitung persediaan tanpa perlu diminta. Kael berjalan paling luar ketika medan terbuka dan paling belakang saat melewati celah sempit.
 
-Mereka meninggalkan kawah.
+Mereka masih sering berdebat.
 
-Perjalanan melintasi gurun tetap kejam. Badai pasir kecil memaksa mereka berlindung di balik batu. Fatamorgana mengubah bukit menjadi danau palsu, sementara panas menguras tenaga sejak pagi.
+Itu juga terasa seperti kemajuan.
 
-Namun mereka mulai bergerak sebagai satu kelompok.
+Menjelang sore hari kedua, Zireth berhenti.
 
-Sylvara membaca arah dari bentuk bukit dan jejak angin. Zireth menghemat energi sambil memeriksa bahaya di depan. Kael berjalan paling luar, menghadapi makhluk gurun yang mendekat terlalu dekat.
+"Air."
 
-Mereka berasal dari tempat berbeda dan membawa luka masing-masing. Meski begitu, mereka terus berjalan bersama.
+Sylvara hampir mendorongnya dari bukit agar lebih cepat menunjukkan arah.
 
-Mungkin Jalan Keempat memang tidak harus ditempuh sendirian.
+Di balik punggung pasir terbentang oasis kecil dengan beberapa pohon palem, kolam gelap, dan dinding batu rendah sisa bangunan lama.
 
-Beberapa hari kemudian, Zireth berhenti mendadak.
+Asap tipis naik dari tengahnya.
 
-“Sensor mendeteksi sumber air.”
+Kael langsung merunduk.
 
-Mereka mendaki bukit pasir terakhir dengan sisa tenaga. Di baliknya terbentang oasis kecil yang dikelilingi pohon palem.
+Sylvara menyusul.
 
-Kael hendak turun ketika melihat asap tipis naik ke langit senja.
+Zireth mematikan cahaya pada lengan mekanis.
 
-“Ada api unggun.”
+Mereka mengamati dari balik batu.
 
-Mereka berlindung di balik batu besar dan mengamati oasis dari kejauhan.
+Satu api unggun.
 
-Seseorang telah tiba lebih dulu.
+Satu sosok duduk di depannya.
 
-Kael menatap kepulan asap itu, lalu teringat jejak sepatu bot yang selalu berada di depan mereka.
+Kael tidak bisa melihat wajah, hanya tubuh manusia dan kilatan logam pada salah satu lengan.
 
-Mungkin penguntit misterius itu akhirnya berhenti menunggu.
+Jejak sepatu bot di pasir turun ke oasis.
+
+"Orang yang sama," bisik Sylvara.
+
+Zireth mengamati postur sosok itu lebih lama.
+
+"Ada sesuatu yang salah."
+
+"Apa?"
+
+"Cara dia duduk."
+
+Kael menoleh kepadanya.
+
+Zireth mengangkat lengan mekanis sedikit.
+
+"Tangan kanannya bergerak setiap tujuh detik. Persis. Tidak ada variasi."
+
+Kael kembali mengamati orang di dekat api.
+
+Benar.
+
+Tujuh detik.
+
+Gerak kecil pada bahu.
+
+Tujuh detik.
+
+Tangan menggeser tusuk daging.
+
+Tujuh detik.
+
+Gerakan yang sama.
+
+"Aku turun," kata Kael.
+
+Sylvara langsung menggeleng. "Kita bertiga."
+
+"Kalau dia sedang menunggu, aku ingin tahu siapa yang dia tunggu. Kalian tutup jalan keluar."
+
+Zireth menatap sosok itu sekali lagi.
+
+"Hati-hati."
+
+Kael menuruni lereng.
+
+Aroma daging panggang semakin kuat.
+
+Orang itu tidak menoleh meski Kael sudah cukup dekat untuk mendengar bara api pecah.
+
+"Kalau kau datang untuk air," katanya, "ambil saja."
+
+Suaranya membuat Kael berhenti.
+
+Bukan karena dia mengenalnya.
+
+Karena dari balik batu di belakang, Zireth mendadak berdiri.
+
+Wajahnya kehilangan warna.
+
+Sosok di dekat api menoleh.
+
+Rambut cokelat berantakan. Kacamata pelindung di dahi. Bekas luka di pipi kiri.
+
+Dan lengan mekanis yang desainnya hampir sama persis dengan milik Zireth.
+
+Pria itu tersenyum kepada Kael.
+
+"Akhirnya."
+
+Dia mengulurkan tangan logam.
+
+"Namaku Zireth."
