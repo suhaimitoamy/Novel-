@@ -1,51 +1,31 @@
 # Episode 248 — Benturan Dua Belas Panji
 
-Suara para leluhur bergema di seluruh dataran.
+Serangan berikutnya nyata.
 
-Setiap pasukan mendengar pesan berbeda. Elf diperintahkan menjaga kesucian Fragmen dari ras pendek umur. Dwarf diperingatkan bahwa sihir Elf akan merusak jangkar. Celestial mendengar bahwa hanya darah langit mampu mengendalikannya. Bangsa lain menerima penghinaan serta ketakutan yang sesuai sejarah masing-masing.
+Satu pasukan tak dikenal menyerbu dataran dan memakai campuran teknologi dari empat faksi.
 
-Pasukan mulai bergerak.
+Tujuannya jelas: membuat semua pihak saling menuduh.
 
-Kael tidak dapat memadamkan semua suara dengan kekuatan. Dia membaca jejak kausal dan menemukan pusatnya pada pola Sistem yang membungkus Fragmen.
+Kael, Sylvara, Zireth, dan unit campuran yang baru terbentuk menghadapi mereka.
 
-Zevaron membawa Kael menembus medan menggunakan angin. Panah, mantra, dan proyektil terbang di sekeliling mereka. Dia menahan serangan dari jenderal Celestial sendiri tanpa membalas mematikan.
+Musuh ternyata Echo Soldiers—tubuh sintetis tanpa identitas, masing-masing diprogram menyerupai doktrin tempur berbeda.
 
-“Kalau kita gagal, aku akan dicatat sebagai pangeran yang menyerahkan Rhythor kepada Furyborn.”
+Arsitek membuat perang imitasi.
 
-“Kalau berhasil, mereka mungkin tetap mencatat hal yang sama.”
+Kael tidak menghancurkan seluruh pasukan dengan Pulse besar. Mereka menangkap beberapa unit utuh agar bukti dapat diperiksa semua panji.
 
-“Kau buruk dalam memberi semangat.”
+Kair datang melalui Free Node dan mengenali kode dasar saudara sintetisnya.
 
-Mereka mencapai cekungan.
+"Mereka tidak punya ruang kehendak."
 
-Fragmen melayang beberapa meter di atas tanah, diselimuti dua belas simbol yang berbicara dengan suara leluhur. Kael menempelkan tongkat Eira ke tanah dan mengirim resonansi rendah.
+Dia terlihat marah.
 
-Sistem langsung menyesuaikan diri. Ia memakai salinan pola Kael dari data Nexus dan memantulkan pembacaan kembali sebagai nubuat baru:
+Setelah pertempuran, bukti dibuka publik di hadapan dua belas utusan.
 
-**KAEL DRAYVEN MEMBAWA NERAKA KE PERMUKAAN. BUNUH DIA DAN JANGKAR AKAN TENANG.**
+Untuk pertama kalinya semua pihak melihat musuh bersama yang secara literal dibangun dari ketidakpercayaan mereka.
 
-Ribuan mata beralih kepadanya.
+Tetapi satu panji tetap mengaktifkan Fragment.
 
-Beberapa pahlawan terpilih menyerang. Zevaron menahan mereka, sementara Sylvara dan Zireth membuka jalur mediasi dari dua sisi dataran.
+Bukan karena tidak percaya bukti.
 
-Kael tidak mencoba membuktikan dirinya tidak bersalah melalui pidato. Dia menghubungkan Gema Pengetahuan langsung ke pola Sistem dan memperlihatkan proses pembuatan nubuat secara terbuka: bagaimana ketakutan sejarah setiap bangsa dipilih, diputar, lalu dikirim dengan suara yang dianggap suci.
-
-Sebagian prajurit menurunkan senjata.
-
-Sistem meningkatkan volume dan mengambil alih tanah dataran sebagai tubuh. Pilar batu tumbuh menjadi dua belas jenderal raksasa, masing-masing memakai panji satu kekaisaran.
-
-Kael mencari simpul kendali yang menghubungkan suara dengan Fragmen. Tanpa entropi murni, dia tidak dapat menghapus struktur secara langsung.
-
-Dia memakai Frekuensi Penyangkal.
-
-Simpul nol ditempatkan pada jalur antara nubuat dan tindakan. Para prajurit masih mendengar suara, tetapi perintah tersebut kehilangan dorongan supernatural yang memaksa tubuh bergerak.
-
-Untuk pertama kalinya, mereka memiliki waktu memilih apakah akan mematuhi.
-
-Dua belas jenderal batu menyerang Kael dan Zevaron.
-
-Di luar cekungan, beberapa pasukan mulai saling membantu menahan bentuk yang memakai panji mereka sendiri.
-
-Perang belum berhenti.
-
-Namun garis pertempuran berubah: bukan lagi bangsa melawan bangsa, melainkan orang-orang yang memilih melawan Sistem yang memakai ketakutan mereka.
+Karena pemimpinnya melihat kesempatan mengambil keuntungan saat yang lain ragu.

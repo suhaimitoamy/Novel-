@@ -1,67 +1,43 @@
 # Episode 240 — Api Eira Padam
 
-Danau Darah Beku menjadi sunyi setelah jiwa Penjaga bebas.
+Pada malam sebelum Kael pergi, api di lengan Eira padam.
 
-Tongkat Eira berada di tangan Kael. Kayunya penuh retakan, tetapi masih menyimpan sedikit kehangatan dari telapak pemiliknya.
+Bukan kematian.
 
-Sylvara berdiri di samping tanpa cahaya. Keduanya telah kehilangan sesuatu yang tidak dapat dikembalikan, dan tak ada kalimat yang cukup baik untuk menutup luka tersebut.
+Frekuensi Furyborn yang selama ini terus ia paksa bergerak akhirnya berhenti setelah Penjaga menstabilkan lingkungan.
 
-“Dia menyuruhmu tidak menjadikannya alasan untuk mengorbankan diri lagi,” kata Sylvara.
+Eira panik.
 
-“Aku tahu.”
+"Aku tidak bisa merasakannya."
 
-“Mengetahui bukan berarti kau akan menuruti.”
+Selama bertahun-tahun kekuatan itu menjadi bagian identitasnya. Kehilangannya terasa seperti kehilangan anggota tubuh.
 
-Kael tidak menjawab.
+Kael duduk di samping.
 
-Rangka Penjaga runtuh dan membuka ruang di bawah danau. Di dalamnya terdapat Inti Neraka—mesin primordial yang menghubungkan gudang jiwa, Gerbang Arwah, dan seluruh penjara para dewa.
+"Kau masih Eira."
 
-Catatan Sistem bergerak pada dinding.
+"Aku tahu secara teori."
 
-Neraka dibangun bukan untuk menghukum orang jahat. Ia adalah tempat menyimpan tiga hal yang mengganggu kekuasaan para dewa:
+"Teori menyebalkan."
 
-Jiwa yang menolak dipanen.
+Dia tertawa kecil.
 
-Senjata yang tidak dapat dikendalikan.
+Pagi berikutnya Eira mencoba menyalakan api lagi.
 
-Kebenaran yang tidak dapat dihapus tanpa merusak sejarah.
+Tidak muncul.
 
-Kael menemukan arsip tentang Furyborn, Ragnarok Pulse, dan percobaan anti-Voidmaker. Ada juga catatan tentang jiwa yang memiliki hubungan langsung dengan Fragmen Kael.
+Namun frekuensi penyangkal masih ada, lebih halus, tidak lagi bergantung pada nyala.
 
-Nama ibu Kael tidak tertulis. Hanya kode subjek dan status:
+Kekuatan visualnya hilang; prinsip yang ia pelajari tetap.
 
-**DIPINDAHKAN KE RUANG PENYIMPANAN SINGGASANA.**
+Eira memutus tetap menjadi pengawas meski tidak lagi 'kuat' seperti dulu.
 
-“Malgorath mungkin membawanya ke pusat kekuasaannya,” kata Sylvara.
+"Mungkin bagus," katanya. "Kalau aku hanya berguna saat terbakar, sistem baru ini sudah gagal sebelum mulai."
 
-Kael menggenggam tongkat Eira sampai buku jarinya memutih.
+Kael, Sylvara, dan Zireth meninggalkan Neraka.
 
-Inti Neraka menawarkan akses penuh. Jika dia mengambil kendali, seluruh gerbang, jiwa, dan senjata di dunia bawah dapat diarahkan untuk melawan Sang Arsitek serta Sistem Pahlawan.
+Eira berdiri di gerbang tanpa api.
 
-Harga tersebut tampak sederhana: Kael harus menjadi pengelola baru.
+Tidak lebih kecil.
 
-Takhta yang ditolaknya kembali muncul dalam bentuk lain.
-
-Dia menutup antarmuka.
-
-“Kita tidak mengganti penjaga lama dengan diriku.”
-
-Sylvara mengangguk. “Lalu apa yang dilakukan terhadap Inti?”
-
-“Kembalikan keputusan kepada para penghuninya.”
-
-Kael membuka jaringan Inti Neraka kepada roh-roh yang telah bebas. Tidak satu jiwa memegang seluruh kendali. Fungsi gerbang, penyimpanan, dan siklus dibagi kepada banyak kehendak yang dapat saling membatasi.
-
-Sistem lama berhenti menjadi penjara tunggal.
-
-Pada saat itu, api kecil pada tongkat Eira padam sepenuhnya.
-
-Kael tidak merasakan jiwanya di jaringan. Tidak ada pesan terakhir atau tanda bahwa dia masih mengawasi.
-
-Eira benar-benar telah pergi.
-
-Namun pilihan yang dia tinggalkan menjadi bagian struktur baru Neraka: tidak ada satu penjaga yang berhak memiliki semua jiwa.
-
-Jalan menuju dunia atas terbuka.
-
-Kael membawa tongkatnya, bukan sebagai senjata, melainkan bukti bahwa seseorang tanpa Fury tetap mampu mengubah nasib sebuah dunia.
+Hanya berbeda.

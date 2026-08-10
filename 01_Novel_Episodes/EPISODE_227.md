@@ -1,49 +1,43 @@
 # Episode 227 — Suara dari Bayangan Malgorath
 
-Reruntuhan Kegelapan Pertama menyimpan catatan dalam lapisan bayangan.
+Malgorath berbicara melalui penduduk kota.
 
-Kael dan Sylvara bergerak di antara ruang yang hanya muncul ketika cahaya serta gelap berada pada tingkat sama. Eira menjaga pintu belakang, menghalangi roh-roh Neraka yang mencoba mengikuti.
+"Identitas menyebabkan rasa sakit. Lihat Eira. Lihat dirimu. Tanpa nama, tidak ada rasa malu, kehilangan, atau warisan dosa."
 
-Pada ruang terdalam, mereka menemukan mural penciptaan Fragmen.
+Kael berjalan melewati IBU tanpa nama yang menggendong ANAK tanpa nama.
 
-Dua belas jangkar tidak dibuat oleh para dewa Zerath. Mereka dibentuk dari pecahan hukum realitas setelah benturan antara Kegelapan Primordial dan Cahaya Pertama. Para dewa hanya menemukannya kemudian dan mengklaim sebagai warisan sendiri.
+Mereka tampak damai.
 
-“Fragmen bukan milik Cahaya atau Kegelapan,” kata Kael. “Keduanya adalah bahan pembentuknya.”
+Terlalu damai.
 
-Malgorath muncul pada setiap permukaan gelap.
+"Tidak ada cinta juga," jawab Kael.
 
-“Benar. Namun para dewa membutuhkan musuh. Mereka menyebutku sumber segala korupsi dan menjadikan eksperimen Furyborn sebagai bukti.”
+"Ada keterikatan fungsi. Cukup."
 
-Rekaman memperlihatkan laboratorium kuno. Para dewa mengambil luka primordial dari wilayah Malgorath, menanamkannya ke dalam jiwa gagal, lalu memaksa tubuh-tubuh tersebut menyerap energi anti-Voidmaker.
+"Bukan untukku."
 
-Sebagian berubah menjadi Furyborn. Sebagian dibuang ke Neraka. Beberapa menjadi prototipe Ragnarok Pulse.
+Malgorath menunjukkan Aranyel lagi, tetapi kali ini semua korban tanpa wajah.
 
-Sylvara menurunkan busur sedikit. “Kau membiarkan mereka mengambil energi itu?”
+Rasa sakit Kael berkurang.
 
-“Tidak.” Bayangan Malgorath mengeras. “Aku melawan dan kalah. Kegelapan Pertama dipecah, namaku dijadikan monster, lalu sebagian jiwaku dikurung bersama kegagalan mereka.”
+Itulah tawarannya: hilangkan identitas korban, maka rasa bersalah kehilangan sasaran.
 
-Kael merasakan kebenaran dan manipulasi bercampur pada suara tersebut. Malgorath memang menjadi korban para dewa, tetapi penderitaan tidak otomatis menghapus kejahatan yang dilakukan setelahnya.
+Kael menatap desa palsu.
 
-“Apa yang kau lakukan pada jiwa ibuku?”
+"Aku tidak mau sembuh dengan membuat mereka tidak pernah berarti."
 
-“Aku menjaganya dari Sistem.”
+Kota bergetar.
 
-“Dengan persetujuannya?”
+Penduduk tanpa nama berhenti serentak.
 
-Malgorath diam.
+Untuk pertama kalinya beberapa menatap diri sendiri, seolah kalimat Kael menanam pertanyaan.
 
-Itu menjadi jawaban.
+Malgorath menjawab dingin:
 
-Pasukan ketakutan menyerang dari seluruh dinding. Kael memakai superposisi bayangan dan cahaya untuk memisahkan luka primordial asli dari kehendak Malgorath yang menumpanginya.
+"Kalau begitu kau akan membawa setiap nama sampai punggungmu patah."
 
-Sylvara menembakkan panah tanpa cahaya—panah yang tidak menciptakan bayangan baru dan hanya menandai pusat kendali.
+"Tidak."
 
-Malgorath meraung ketika simpulnya terbuka.
+Kael memandang orang-orang.
 
-“Kau memakai kegelapanku sambil menolakku?”
-
-“Aku memakai apa yang menjadi bagian dunia. Bukan berarti aku menyerahkan pilihan kepadamu.”
-
-Mereka mencapai pintu menuju catatan terakhir.
-
-Di baliknya menunggu takhta kosong yang dibentuk dari bayangan seluruh dewa yang pernah menguasai Neraka.
+"Aku akan belajar mengingat tanpa memiliki mereka."

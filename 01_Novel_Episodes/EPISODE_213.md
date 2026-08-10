@@ -1,45 +1,37 @@
 # Episode 213 — Benturan Lembah Neraka
 
-Pasukan tulang memenuhi lorong benteng.
+Darek ingin menutup jalur Malgorath.
 
-Setiap tubuh membawa kematian berbeda. Saat Kael mendekat, gema mereka masuk ke sarafnya: ditenggelamkan, dibakar, dikubur hidup-hidup, atau dilupakan oleh dunia.
+Eira menolak.
 
-Dia hampir tidak mampu menggerakkan kaki.
+"Kalau ditutup, semua gema gelap akan menumpuk di reservoir lain."
 
-Eira berdiri di depan dengan tongkat. Fury-nya telah habis, tetapi pengalaman bertarung tidak ikut lenyap.
+Darek membalas, "Kalau dibiarkan, avatar bangun."
 
-“Jangan biarkan kematian mereka menjadi serangan. Kembalikan sebagai kesaksian.”
+Keduanya benar.
 
-Kael mengubah resonansi jiwa.
+Kael membenci situasi seperti itu, tetapi setidaknya sekarang dia mengenali pola.
 
-Alih-alih menahan jeritan, dia mengalirkannya ke dinding arsip agar setiap kematian kembali terhubung pada nama dan pilihan pemiliknya. Beberapa prajurit tulang berhenti menyerang. Tanah yang membentuk tubuh mereka pecah, memperlihatkan jiwa di dalamnya.
+Mereka memetakan aliran.
 
-Mesin pembersihan mempercepat siklus.
+Bayangan Malgorath tidak menyedot semua energi gelap. Ia mengambil pola identitas yang paling rapuh—jiwa yang lupa nama, memori yang ingin hilang, Furyborn yang menyerah pada satu emosi.
 
-Lantai berubah menjadi rahang tulang. Dinding mengulang jeritan Kael sendiri dari masa depan yang belum terjadi.
+"Dia makan penghapusan diri," kata Kael.
 
-Eira membuka jalan menuju pusat kontrol. Dia memukul sambungan mesin, sementara Kael memakai Frekuensi Penyangkal untuk menghentikan perintah pembersihan sebelum menjadi tindakan.
+Darek mengangguk.
 
-Simpul nol bekerja, tetapi gema kematian memenuhi ruang kosongnya. Setiap langkah membuat Kael merasakan akhir hidup orang lain.
+Solusi bukan menutup pintu.
 
-Dia melihat seorang ibu mati sambil melindungi anak. Seorang Dwarf menahan runtuhan tambang. Seorang pahlawan mengkhianati sahabat karena Sistem menjanjikan kebangkitan.
+Memberi reservoir cara mengurai energi tanpa menghapus identitas.
 
-Rasa sakit tersebut tidak dapat diblokir tanpa memutus hubungan yang hendak diselamatkan.
+Eira mengusulkan frekuensi penyangkal massal. Kael menambahkan node phase kecil agar bayangan tidak bisa mengunci pola. Zireth dan Sylvara mengatur aliran fisik dan biologis.
 
-Kael terus maju.
+Benturan terjadi ketika pintu Malgorath mencoba menarik balik semuanya.
 
-Di pusat mesin terdapat jaringan simbol para dewa, bukan Sang Arsitek. Neraka telah dibangun jauh sebelum ancaman kosmik itu muncul—sebagai gudang bagi segala jiwa, emosi, dan eksperimen yang mengganggu citra sempurna Sistem Pahlawan.
+Seluruh lembah bergetar.
 
-“Para dewa membuat tempat ini,” katanya.
+Kael menahan bukan bayangan, tetapi batas identitas ribuan gema sekaligus.
 
-Eira menatap lambang yang menyala. “Lalu menyebut penghuninya iblis agar dunia tidak bertanya.”
+Untuk pertama kalinya ia mendengar terlalu banyak nama.
 
-Mesin memindahkan kendali ke seluruh benteng. Tulang, tanah, dan jeritan menjadi satu tubuh raksasa.
-
-Kael memilih simpul terkecil yang menghubungkan perintah pembersihan dengan jaringan jiwa. Eira menahan serangan dari samping, dan para roh Furyborn yang mulai sadar membantu menjaga jalur.
-
-Simpul tersebut retak.
-
-Mesin berhenti selama beberapa detik.
-
-Cukup untuk membuka pintu menuju pusat Lembah Neraka, tempat keputusan tentang nasib seluruh gudang kegagalan harus dibuat.
+Dan hampir kehilangan miliknya sendiri.

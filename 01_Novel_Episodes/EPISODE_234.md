@@ -1,55 +1,35 @@
 # Episode 234 — Harga yang Dituntut Nama yang Terkikis
 
-Simpul pengikis berdenyut di depan Kael.
+Verifikasi relasional punya harga.
 
-Pada bagian dalamnya tersimpan suara ibunya—satu-satunya bagian yang masih terasa utuh setelah begitu banyak kenangan hilang.
+Privasi.
 
-Jika Kael memutus simpul, pengikisan nama berhenti. Namun suara itu ikut lenyap.
+Untuk membuktikan kontinuitas, gema harus membagikan sebagian hubungan dan memori kepada jaringan penjaga.
 
-Eira berdiri beberapa langkah di belakang. Liontinnya kini kosong. Dia telah memberikan kenangan terakhir tentang adiknya untuk membuka jalan ini.
+Tidak semua mau.
 
-“Aku tidak akan menyuruhmu melepaskannya,” katanya. “Aku juga tidak akan berkata bahwa mempertahankannya tidak punya harga.”
+Kael menolak menjadikannya wajib.
 
-Versi-versi Kael mengepung ruangan. Mereka menawarkan solusi: biarkan simpul tetap hidup dan serahkan sebagian nama lain. Lupakan Aranyel, Sylvara, Zireth, atau semua korban yang tidak lagi dapat dikenali.
+Mereka menawarkan dua jalur: verifikasi cepat dengan data relasional, atau jalur lambat melalui pengamatan keputusan baru.
 
-Suara sang ibu memanggil.
+Sebagian memilih cepat.
 
-“Kael.”
+Tal memilih lambat.
 
-Hanya satu kata. Namun kehangatan di dalamnya hampir membuat seluruh perjuangan terasa layak dipertukarkan.
+"Aku baru mendapatkan hidupku kembali sedikit. Tidak mau langsung menyerahkan isinya."
 
-Kael menutup mata.
+Kael menghargai itu.
 
-Dia tidak dapat mengingat wajah ibunya. Tidak tahu apakah suara tersebut benar-benar miliknya atau rekonstruksi Neraka dari kerinduan. Namun janji yang lahir dari hubungan itu masih ada: jangan membiarkan kekuatan menentukan siapa yang berhak hidup.
+Sistem menjadi lebih rumit.
 
-Janji tersebut tidak membutuhkan suara untuk tetap dipilih.
+Lebih lambat.
 
-Kael meletakkan tangan kanan pada simpul.
+Tetapi hak akses tidak lagi dibeli dengan membuka seluruh diri.
 
-“Maaf. Aku tidak bisa terus memakai dirimu sebagai alasan untuk tinggal dalam masa lalu.”
+Harga yang dituntut tidak dihapus.
 
-Suara itu tidak memohon atau marah.
+Dibuat menjadi pilihan yang transparan.
 
-Ia hanya mengucapkan namanya sekali lagi.
+Malgorath tidak menyerang hari itu.
 
-Kael memakai denyut ritmis untuk memisahkan pengikisan identitas dari seluruh koridor. Merah membuka simpul. Biru menjaga pilihan yang masih tersisa. Ungu mengurai hubungan paksa antara nama dan kenangan.
-
-Simpul retak.
-
-Suara ibunya menghilang.
-
-Bukan memudar perlahan. Satu detik masih ada, detik berikutnya tidak pernah terdengar lagi dalam ingatan Kael.
-
-Dia jatuh pada satu lutut.
-
-Eira tidak menghiburnya dengan janji bahwa suara tersebut dapat ditemukan kembali. Dia hanya duduk di samping dan membiarkan kehilangan itu memiliki ruang.
-
-Setelah beberapa saat, Kael mengulang janji yang masih dia ingat.
-
-Kata-katanya terdengar asing tanpa suara sang ibu, tetapi tetap menjadi pilihannya.
-
-Koridor berhenti mengikis nama.
-
-Kael Drayven bertahan bukan karena ingatannya sempurna, melainkan karena dia terus memilih menjadi orang yang membawa janji tersebut.
-
-Di depan mereka, pusat koridor terbuka menuju danau darah. Sesuatu yang sangat besar bergerak di bawah permukaannya.
+Mungkin karena Bayangan juga sedang belajar bahwa orang yang diberi pilihan lebih sulit dimanipulasi dengan rasa takut kehilangan akses.

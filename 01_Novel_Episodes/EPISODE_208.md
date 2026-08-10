@@ -1,51 +1,41 @@
 # Episode 208 — Benturan Manifestasi Utama
 
-Kael memasuki tubuh Voidmaker melalui koridor yang dibuka seluruh aliansi.
+Percakapan gagal pada menit pertama.
 
-Sylvara dan Zireth ikut bersamanya. Zevaron menjaga pintu dari luar, menahan massa antimateri agar tidak menutup jalur pulang.
+Sebagian Manifestasi menyerang sementara bagian lain memohon nama.
 
-Di dalam manifestasi tidak ada daging atau organ. Mereka berdiri pada ruang hitam yang dipenuhi jejak dunia-dunia mati. Kota, gunung, dan wajah korban muncul sebagai bayangan sebelum kembali larut menjadi kesunyian.
+Tidak ada satu kehendak pusat.
 
-Pola Sang Arsitek membentang di tengah seperti jaring putih raksasa.
+Kael hampir membuat kesalahan lama: mencari inti untuk dikendalikan.
 
-“Penandanya bukan satu simpul,” kata Zireth. “Ia tersebar pada setiap energi yang pernah dimakan.”
+Eira berteriak, "Jangan beri dia pusat yang tidak punya!"
 
-Kael memakai tiga Pulse.
+Mereka mengubah pendekatan.
 
-Resonansi menghubungkan jejak-jejak dunia yang tercerai. Entropi mengurai pola geometris tanpa meledakkan energi. Keseimbangan menjaga hasilnya tidak jatuh kembali ke Zerath.
+Sylvara menandai kelompok pola yang masih kohesif.
 
-Voidmaker menciptakan pasukan dari bayangan korban. Mereka menyerang tanpa suara, masing-masing membawa teknik dunia asalnya.
+Zireth membaca densitas tubuh sementara.
 
-Sylvara menandai jalur aman. Zireth menghitung arus antimateri dan menggeser mereka di antara serangan. Kael hanya memakai Frekuensi Penyangkal pada saat perintah musuh berubah menjadi tindakan.
+Eira menjaga frekuensi agar bagian-bagian tidak kembali menyatu.
 
-Setiap simpul yang diputus membuat tubuh utama bergetar.
+Kael menggunakan Pulse sangat kecil untuk memisahkan batas, bukan menghancurkan.
 
-Di luar, aliansi mengarahkan energi yang terlepas melalui koridor menuju ruang kosmik asal Voidmaker.
+Setiap kali satu gugus terpisah, suara menjadi lebih jelas.
 
-Sang Arsitek mengubah strategi.
+Nama-nama muncul.
 
-Jaring putih meniru hubungan mereka. Salinan Sylvara dan Zireth muncul, bergerak berdasarkan semua data yang pernah dicuri.
+Beberapa ingin dilepas.
 
-Kael tidak mencoba membedakan lewat gerakan. Dia memanggil kenangan yang hanya mereka bertiga pahami—ketakutan di Gurun Bisikan, tangan yang menangkapnya di Puncak Beku, dan saat lengan bintang Zireth ditempa dari kehilangan.
+Beberapa ingin tetap bersama karena takut hilang.
 
-Salinan tidak mampu menjawab.
+Tidak ada jawaban tunggal.
 
-Sylvara menghancurkan bayangannya sendiri. Zireth memutus salinan lengan bintang. Kael membuka jalur ke pusat penanda.
+Benturan berlangsung berjam-jam, bukan sebagai duel, tetapi operasi penyelamatan pada organisme yang terbuat dari orang.
 
-Di sana terdapat pintu kecil yang sama dengan Pintu Entropi dalam dadanya, tetapi ukurannya sebesar kota.
+Bagian paling agresif akhirnya terisolasi.
 
-Voidmaker memakainya untuk menerima arah dari Sang Arsitek.
+Di dalamnya terdapat pola kakak Eira.
 
-Kael menempelkan tangan kanan pada permukaannya.
+Wajah itu menatap adiknya dan berkata satu kalimat:
 
-Rasa lapar seluruh makhluk masuk ke pikirannya sekaligus.
-
-Dia hampir kehilangan namanya.
-
-Suara Sylvara dan perhitungan Zireth menariknya kembali.
-
-Kael membentuk simpul nol pada pusat pintu.
-
-Pola putih berhenti bergerak.
-
-Namun untuk menutupnya, Frekuensi Penyangkal harus dipertahankan jauh lebih lama daripada batas tubuhnya.
+"Jangan bawa aku pulang kalau pulang berarti menjadi orang yang kau ingat, bukan yang tersisa sekarang."

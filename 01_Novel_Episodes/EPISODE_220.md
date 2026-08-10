@@ -1,61 +1,47 @@
 # Episode 220 — Harga Sebuah Nama
 
-Gerbang Arwah berdiri di tengah perkampungan.
+Bayangan Malgorath tiba sebelum mereka meninggalkan Takhta.
 
-Tulisan pada lengkungannya sederhana:
+Ia tidak punya tubuh sendiri, jadi memakai nama yang paling berat bagi Kael.
 
-**SATU NAMA UNTUK SATU JALAN PULANG.**
+"Ibu."
 
-“Bukan darah, energi, atau jiwa,” kata Eira. “Gerbang ini meminta identitas.”
+Sosok ibunya berdiri di depan kursi hitam.
 
-Sylvara langsung menggeleng. “Kita cari jalan lain.”
+Kael menutup mata.
 
-Di kejauhan, pasukan iblis bergerak menuju kampung. Jalan lain tidak akan terbuka sebelum mereka tiba.
+"Murah."
 
-Kael memandang roh-roh yang baru terpisah dari kerumunan. Banyak di antara mereka belum memiliki nama. Memberikan satu nama kepada gerbang berarti menghapus jejak seseorang dari seluruh jaringan arwah.
+"Kau bahkan tidak mau mendengar apakah aku benar-benar menyimpan bagian dirinya?"
 
-“Pakai namaku,” katanya.
+Kael membuka mata lagi.
 
-Sylvara mencengkeram kerah bajunya. “Kau baru hampir kehilangan identitas. Jangan mengucapkan itu seolah tidak berarti.”
+Mungkin ada gema ibunya di Neraka. Kemungkinan itu cukup untuk menyakitkan.
 
-“Kalau gerbang mengambil nama Kael Drayven, mungkin aku tetap dapat hidup dengan hubungan yang kalian ingat.”
+Namun dia tidak menyerang.
 
-“Dan mungkin kau berubah menjadi wadah kosong lagi.”
+"Kalau ada bagian ibuku, dia punya nama sendiri. Kau tidak berhak memakainya."
 
-Eira memeriksa rune. “Gerbang tidak meminta nama hidup secara khusus. Ia hanya membutuhkan identitas yang diberikan dengan sukarela.”
+Takhta merespons kalimat itu.
 
-Roh Furyborn pertama muncul dari antara rumah kenangan. Wajahnya terbentuk dari api merah tua.
+Nama palsu pada Bayangan retak.
 
-*Namaku telah lama dihapus Sistem,* katanya. *Namun Eira membawanya kembali tadi malam.*
+Sosok berubah menjadi gelap tanpa wajah.
 
-Dia menyebut satu nama kuno yang tidak dapat diucapkan lidah manusia tanpa berubah menjadi gema.
+Malgorath tertawa.
 
-Eira menatapnya. “Kalau kau memberikannya, kami tidak akan dapat mengingatmu lagi.”
+"Nama memang mahal, Dra-Kelyn. Kau baru belajar kenapa aku mengumpulkannya."
 
-*Bukan benar-benar hilang. Pilihanku akan tinggal pada jalan yang kubuka.*
+Bayangan mundur ke gerbang berikutnya.
 
-Kael ingin menolak pengorbanan tersebut. Roh itu mengangkat tangan.
+Sebelum hilang, ia membawa satu nama dari dinding.
 
-*Jangan curi hak memilih kami setelah berkhotbah tentang kebebasan.*
+Bukan nama Kael.
 
-Kata-kata yang sama kembali menghentikannya.
+Nama Furyborn yang tidak mereka kenal.
 
-Roh Furyborn berjalan ke gerbang dan menyerahkan namanya. Cahaya merah memenuhi rune. Wajahnya memudar, lalu seluruh kampung lupa siapa yang baru saja berdiri di sana.
+Ukiran langsung kosong.
 
-Hanya rasa kehilangan hangat yang tersisa.
+Seseorang telah dicuri dari sejarah Neraka.
 
-Gerbang terbuka.
-
-Kael menulis satu kalimat pada Gema Pengetahuan sebelum ingatan terakhir lenyap:
-
-**Seseorang memilih membuka jalan bagi kami. Jangan biarkan ketiadaan namanya mengubah pilihan itu menjadi tidak pernah ada.**
-
-Eira, Sylvara, dan Kael melewati gerbang bersama roh-roh yang memilih ikut ke siklus dunia. Mereka yang ingin tinggal tetap berada di kampung, kini bebas dari mesin pembersihan.
-
-Saat jalur menutup, pasukan iblis mencapai perkampungan dan berhenti di depan rune yang padam.
-
-Kael kembali ke dunia atas dengan satu utang kepada seseorang yang tidak lagi dapat dia ingat.
-
-Di The Core, pertempuran masih berlangsung.
-
-Dan pasukan Neraka kini memiliki pemimpin yang sedang menaiki gerbang menuju Zerath.
+Mereka harus mengejar sebelum Malgorath mengumpulkan cukup nama untuk membentuk takhta hidup.

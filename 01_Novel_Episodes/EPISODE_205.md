@@ -1,61 +1,41 @@
 # Episode 205 — Nada yang Tidak Bisa Dimakan
 
-Manifestasi utama menembus cincin pertahanan saat Kael meninggalkan laboratorium.
+Makhluk pertama Neraka tidak memiliki wajah.
 
-Dinding The Core telah terbuka pada satu sisi. Di baliknya mengambang sosok raksasa tanpa bentuk tetap, tersusun dari kegelapan antimateri dan sisa tubuh prajurit yang pernah dihapus.
+Ia mendekat sambil meniru suara Sylvara, lalu Zireth, lalu Kael sendiri.
 
-Setiap denyutnya memakan cahaya.
+Setiap suara yang ditiru membuat sumber aslinya sedikit lebih sulit mengingat nada bicara sendiri.
 
-Sosok Berhelm memerintahkan seluruh pasukan mundur ke lapisan dalam. Sylvara dan Zevaron menahan jalur, sementara Zireth menghubungkan lengan bintang ke sistem benteng.
+Eira menyebutnya Pemakan Nada.
 
-Kael berjalan dengan tongkat. Tubuhnya lambat, tetapi Ragnarok Pulse kini memiliki irama baru—denyut Fury Eira yang kasar di pusat simpul nol.
+"Jangan jawab dengan suara."
 
-Voidmaker mengenalinya.
+Kael menggunakan resonansi tanpa bentuk kata. Zireth menghantam tanah dengan pola mineral. Sylvara mengetuk busur.
 
-*Wadah rusak. Namun nada baru terdeteksi.*
+Pemakan mencoba menyalin semuanya.
 
-Manifestasi melepaskan gelombang annihilation.
+Eira mengirim frekuensi penyangkal yang berubah tepat sebelum makhluk mengunci pola.
 
-Kael membentuk Frekuensi Penyangkal.
+Makhluk tersendat.
 
-Tidak ada perisai yang terlihat. Gelombang musuh masuk ke wilayah simpul nol dan kehilangan hubungan antara niat serta akibat. Energinya masih ada, tetapi tidak dapat menghapus materi.
+Kael melihat celah: ada satu nada yang tidak bisa dimakan karena tidak pernah menjadi keluaran tetap—keputusan kapan berhenti.
 
-Batu, udara, dan tubuh di belakang Kael tetap utuh.
+Dia menyerang bukan dengan Pulse besar, tetapi menghentikan resonansi sepersekian detik sebelum makhluk menyalin.
 
-Zireth memandang sensor dengan tidak percaya. “Tidak ada kenaikan entropi.”
+Pemakan kehilangan target dan runtuh menjadi asap.
 
-Voidmaker menyerang lagi dengan intensitas lebih besar.
+Eira menatap Kael.
 
-Kael menahan teknik. Saraf yang rusak bergetar, kaki kanannya hampir roboh, dan darah mengalir dari hidung. Nada Fury Eira menjaga simpul tidak berubah menjadi pintu keheningan.
+"Kau belajar cepat."
 
-*Energi tanpa konsumsi. Penolakan terhadap fungsi.*
+"Aku punya banyak guru yang mencoba membunuhku."
 
-Untuk pertama kalinya, suara Voidmaker menyimpan sesuatu menyerupai kebingungan.
+"Guru efektif."
 
-Kael maju satu langkah.
+Mereka melanjutkan.
 
-“Kau dapat memakan kekuatan, materi, bahkan ingatan. Tapi nada ini tidak diciptakan untuk menang atau menghancurkan.”
+Di balik bukit hitam, tanah mulai bergerak seperti dada bernapas.
 
-Dia memperluas simpul ke tubuh manifestasi.
+Eira menegang.
 
-Frekuensi Penyangkal memisahkan rasa lapar alami Voidmaker dari pola geometris Sang Arsitek. Benang putih muncul pada pusat kegelapan.
-
-Sylvara menembakkan panah penanda. Zevaron mengarahkan petir ke sisi luar. Zireth mengunci koordinat benang melalui benteng.
-
-Kael menariknya ke simpul nol.
-
-Pola Arsitek berhenti berfungsi.
-
-Manifestasi utama kehilangan arah dan mundur dari The Core, bukan karena terluka, melainkan karena tidak lagi mengenali planet sebagai sasaran yang telah ditandai.
-
-Namun tubuh aslinya masih berada di luar atmosfer. Mereka hanya memutus satu jalur.
-
-Kael jatuh. Sylvara menangkapnya sebelum kepala menyentuh lantai.
-
-Di langit, Voidmaker berbelok sesaat.
-
-Kemudian dua belas sinyal lain menyala menuju Fragmen-fragmen Zerath.
-
-Nada yang tidak bisa dimakan telah menyelamatkan The Core.
-
-Sekarang mereka harus membawanya ke seluruh dunia sebelum pemangsa menemukan jangkar lain.
+"Manifestasi utama bangun."

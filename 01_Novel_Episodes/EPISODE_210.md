@@ -1,49 +1,45 @@
 # Episode 210 — Gerbang Neraka Terbuka
 
-Tubuh utama Voidmaker terlepas dari langit Zerath.
+Pemecahan Manifestasi mengubah tekanan Neraka.
 
-Seluruh aliansi menyaksikan massa antimateri ditarik kembali ke ruang kosmik asalnya. Bintang-bintang yang sempat hilang muncul satu demi satu.
+Energi yang selama ribuan tahun ditahan organisme besar kembali ke tanah.
 
-Tidak ada sorak.
+Gerbang-gerbang lama mulai bangun.
 
-The Core berguncang dari bawah.
+Eira melihat cahaya merah di cakrawala dan mengumpat.
 
-Retakan hitam-merah membelah lantai benteng dan menyebar menuju horizon. Panas yang keluar bukan api biasa. Ia membawa bau belerang, darah tua, dan jiwa yang telah terbakar sejak zaman sebelum kekaisaran berdiri.
+"Kita memindahkan beban."
 
-Zireth memeriksa pembacaan. “Recoil dari pengalihan energi menghantam segel bawah planet.”
+Kael mengangguk. "Lagi."
 
-“Segel apa?” tanya Sylvara.
+Namun kali ini mereka tahu apa yang terjadi.
 
-Model Zerath menampilkan lapisan yang tidak pernah tercatat oleh Nexus: ruang luas di bawah jaringan Leyline, dipisahkan dari dunia atas oleh rangkaian rune primordial.
+Neraka bukan penjara satu arah. Ia jaringan pembuangan untuk energi, jiwa rusak, dan resonansi berlebih. Mengubah satu reservoir menggeser tekanan ke tempat lain.
 
-Zevaron memandang api yang muncul dari retakan. “Neraka Zerath.”
+Gerbang terbesar terbuka di Lembah Neraka.
 
-Bukan tempat hukuman buatan dewa, melainkan dunia bawah tempat energi, jiwa, dan makhluk yang tidak dapat kembali ke siklus disegel setelah Perang Primordial.
+Dari dalamnya keluar suara ribuan Furyborn terdahulu.
 
-Arus antimateri yang diarahkan keluar telah menekan sisi lain segel dan merobeknya dari dalam.
+Bukan menyerang.
 
-Gerbang raksasa muncul di bawah The Core. Lengkungannya terbentuk dari tulang hitam serta logam cair. Rantai-rantai sebesar menara mulai putus satu demi satu.
+Memanggil.
 
-Dari baliknya terdengar raungan banyak makhluk.
+Eira berkata, "Kalau gerbang itu terbuka penuh, sisa-sisa dari semua lapisan akan naik ke Zerath."
 
-Sosok Berhelm mengirim perintah evakuasi. Pasukan Dwarf dan Celestial membentuk garis pertahanan baru meski baru saja menyelesaikan perang di langit.
+Kael memandang jalur merah.
 
-Kael mencoba berdiri. Tubuhnya hampir tidak merespons. Lengan kiri mati rasa, kaki kanan lemah, dan Frekuensi Penyangkal masih menggetarkan sarafnya.
+"Kita tutup?"
 
-Sylvara menahannya. “Kau tidak masuk ke gerbang itu dalam keadaan seperti ini.”
+Eira menggeleng.
 
-“Aku tidak akan memimpin serangan.” Kael melihat retakan yang terus melebar. “Tapi Ragnarok Pulse bereaksi pada sesuatu di bawah sana.”
+"Kalau langsung ditutup, tekanan kembali meledak di tempat lain. Kita harus masuk dan memperbaiki aliran."
 
-Detak dingin di dadanya berubah. Bukan rasa lapar Voidmaker.
+Sylvara menarik tali busur. Zireth mengaktifkan lengan barunya.
 
-Sebuah denyut panas menjawab dari Neraka, akrab seperti Fragmen tetapi jauh lebih tua dan marah.
+Kael membuka jalan.
 
-Eira mendekat dengan tongkat, tubuhnya kini tanpa Fury. “Ada kekuatan yang tidak pernah masuk catatan dua belas Fragmen.”
+Gerbang Neraka terbuka lebar.
 
-Gerbang terbuka penuh.
+Mereka masuk bukan untuk menaklukkan Neraka.
 
-Gelombang api hitam menyapu The Core. Dari dalamnya melangkah pasukan iblis dengan zirah yang telah membeku oleh usia. Di belakang mereka, sebuah bayangan bertanduk besar membuka mata merah.
-
-Voidmaker telah dipukul mundur.
-
-Namun jalan menuju Neraka Zerath kini terbuka, dan sesuatu di sana telah menunggu kesempatan tersebut selama ribuan tahun.
+Untuk memahami sistem pembuangan dunia yang selama ini semua orang hanya tahu cara mengunci.

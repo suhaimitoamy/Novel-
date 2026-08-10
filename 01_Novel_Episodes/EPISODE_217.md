@@ -1,45 +1,39 @@
 # Episode 217 — Suara dari Roh Furyborn
 
-Menara kesaksian dipenuhi ribuan suara yang tidak lagi memiliki tubuh.
+Roh-roh tidak muncul sebagai hantu.
 
-Sylvara terus mengulang nama dan sejarah Kael selama mereka menaiki tangga. Setiap kali dia berhenti untuk menarik napas, bagian identitas Kael terasa longgar.
+Mereka berbicara melalui nama di dinding.
 
-Di puncak, mereka menemukan arsip para pengguna Pulse terdahulu.
+Setiap ukiran menyimpan satu keputusan terakhir.
 
-Rekaman pertama memperlihatkan seorang Furyborn muda menerima luka Voidmaker yang ditanam para dewa ke dalam dadanya. Tubuhnya bertahan tiga hari sebelum berubah menjadi massa entropi.
+"Aku masuk karena kerajaan memburu anakku."
 
-Percobaan kedua hidup lebih lama. Dia mampu menahan serangan antimateri, tetapi kehilangan belas kasih dan membunuh seluruh kelompok penjaga.
+"Aku masuk karena aku kehilangan kendali."
 
-Percobaan berikutnya gagal dengan cara berbeda: tubuh terbakar, jiwa terbelah, atau kehendak diambil Sistem.
+"Aku masuk karena kupikir mati di sini lebih baik daripada dipakai perang."
 
-Eira mengepalkan tangan. “Para dewa menciptakan Furyborn gagal untuk mencari wadah anti-Voidmaker.”
+Eira menemukan suara dirinya sendiri.
 
-Kael menatap barisan nama yang telah dicoret setelah setiap kegagalan.
+"Aku masuk mencari kakakku. Jika aku keluar tanpa mengingat, jangan percaya versi diriku yang bilang aku tidak pernah takut."
 
-“Lalu mereka membuang semua buktinya ke Neraka.”
+Eira duduk.
 
-Di akhir arsip terdapat catatan tentang satu percobaan yang hilang sebelum diuji. Subjek tersebut membawa resonansi tiga energi dan berada di luar rantai sebab-akibat Zerath.
+Memori yang hilang kembali sedikit.
 
-Tidak ada nama, hanya simbol yang sama dengan Fragmen Kael.
+Dia pernah mencapai aula ini bertahun-tahun lalu, lalu sengaja menghapus sebagian ingatan agar Bayangan Malgorath tidak dapat mengikuti informasi keluar.
 
-“Apakah itu aku?”
+"Aku memotong diriku sendiri untuk menjaga rahasia," katanya.
 
-“Bisa jadi rencana yang akhirnya melahirkanmu,” kata Sylvara. “Atau seseorang sebelum dirimu.”
+Kael tidak memuji pengorbanannya.
 
-Roh-roh tanpa nama mengepung menara.
+"Kau mau mengambil ingatan kembali?"
 
-Mereka telah mendengar kesaksian dan memahami bahwa tubuh Kael mungkin merupakan hasil yang selama ini dicari para dewa. Rasa iri berubah menjadi keputusasaan.
+Eira menatap nama.
 
-*Berikan tubuh itu. Biarkan salah satu dari kami hidup kembali.*
+"Sebagian. Tidak semua. Aku yang sekarang juga nyata."
 
-Kael memanggil penguncian identitas. Sylvara menyebut namanya, sementara Eira menyebut nama-nama Furyborn yang sempat dia pelajari dari lembah.
+Mereka menyalin hanya memori yang Eira pilih.
 
-Setiap roh yang mendapatkan kembali nama berhenti menyerang. Mereka tidak memperoleh tubuh, tetapi kembali memiliki batas antara diri sendiri dan kerumunan.
+Di dalamnya ada satu informasi penting:
 
-Namun satu kelompok menolak.
-
-Mereka telah kehilangan nama terlalu lama. Identitasnya menyatu menjadi makhluk besar dari seribu wajah yang ingin memakai tubuh Kael sebagai wadah bersama.
-
-Makhluk itu memanjat menara.
-
-Kael berdiri di puncak, menjaga namanya sendiri sambil mencoba menyelamatkan mereka yang bahkan tidak lagi ingat siapa yang harus diselamatkan.
+Bayangan Malgorath mencari Takhta Nama—mekanisme Neraka yang dapat memberi satu identitas otoritas atas ribuan gema.

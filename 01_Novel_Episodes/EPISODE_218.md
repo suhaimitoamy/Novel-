@@ -1,53 +1,35 @@
 # Episode 218 — Benturan Roh Furyborn
 
-Makhluk seribu wajah menghantam menara.
+Takhta Nama dijaga roh Furyborn yang memilih menjadi penjaga setelah mati.
 
-Setiap wajah memakai suara berbeda untuk memanggil Kael. Sebagian meniru ibunya, Rowan, Roh Es Agung, bahkan korban Valerium yang namanya telah hilang.
+Mereka tidak percaya Kael.
 
-Kael hampir menjawab salah satu panggilan.
+"Dra-Kelyn selalu berakhir sebagai pusat," kata salah satu gema. "Pusat menjadi raja. Raja menjadi penjara."
 
-Sylvara berteriak dari belakang, “Jangan percaya suara yang hanya mengulang apa yang ingin kau dengar.”
+Kael setuju dengan kekhawatiran mereka.
 
-Dia menyebut nama Kael sekali lagi, diikuti sejarah yang masih mereka bagi. Suaranya menjadi garis yang membedakan identitas asli dari tiruan.
+Itu membuat penjaga bingung.
 
-Kael mengunci frekuensi tersebut dalam Ragnarok Pulse.
+"Aku juga tidak mau takhta."
 
-Makhluk itu memanjat dinding dan mencoba masuk melalui luka sarafnya. Lengan kiri yang mati rasa bergerak sendiri, mencengkeram tepi menara seolah hendak menarik tubuhnya ke arah kerumunan.
+Bayangan Malgorath menyerang melalui roh yang paling marah. Bukan mengendalikan paksa—memperbesar luka sampai kehendak lain tenggelam.
 
-Eira memukul siku tersebut dengan tongkat hingga kendalinya putus.
+Eira menggunakan frekuensi penyangkal untuk memberi ruang pada suara lain.
 
-“Tubuhmu masih suka dipakai orang lain.”
+Kael menjaga sela.
 
-“Bukan pilihan pertama dalam daftar masalahku.”
+Roh-roh sendiri memutus pengaruh.
 
-Kael memakai Frekuensi Penyangkal untuk menghentikan dorongan roh tanpa menghapus mereka. Sylvara menandai wajah-wajah yang masih memiliki gema nama. Eira memanggil silsilah Furyborn dari ingatannya.
+Pertarungan tidak berakhir dengan Kael menaklukkan penjaga.
 
-Satu per satu wajah terpisah dari massa utama.
+Mereka mengizinkannya lewat setelah melihat dia tidak mencoba menjadi pusat komando.
 
-Namun bagian tanpa nama semakin marah. Ia menyerap rumah-rumah perkampungan dan memakai kenangan penghuninya sebagai tubuh baru. Jalan, pintu, dan atap berubah menjadi tangan yang meraih menara.
+Di balik mereka, Takhta Nama menunggu.
 
-Kael dapat menghancurkan pusatnya dengan entropi penuh.
+Kursi hitam tanpa pemilik.
 
-Dia memilih sebaliknya.
+Satu ukiran di sandarannya:
 
-Ragnarok Pulse disebar sebagai penguncian identitas. Setiap struktur dipisahkan berdasarkan kenangan pembentuknya: rumah kembali menjadi tawa, pintu kembali menjadi suara, dan dinding kembali menjadi sentuhan yang pernah dimiliki seseorang.
+**SIAPA YANG DUDUK DI SINI DAPAT MENENTUKAN NAMA APA YANG TETAP ADA.**
 
-Makhluk seribu wajah kehilangan tubuh pinjaman.
-
-Di pusatnya tersisa simpul gelap tanpa nama.
-
-Sylvara mendekat dan meletakkan Gema Pengetahuan di hadapannya. Artefak itu tidak memberi nama baru. Ia hanya memperlihatkan bahwa kekosongan tersebut pernah terdiri dari banyak orang.
-
-Kael berbicara kepada mereka.
-
-“Aku tidak bisa mengembalikan semua yang hilang. Tapi aku tidak akan memakai kalian sebagai bahan bakar atau musuh tanpa wajah.”
-
-Simpul itu goyah.
-
-Sebagian roh menerima pernyataan tersebut dan memisahkan diri. Sisanya menyerang sekali lagi, lebih kecil tetapi jauh lebih putus asa.
-
-Kael menahan benturan bersama Sylvara dan Eira.
-
-Pertarungan tersebut bukan untuk menang.
-
-Ia adalah usaha terakhir agar orang-orang yang kehilangan identitas tidak ikut kehilangan hak memilih.
+Kael tidak mendekat.

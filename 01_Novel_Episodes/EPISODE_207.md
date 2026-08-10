@@ -1,39 +1,45 @@
 # Episode 207 — Suara dari Manifestasi Utama
 
-Jaringan aliansi menahan serangan pertama, tetapi tubuh Voidmaker terus menekan turun.
+Manifestasi berbicara saat masih jauh.
 
-Setiap kekaisaran menerima dampak berbeda. Di jalur Aelarion, pepohonan kehilangan warna. Meriam Dwarf menjadi transparan. Air Nyrathis menguap tanpa panas. Pasukan yang tersentuh terlalu lama mulai dilupakan oleh rekan di sampingnya.
+Ribuan suara datang bersamaan.
 
-Kael menjaga irama pusat sambil mendengarkan tubuh antimateri.
+"NAMA. BERI NAMA."
 
-Di balik rasa lapar terdapat pola aliran. Voidmaker tidak menyimpan energi yang dimakan. Ia membawanya ke luar realitas, menuju ruang keseimbangan kosmik yang seharusnya menampung kelebihan energi dari dunia-dunia mati.
+Kael merasakan tekanan pada identitasnya.
 
-“Voidmaker awalnya bukan pemusnah,” kata Kael melalui jaringan. “Ia mekanisme pembuangan. Sesuatu membuatnya memburu dunia yang masih hidup.”
+Makhluk itu tidak ingin nama Kael sebagai kata. Ia ingin struktur yang membuat kata itu menunjuk pada satu individu.
 
-Pola Sang Arsitek muncul pada bagian terdalam tubuh makhluk. Bukan kendali penuh, melainkan serangkaian arah dan sasaran yang menipu naluri kosmiknya.
+Eira menyuruh semua orang menyebut nama sendiri dalam hati, bukan keras.
 
-Zireth mengirim peta kepada seluruh pasukan. “Kalau kita menghancurkan tubuhnya di sini, seluruh energi antimateri dilepaskan ke Zerath.”
+Manifestasi semakin dekat—massa bayangan dan tubuh setengah jadi, wajah muncul lalu tenggelam.
 
-“Jadi kita arahkan kembali ke luar,” ujar Sylvara.
+Satu wajah berhenti lebih lama.
 
-Kael membuka koridor resonansi lebih lebar. Aliansi menembakkan serangan bukan kepada tubuh Voidmaker, melainkan pada ruang di belakangnya, membentuk arus yang menarik massa antimateri menjauh dari planet.
+Seorang perempuan muda.
 
-Makhluk itu merasakan perubahan.
+"Eira."
 
-*Energi diarahkan. Fungsi dihalangi. Wadah utama menjadi sumber alternatif.*
+Eira membeku.
 
-Detak dingin dalam dada Kael berdenyut keras. Voidmaker mencoba menjadikan dirinya titik buang baru.
+"Kakakku," katanya sangat pelan.
 
-Tubuh Kael terangkat dari tanah. Residu antimateri menarik massa utama menuju Fragmennya.
+Makhluk menggunakan potongan ingatan untuk memanggil.
 
-Sylvara memegang pinggangnya, sementara Zireth mengunci kaki Kael dengan medan bintang.
+Kael tidak berkata itu palsu.
 
-“Jangan biarkan ia memakai tubuhmu sebagai jalan keluar,” teriak Sylvara.
+Bisa jadi memang bagian kakak Eira ada di sana.
 
-Kael membentuk Frekuensi Penyangkal di dalam dadanya. Simpul nol menahan hubungan antara residu dan tubuh utama, tetapi hanya sementara.
+"Kau mau mencoba mengambilnya?"
 
-Di tengah tekanan itu, dia menemukan satu kebenaran lain: kemenangan tidak datang dari memusnahkan Voidmaker.
+Eira menatap wajah itu.
 
-Mereka harus mengembalikan energi tersebut ke tempat asalnya tanpa membiarkan Sang Arsitek mengubah arah lagi.
+"Aku mau."
 
-Untuk melakukannya, seseorang harus masuk ke pusat manifestasi dan memutus penanda dari dalam.
+Lalu menarik napas.
+
+"Tapi aku tidak tahu apakah yang tersisa ingin diambil."
+
+Mereka mendekat bukan sebagai pemburu.
+
+Sebagai orang yang mencoba bicara dengan ribuan sisa yang selama ini dianggap monster.

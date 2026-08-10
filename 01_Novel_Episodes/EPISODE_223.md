@@ -1,55 +1,35 @@
 # Episode 223 — Benturan Gerbang Arwah
 
-Api entropi menyala di bawah jembatan.
+Bayangan Malgorath menyerang aliran arwah dari sisi lain.
 
-Kael melihat dirinya dalam setiap pertempuran besar. Di balik ketakutan dan tanggung jawab, ada satu perasaan lain yang selalu muncul ketika Ragnarok Pulse menghancurkan penghalang: kepuasan.
+Ribuan nama terseret menuju satu pusaran hitam.
 
-Dia menikmati saat kekuatannya membuat sesuatu yang tampak mutlak menjadi retak.
+Kael menahan jalur bukan dengan kekuatan, tetapi memberi setiap gema titik referensi sendiri. Nama-nama di dinding Neraka yang mereka tanam sebagai memori mulai menjawab.
 
-Penjaga Gerbang memakai wajah ibunya dan mengangkat tangan.
+Eira memanggil ritme Furyborn lama.
 
-“Akui bahwa sebagian dirimu mencintai kehancuran.”
+Sylvara menjaga gema yang ingin terus maju agar tidak terhalang pertarungan.
 
-Kael ingin menyangkal. Sylvara tidak memberinya jalan mudah.
+Zireth mengunci struktur gerbang.
 
-“Aku pernah melihatmu tersenyum saat lawan yang lebih kuat akhirnya jatuh,” katanya. “Itu tidak membuatmu jahat. Berbohong tentangnya justru membuat bagian itu lebih berbahaya.”
+Malgorath tertawa dari pusaran.
 
-Roh-roh korban menyerang kembali. Kali ini mereka memakai wujud bangunan, mesin, dan musuh yang pernah Kael hancurkan. Setiap benturan memberi Ragnarok Pulse alasan untuk melepaskan entropi penuh.
+"Kalian menjaga hak memilih orang yang sudah mati. Sangat mulia. Sangat tidak efisien."
 
-Kael menahan diri sampai rasa sakit hampir membuatnya pingsan.
+Kael mengabaikannya.
 
-Lalu dia berhenti berpura-pura.
+Benturan memuncak ketika pusaran mencoba menamai semua jiwa sebagai satu kategori: MILIK MALGORATH.
 
-“Ya.”
+Kael memutus label kolektif itu dengan Pulse kecil yang merusak kesamaan fase.
 
-Satu kata tersebut mengguncang jembatan.
+Ribuan nama kembali berbeda.
 
-“Aku menikmati kehancuran. Aku menikmati ketika sesuatu yang menindas dapat kuhancurkan dengan tanganku.”
+Pusaran melemah.
 
-Api entropi membesar.
+Bayangan mundur, tetapi membawa beberapa nama yang sudah terlanjur hilang.
 
-“Tapi rasa itu bukan penguasa pilihanku.”
+Salah satunya milik Furyborn bernama Eira.
 
-Kael tidak memadamkan api. Dia menempatkannya bersama resonansi dan keseimbangan, mengakui bahwa Jalan Keempat juga membawa naluri destruktif yang harus diawasi.
+Eira di samping Kael masih berdiri.
 
-Penjaga menyerang dengan wajah sang ibu yang menangis.
-
-“Kau akan menghancurkan orang-orang yang kau cintai.”
-
-“Mungkin aku mampu.” Kael berdiri dengan tongkat. “Karena itu aku tidak akan berjalan sendiri atau menyembunyikan bagian ini dari mereka.”
-
-Sylvara menembakkan panah melewati bahunya dan memecahkan satu lapisan ilusi.
-
-“Akhirnya jawaban yang tidak membuatku ingin menamparmu.”
-
-Mereka bertarung bersama di atas jembatan. Kael menggunakan resonansi emosional untuk memisahkan suara korban dari kekuatan Penjaga yang memakainya. Sylvara menahan wajah-wajah palsu dengan Gema Pengetahuan. Eira menjaga belakang dan memanggil para roh Furyborn yang telah memilih tetap bebas.
-
-Setiap korban yang mendapatkan kembali suaranya berhenti menjadi senjata Gerbang.
-
-Penjaga kehilangan banyak tubuh pinjaman.
-
-Di bawah wajah sang ibu, bentuk aslinya mulai terlihat: mesin pengadilan yang dibangun untuk memastikan hanya jiwa patuh yang boleh keluar dari Neraka.
-
-Pengujian alasan hidup hanyalah fungsi awal.
-
-Para dewa kemudian mengubahnya menjadi alat untuk menjaga kebenaran tetap terkubur.
+Namun ukiran namanya di aula lama kini kosong.

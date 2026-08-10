@@ -1,51 +1,39 @@
 # Episode 235 — Janji Tanpa Wajah
 
-Kael berdiri di tepi danau darah dengan nama yang stabil dan ingatan yang semakin berlubang.
+Tal memilih melewati Gerbang Arwah.
 
-Dia tidak lagi mampu mendengar suara ibunya. Ketika mencoba memanggilnya, hanya keheningan yang menjawab.
+Sebelum pergi, dia meminta Kael berjanji satu hal.
 
-Namun janji yang pernah lahir dari suara tersebut tetap tertanam pada pilihan-pilihannya.
+"Kalau nanti kau bertemu orang hidup yang namanya hampir hilang karena sistem, jangan paksa mereka kembali menjadi versi yang nyaman bagi orang lain."
 
-Eira duduk di batu dekat tepi danau. “Aneh, bukan? Kita bisa kehilangan orang dalam ingatan, tapi tetap dibentuk oleh mereka.”
+Kael mengangguk.
 
-“Kau masih mengingat adikmu?”
+"Aku akan coba."
 
-“Tidak wajah, suara, atau namanya.” Eira menyentuh liontin kosong. “Hanya tahu bahwa aku pernah mencintai seseorang dan gagal menyelamatkannya.”
+"Bukan janji sempurna."
 
-Kael memandang permukaan darah. “Apakah itu cukup?”
+"Aku sudah berhenti membuat janji sempurna."
 
-“Tidak.” Eira tersenyum pahit. “Tapi kadang cukup bukan pilihan yang tersedia.”
+Tal tertawa.
 
-Versi-versi Kael yang tersisa muncul pada permukaan danau. Mereka menawarkan untuk mengembalikan semua kenangan jika dia menerima salah satu identitas sederhana: pahlawan, monster, korban, atau dewa.
+Wajahnya masih kabur saat masuk gerbang.
 
-Kael tidak melawan.
+Namun langkahnya jelas miliknya.
 
-“Aku pernah menjadi semua itu dalam kadar berbeda,” katanya. “Tak satu pun berhak memiliki seluruh namaku.”
+Setelah ia pergi, Eira menemukan pesan dari Penjaga Neraka.
 
-Denyut autobiografis bergerak melalui danau. Versi-versi tersebut pecah, bukan karena dihancurkan, melainkan karena tidak lagi dapat menawarkan jawaban yang dia butuhkan.
+Bukan ancaman.
 
-Di pusat koridor, Kael menemukan rekaman terakhir tentang identitas.
+Undangan.
 
-*Diri tidak disimpan dalam satu ingatan. Ia dibangun ulang oleh pilihan berulang dan hubungan yang bersedia mengingat ketika kau tidak mampu.*
+**KALIAN MENGUBAH ALIRAN TANPA IZIN PENJAGA. DATANG DAN JELASKAN SEBELUM SELURUH NERAKA MENGANGGAP KALIAN INVASI.**
 
-Eira berdiri dan mengulurkan tangan.
+Zireth membaca.
 
-Kael menerimanya.
+"Sopan."
 
-Mereka meninggalkan koridor tanpa membawa kembali kenangan yang hilang. Sebagai gantinya, Eira menuliskan pada liontin kosong bahwa dia pernah memiliki seorang adik. Kael menuliskan janji ibunya pada halaman Gema Pengetahuan meski tidak lagi tahu nada suara yang pernah mengucapkannya.
+"Untuk ancaman?"
 
-Janji tanpa wajah tetap dapat dijaga.
+"Sangat."
 
-Permukaan danau darah berguncang.
-
-Mata raksasa terbuka dari bawah, diikuti tanduk serta zirah batu yang tertutup ribuan rantai.
-
-Penjaga Neraka bangkit.
-
-Ia tidak menghalangi jalan pulang. Tubuhnya menjaga sesuatu yang jauh lebih dalam—sebuah ruang tempat para dewa mengubur senjata, jiwa, dan sejarah yang tidak berani mereka hancurkan.
-
-Kael menggenggam tongkat.
-
-Benturan di koridor telah selesai.
-
-Akibat berikutnya sedang berdiri dari danau.
+Mereka menuju lapisan penjaga dengan satu janji tanpa wajah ikut dalam pikiran Kael.

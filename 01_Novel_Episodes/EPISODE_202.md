@@ -1,51 +1,39 @@
 # Episode 202 — Suara dari Frekuensi Penyangkal
 
-Bayangan residu terkurung di antara dua gelombang yang saling meniadakan.
+Suara perempuan masuk melalui node entropi Kael.
 
-Kael mempertahankan simpul energi nol sambil Zireth memetakan pola dalam darahnya. Eira berdiri di luar lingkaran, memegang rantai rune yang terhubung ke detak jantung Kael.
+"Siapa di luar?"
 
-“Kalau kesadaranmu terseret, aku tarik,” katanya.
+"Kael."
 
-“Dengan rantai itu?”
+Hening.
 
-“Kalau perlu bersama jantungmu.”
+"Kael apa?"
 
-Kael tidak yakin Eira bercanda.
+"Drayven."
 
-Dia memperdalam resonansi.
+"Bagus. Kalau kau bilang Drakelyn sebagai nama keluarga, aku akan tutup kanal."
 
-Laboratorium lenyap dari inderanya. Kael melihat aliran darah sendiri sebagai sungai merah yang dilalui garis-garis dingin. Setiap garis membawa perintah Voidmaker: diam, kosong, berhenti melawan.
+Kael menatap Sera. "Dia tahu."
 
-Di antara semua perintah terdapat satu ruang yang tidak mengirim atau menerima energi.
+Perempuan itu memperkenalkan diri sebagai Eira.
 
-Simpul nol.
+Bukan roh. Bukan rekaman.
 
-Ketika Kael menyentuhnya, suara Voidmaker meredup tanpa perlu dilawan. Pola kendali tetap ada, tetapi tidak memiliki medium untuk bergerak.
+"Aku terjebak di zona bawah sejak gerbang terakhir ditutup. Waktu di sini buruk. Tidak tahu sudah berapa tahun di luar."
 
-“Jadi bukan menghancurkan sinyalnya,” gumam Kael. “Kita membuat tempat di mana sinyal tidak dapat menjadi tindakan.”
+Zireth bertanya tentang Neraka.
 
-Zireth melihat hasil pada sensor. “Resonansi dapat memisahkan pola kendali tanpa menambah entropi. Itulah Frekuensi Penyangkal.”
+Eira menjawab sederhana: tempat pembuangan energi, fragmen jiwa, dan sisa resonansi yang tidak aman dilepas ke dunia. Selama ribuan tahun ia menjadi ekosistem sendiri.
 
-Bayangan residu berubah bentuk dan menyerupai Kael dengan mata kosong.
+"Jangan bayangkan api dan iblis," katanya. "Yang berbahaya di sini adalah hal-hal yang lupa bentuk asalnya."
 
-*Keheningan juga dapat hidup dalam simpulmu.*
+Kael bertanya kenapa dia masih waras.
 
-Ia mencoba menjadikan ruang nol sebagai pintu baru.
+"Karena aku tidak memberi satu suara hak menjadi suara utama."
 
-Kael menyadari bahayanya. Tidak ada energi di simpul tersebut, tetapi kehendak masih dapat mengisinya. Jika dia membiarkan rasa lelah dan keinginan berhenti mengambil alih, Voidmaker akan menjadikan teknik itu jalan masuk.
+Prinsipnya mirip Kael.
 
-Eira menarik rantai rune. Rasa sakit kasar mengembalikan fokus Kael.
+Namun nada Eira keras, praktis, tanpa romantisasi.
 
-“Jangan kagum pada penemuanmu sendiri,” katanya. “Alat tanpa orang yang memegangnya tetap bisa dipakai musuh.”
-
-Kael memasukkan satu jangkar pada simpul nol: pilihan sadar untuk tidak menghapus dan tidak tunduk.
-
-Bayangan kehilangan bentuk manusianya.
-
-Frekuensi baru stabil selama tiga detik sebelum seluruh lingkaran retak.
-
-Kael jatuh terduduk. Darah mengalir dari hidung dan telinga.
-
-Tiga detik belum cukup untuk perang.
-
-Namun untuk pertama kalinya, mereka memiliki teknik yang mampu menghentikan kendali Voidmaker tanpa memberi makan rasa laparnya.
+"Kalau masuk, bawa nama kalian sendiri. Neraka suka memakan nama lebih dulu."

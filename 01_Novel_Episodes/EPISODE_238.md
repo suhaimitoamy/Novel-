@@ -1,49 +1,39 @@
 # Episode 238 — Benturan Penjaga Neraka
 
-Inti Penjaga membakar jaringan nama.
+Penjaga menguji mandat baru dengan krisis nyata.
 
-Cahaya merah menyebar melalui ribuan rantai, tetapi jiwa Eira membungkus setiap pelat dan menahan api sebelum menyentuh penghuninya.
+Satu reservoir pecah saat Bayangan Malgorath menyerang dari bawah.
 
-“Cepat,” katanya melalui seluruh zirah. “Aku tidak selama itu keras kepala.”
+Model lama memerintahkan menutup sektor dan membiarkan ribuan gema terperangkap.
 
-Kael mencari mekanisme pembakaran di balik inti. Penjaga menyerang dengan pedang dan tinju yang membuat danau darah pecah menjadi gelombang beku.
+Mandat baru memaksa mencari evakuasi.
 
-Sylvara bergerak tanpa sihir cahaya. Dia memakai pantulan pada es, tali busur, dan sudut tubuh Penjaga untuk menembakkan panah biasa ke sambungan yang tidak terlihat Kael.
+Penjaga hampir kembali ke aturan lama karena waktu sempit.
 
-“Di bawah rusuk kiri!”
+Kael tidak mengambil alih keputusan.
 
-Kael menggeser fase dan memasukkan tongkat ke celah tersebut. Pemisahan harmonik memperlihatkan bahwa mekanisme pembakaran terhubung pada semua pelat. Menghancurkan inti secara langsung akan meledakkan jiwa-jiwa yang sedang dilindungi Eira.
+"Apa opsi kedua?"
 
-Mereka harus memutus ribuan sambungan hampir bersamaan.
+"Buka jalur pelepasan. Risiko kebocoran dua belas persen."
 
-Kael membentuk jaringan resonansi tipis di atas seluruh zirah. Setiap nama menjadi satu nada. Jiwa tanpa nama diberi ruang kosong yang tetap dihitung sebagai bagian utuh, bukan kesalahan.
+"Bisa diturunkan?"
 
-Penjaga menyesuaikan diri. Danau darah berubah menjadi tubuh tambahan, mengangkat tangan-tangan raksasa dari bawah permukaan.
+Zireth dan Sylvara bekerja pada struktur. Eira mengatur frekuensi gema. Kael menutup jalur Malgorath.
 
-Sylvara hampir tertangkap. Kael menggunakan Frekuensi Penyangkal untuk menghentikan perintah pada tangan tersebut, tetapi saraf kanannya ikut terbakar.
+Risiko turun menjadi empat persen.
 
-Dia mempertahankan jaringan.
+Penjaga memilih evakuasi.
 
-Eira mulai kehilangan bentuk.
+Ribuan gema keluar sebelum reservoir ditutup.
 
-“Kael. Kalau aku tidak keluar—”
+Beberapa energi bocor ke sektor lain, tetapi tidak ke Zerath.
 
-“Jangan bicara seolah sudah selesai.”
+Krisis selesai.
 
-“Dengarkan dulu.” Suaranya melemah. “Jangan simpan aku sebagai alasan untuk mengorbankan diri berikutnya. Itu cara orang mati terus menguasai orang hidup.”
+Penjaga berkata, "Model baru tidak optimal."
 
-Kael tidak menjawab. Dia tidak sanggup menjanjikan sesuatu yang belum tahu cara dilakukan.
+Kael menunggu.
 
-Sylvara menembakkan tiga panah terakhir ke simpul utama. Kael mengubah fase seluruh jaringan pada saat yang sama.
+"Namun lebih sedikit individu dihapus sebagai variabel."
 
-Ribuan rantai terputus.
-
-Pelat-pelat jatuh dari tubuh Penjaga. Jiwa-jiwa keluar sebagai cahaya merah dan memenuhi langit Neraka.
-
-Namun inti masih hidup.
-
-Tanpa zirah, bentuk asli Penjaga terlihat: mesin tulang yang dibangun mengelilingi satu jiwa raksasa. Jiwa tersebut bukan penguasa penjara, melainkan korban pertama yang dipaksa menjaga semua korban setelahnya.
-
-Eira berdiri di dalam inti bersama roh itu.
-
-Untuk mengakhiri pertarungan, mereka harus membebaskan Penjaga—bukan membunuhnya.
+Untuk sistem kuno, itu hampir terdengar seperti pengakuan.

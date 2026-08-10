@@ -1,57 +1,37 @@
 # Episode 204 — Harga yang Dituntut Frekuensi Penyangkal
 
-Manifestasi utama belum mencapai laboratorium, tetapi tekanannya sudah membuat seluruh alat bergetar.
+Neraka menuntut ritme.
 
-Kael mencoba berdiri. Kaki kanannya tidak merespons penuh, sedangkan lengan kiri tetap lumpuh.
+Setiap langkah mereka memunculkan gema diri yang berjalan sedikit terlambat. Jika gema menyusul tubuh asli, bagian identitas bisa tertukar.
 
-“Frekuensi Penyangkal belum stabil,” kata Zireth. “Memakainya melawan manifestasi sebesar itu akan merusak sistem sarafmu lebih jauh.”
+Eira menunggu di tepi dataran hitam.
 
-Eira memandang sensor, lalu membuka segel pada dadanya sendiri.
+Rambutnya merah pucat, satu mata tertutup kain, dan kulit kedua lengannya dipenuhi bekas resonansi seperti retakan emas.
 
-Cahaya merah tua menyala di bawah kulit. Fury—energi hidup yang selama puluhan tahun menjadikannya petarung—mengalir keluar seperti api kasar.
+Dia memberi aturan: jangan berjalan dengan langkah tetap.
 
-“Apa yang kau lakukan?” tanya Kael.
+"Frekuensi penyangkal butuh perhatian terus-menerus. Harga teknik ini adalah kau tidak boleh hidup otomatis."
 
-“Menjadi kalibrator.”
+Setelah satu jam Kael mengerti kelelahan Eira.
 
-“Tidak.”
+Setiap napas harus sedikit berbeda.
 
-“Pulse-mu terlalu rumit untuk dikunci oleh mesin. Kau membutuhkan irama hidup yang tidak berasal dari Voidmaker, Fragmen, atau Nexus.” Eira menghantam dadanya. “Fury-ku cukup jelek dan keras kepala.”
+Setiap langkah disesuaikan.
 
-Dia menyalurkan energi ke lingkaran percobaan.
+Tidak ada autopilot tubuh.
 
-Frekuensi Penyangkal berubah. Simpul nol kini memiliki denyut kasar yang tidak dapat ditiru residu antimateri.
+"Bagaimana kau bertahan bertahun-tahun?"
 
-Zireth membaca dampaknya. “Stabilitas naik. Tapi Fury-mu terbakar permanen.”
+"Aku tidur dengan pola yang diajarkan orang mati."
 
-Eira mendengus. “Sudah tua. Lebih baik habis untuk sesuatu daripada membusuk dalam tubuh.”
+Kael tidak bertanya lebih jauh.
 
-Kael menolak mengaktifkan teknik.
+Di kejauhan, puluhan gema manusia berjalan tanpa tubuh asli.
 
-Eira mencengkeram kerahnya dengan tangan yang mulai gemetar. “Jangan jadikan penolakanku terhadap kematian sebagai alasan mencuri pilihanku. Kau sendiri terus menuntut hak memilih dari dunia.”
+Eira berkata, "Mereka kehilangan ritme. Sekarang Neraka memakai gerak mereka."
 
-Kata-kata itu memukul lebih keras daripada kapaknya.
+Harga penyangkalan bukan luka atau energi.
 
-Kael mengangguk.
+Kewaspadaan tanpa henti.
 
-Mereka memulai kalibrasi terakhir.
-
-Eira membakar Fury sedikit demi sedikit. Kael menyesuaikan dua gelombang agar simpul nol mengikuti irama tersebut. Zireth menahan fase agar tidak runtuh.
-
-Residu Voidmaker menyerang melalui darah Kael, tetapi Frekuensi Penyangkal menghentikan perintahnya sebelum menjadi gerakan atau ledakan.
-
-Sebelas detik berubah menjadi dua puluh.
-
-Lalu tiga puluh.
-
-Ketika teknik stabil, cahaya Fury Eira padam.
-
-Perempuan tua itu jatuh ke kursi. Rambutnya kehilangan kilau dan tubuhnya tampak lebih kecil.
-
-“Masih hidup,” katanya sebelum Kael bertanya. “Hanya tidak akan mengangkat kapak seperti dulu.”
-
-Kael memegang tongkatnya lebih erat.
-
-Frekuensi Penyangkal telah selesai.
-
-Harga pembuatannya tersimpan pada Fury terakhir seorang petarung yang memilih meninggalkan kekuatan agar orang lain tidak kehilangan dirinya.
+Kael mulai memahami mengapa banyak Furyborn akhirnya kehilangan diri meski tidak kalah dalam pertarungan.

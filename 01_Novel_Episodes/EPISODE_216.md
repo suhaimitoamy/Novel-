@@ -1,45 +1,33 @@
 # Episode 216 — Jejak Roh Furyborn
 
-Jalur yang dibuka seribu roh membawa Kael dan Eira ke perkampungan arwah tanpa matahari.
+Eira tidak melawan wajahnya.
 
-Rumah-rumahnya dibangun dari kenangan. Satu pintu terbentuk dari suara tawa, dinding lain dari bau hujan atau sentuhan tangan yang sudah dilupakan. Setiap kali seorang roh kehilangan identitas, bagian rumahnya ikut runtuh.
+Dia berjalan melewati.
 
-Di gerbang kampung, Sylvara menunggu.
+"Aku sudah hidup terlalu lama dengan versi orang lain tentang diriku. Tidak butuh versi Neraka."
 
-Dia menemukan jalur dari dunia atas melalui Gema Pengetahuan dan mengikuti nama Kael yang terus diulang dalam jaringan jiwa.
+Wajah pecah.
 
-“Kau lama,” katanya.
+Di belakangnya muncul jejak roh Furyborn lama menuju lapisan lebih dalam.
 
-Kael ingin menjawab dengan nada ringan, tetapi tanah di bawah kaki menyampaikan kematian lain ke pikirannya. Dia terhuyung.
+Mereka mengikuti.
 
-Sylvara menangkap lengannya. “Apa yang terjadi?”
+Kael melihat ratusan tanda tangan resonansi berbeda. Tidak semua Furyborn punya Fragment. Sebagian selamat dari ritual, paparan leyline, eksperimen kerajaan, atau kecelakaan dimensional.
 
-“Lembah sekarang berbicara melalui tanah.”
+Kesamaan mereka hanya satu: tubuh dipaksa menampung pola yang tidak seharusnya kompatibel.
 
-Eira menjelaskan perubahan pada resonansi Kael. Sylvara tidak menyukai harga tersebut, tetapi waktu untuk berdebat habis ketika para roh kampung mulai berkumpul.
+"Jadi Furyborn bukan kekuatan," kata Kael.
 
-Mereka tidak memiliki wajah tetap. Sebagian memakai wajah orang hidup yang mereka lihat, termasuk wajah Kael, Sylvara, dan Eira.
+"Nama yang diberikan pada orang yang tidak cocok katalog," jawab Eira.
 
-*Tubuh hidup membawa nama,* bisik mereka. *Berikan kepada kami.*
+Kael tersenyum pahit. "Aku kenal rasanya."
 
-Kael merasakan identitasnya ditarik sedikit demi sedikit. Bukan kenangan tertentu, melainkan kepastian bahwa nama Kael Drayven benar-benar miliknya.
+Di ujung jejak terdapat aula nama. Setiap Furyborn menulis nama sendiri sebelum masuk lapisan terdalam, sebagai jangkar jika identitas terkikis.
 
-Sylvara berdiri di sampingnya dan mulai berbicara.
+Eira menemukan namanya.
 
-“Kael Drayven. Anak Aranyel. Pembawa Fragmen. Orang yang menolak tiga jalan dan memilih Jalan Keempat.”
+Sudah ada.
 
-Setiap kalimat menjadi jangkar suara.
+Ditulis dengan tulisan tangannya.
 
-Roh-roh menyerang, mencoba memasuki tubuh yang masih hidup. Kael tidak menghancurkan mereka. Dia memakai penguncian identitas melalui frekuensi suara, memisahkan rasa iri dari inti jiwa yang masih ingin diingat.
-
-Beberapa roh berhenti dan memperlihatkan bentuk aslinya.
-
-Mereka adalah pengguna Pulse terdahulu—eksperimen yang gagal, dibuang ke Neraka setelah tubuhnya rusak atau kehendaknya menolak perintah para dewa.
-
-Salah seorang mendekat. Wajahnya berubah-ubah, tetapi suaranya jelas.
-
-*Ragnarok Pulse bukan pertama kali diberikan kepadamu. Kami semua pernah menjadi percobaan.*
-
-Di pusat kampung berdiri menara yang menyimpan kesaksian mereka.
-
-Untuk mencapai kebenaran tersebut, Kael harus melewati roh-roh yang kehilangan nama dan ingin mencuri milik orang hidup.
+Namun dia tidak ingat pernah datang ke sini.

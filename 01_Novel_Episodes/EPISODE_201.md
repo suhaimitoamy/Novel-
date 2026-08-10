@@ -1,45 +1,27 @@
 # Episode 201 — Jejak Frekuensi Penyangkal
 
-Laboratorium darurat Eira dibangun dari ruang medis yang tersisa di bawah The Core.
+Gerbang Neraka belum sepenuhnya terbuka, tetapi panasnya sudah mengubah batu di The Core menjadi merah gelap.
 
-Meja operasi berubah menjadi susunan kristal, kumparan Dwarf, dan tulang makhluk Furyborn. Kael duduk di tengah lingkaran dengan tongkat pendek pada tangan kanan. Lengan kirinya tetap diam di sisi tubuh.
+Sera menemukan satu sinyal di balik gerbang: frekuensi yang selalu bergeser setengah nada sebelum sistem mencoba menguncinya.
 
-“Tujuannya bukan memulihkan Pulse lamamu,” kata Eira. “Kita membuat pola yang tidak memberi makan annihilation.”
+"Penyangkal," katanya. "Teknik lama Furyborn."
 
-Zireth mengatur sensor di sekeliling ruangan. “Setiap ledakan besar menambah entropi. Kita membutuhkan gelombang berdiri dengan simpul energi nol.”
+Kael tidak mengenal istilah itu selain fragmen legenda akademi.
 
-Kael memejamkan mata.
+Sera membuka arsip: Furyborn bukan ras. Mereka orang-orang yang pernah selamat dari resonansi primordial tanpa sistem resmi. Sebagian menjadi senjata kerajaan. Sebagian hilang ke Neraka Zerath.
 
-Ragnarok Pulse bergerak melalui tubuhnya. Merah, biru, dan ungu masih ada, tetapi detak dingin antimateri ikut bersembunyi di antara ketiganya.
+Frekuensi penyangkal digunakan agar Fragment atau sistem tidak dapat mengambil alih ritme tubuh sepenuhnya.
 
-Dia membentuk dua gelombang dengan amplitudo sama dan arah berlawanan. Keduanya bertemu pada satu titik tanpa melepaskan energi keluar.
+Kael mendengarkan sinyal.
 
-Untuk sesaat, laboratorium menjadi sunyi.
+Tiga pendek. Satu panjang. Dua pendek.
 
-Kemudian darah Kael berubah dingin.
+Bukan pesan otomatis.
 
-Residu Voidmaker keluar dari pembuluh sebagai garis hitam tipis dan membentuk bayangan kecil di dalam lingkaran. Makhluk itu tidak memiliki wajah, hanya lubang tempat cahaya menghilang.
+Seseorang di balik gerbang masih hidup dan sengaja mengetuk.
 
-“Jangan hancurkan,” kata Eira. “Itu bagian yang hendak kita pelajari.”
+Kael membalas pola.
 
-Kael menjaga simpul tetap stabil. Setiap kali bayangan bergerak, gelombang berdiri memisahkan arah kendalinya dari materi di sekeliling.
+Jawaban datang cepat:
 
-Zireth membaca hasilnya. “Pola asing dapat dipisahkan tanpa menambah entropi. Tapi simpulnya terlalu rapuh.”
-
-Bayangan menyentuh salah satu kumparan. Logam mulai terhapus.
-
-Kael menggeser fase beberapa derajat dan menariknya kembali ke pusat. Gerakan itu mengirim rasa sakit melalui saraf yang telah rusak. Kaki kanannya hampir kehilangan pijakan.
-
-Eira menangkap bahunya.
-
-“Tubuhmu belum siap.”
-
-“Voidmaker tidak menunggu.”
-
-Kael menahan simpul sampai bayangan berhenti melawan. Di balik rasa lapar makhluk tersebut terdapat pola yang terus mengarah ke detak dingin di dadanya.
-
-Residu itu bukan sekadar racun.
-
-Ia adalah jalur kendali yang masih hidup dalam darah Kael.
-
-Untuk menciptakan Frekuensi Penyangkal, mereka harus memisahkan jalur tersebut tanpa menghancurkan Pulse yang lahir dari luka yang sama.
+**JANGAN BUKA GERBANG LEBAR. MASUK SATU JALUR. NERAKA MENDENGAR PINTU.**

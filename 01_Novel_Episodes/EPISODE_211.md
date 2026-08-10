@@ -1,41 +1,33 @@
 # Episode 211 — Jejak Lembah Neraka
 
-Gelombang dari Gerbang Neraka memisahkan Kael dan Eira dari pasukan lain.
+Lembah Neraka dipenuhi pintu tanpa dinding.
 
-Mereka jatuh melalui lorong api hitam dan mendarat di sebuah lembah yang tidak berada pada peta Zerath. Langitnya gelap tanpa bintang. Hujan tulang turun perlahan, menancap ke tanah merah yang terus mengulang jeritan orang mati.
+Lengkungan batu berdiri sendiri di dataran, masing-masing membuka pemandangan berbeda: medan perang tua, laut hitam, kota terbakar, langit penuh mata.
 
-Kael mencoba berdiri dengan tongkat. Setiap langkah mengirim gema kematian melalui telapak kakinya—seorang prajurit yang dibakar, seorang anak yang dilupakan, seorang pahlawan yang jiwanya gagal dipanen dengan sempurna.
+Eira melarang siapa pun melewati sembarang pintu.
 
-Eira memandang sekeliling dengan wajah yang jarang menunjukkan ketakutan.
+"Setiap gerbang mengarah ke reservoir resonansi berbeda. Kalau salah pilih, kita bisa memberi tekanan lebih besar."
 
-“Aku pernah mendengar tempat ini dalam cerita Furyborn tua. Lembah tempat kemarahan pertama kami lahir.”
+Zireth membaca tanah dan menemukan semua aliran akhirnya menuju satu cekungan di tengah lembah.
 
-“Kau yakin ini asal Furyborn?”
+Kael melihat jejak Furyborn di sana—ratusan frekuensi individu, sebagian manusia, sebagian berubah terlalu jauh.
 
-“Tidak. Tapi Fury dalam tubuhku dulu selalu bermimpi tentang hujan tulang ini.”
+Di tepi cekungan terdapat simbol sederhana: tangan terbuka dengan luka di telapak.
 
-Mereka bergerak mengikuti denyut panas dari kedalaman. Frekuensi Penyangkal menjaga Kael tidak tenggelam dalam jeritan, tetapi setiap langkah tetap membawa satu kematian asing ke pikirannya.
+Eira mengenalnya.
 
-Di bawah tebing, mereka menemukan ratusan zirah kosong. Lambang dari kekaisaran yang berbeda terukir pada permukaan—Aelarion, Karag Thürm, kerajaan manusia yang telah hilang, bahkan simbol pahlawan dari zaman sebelum catatan sejarah.
+"Tanda pertemuan Furyborn lama."
 
-“Semua dikirim ke sini?” tanya Kael.
+"Mereka punya organisasi?"
 
-Eira berlutut di dekat satu zirah Furyborn. “Bukan hanya penjahat atau iblis.”
+"Pernah. Sebelum kerajaan mulai memakai kami sebagai senjata atau wabah."
 
-Tanah terbuka dan memperlihatkan aliran jiwa yang gagal masuk ke Sistem Pahlawan. Mereka jatuh ke lembah seperti limbah yang dibuang.
+Jejak menunjukkan seseorang baru lewat.
 
-Sesuatu bergerak di bawah hujan tulang.
+Bukan gema kuno.
 
-Tubuh-tubuh tanpa kulit bangkit dari tanah, masing-masing membawa gema kematian berbeda. Mereka tidak menyerang dengan senjata. Jeritan dari mulutnya membuat Kael merasakan ratusan kematian sekaligus.
+Langkah masih hangat.
 
-Dia hampir roboh.
+Ada Furyborn lain yang hidup di Lembah.
 
-Eira memukul tanah dengan tongkat. “Jangan lawan semua rasa sakit itu. Cari siapa yang masih ingin didengar.”
-
-Kael memakai resonansi jiwa, memisahkan gema sadar dari kebisingan yang dipaksa berulang. Beberapa sosok berhenti dan menunjuk jalan menuju pusat lembah.
-
-Di kejauhan, sebuah benteng dari tulang serta mesin rusak menjulang di bawah bayangan dunia.
-
-Neraka bukan alam kematian alami.
-
-Ia tampak seperti tempat pembuangan bagi segala sesuatu yang gagal diproses Sistem.
+Dan dia membawa sebagian pola Malgorath.

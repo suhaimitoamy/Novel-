@@ -1,43 +1,27 @@
 # Episode 241 — Jejak Kebenaran Furyborn
 
-Inti arsip Neraka mulai menghapus dirinya sendiri setelah sistem penjara dibuka.
+Keluar dari Neraka tidak mengakhiri cerita Furyborn.
 
-Rak-rak kristal memutih. Nama eksperimen hilang dari satu halaman ke halaman berikutnya. Para dewa telah menanam protokol terakhir agar bukti asal Furyborn tidak pernah mencapai dunia atas.
+Eira memberikan satu arsip sebelum gerbang menutup: daftar kerajaan, akademi, dan keluarga yang pernah membuat Furyborn melalui eksperimen sengaja.
 
-Kael dan Sylvara bergerak di antara lorong yang terus menghilang.
+Vorth Aereth ada di daftar.
 
-Gema Pengetahuan hanya mampu menampung sebagian kecil data. Setiap catatan jiwa terlalu padat untuk disalin sebagai tulisan biasa.
+Arcanum Wardens juga.
 
-“Kita tidak dapat membawa semuanya,” kata Sylvara.
+Bahkan cabang Vorthax tertentu.
 
-“Kalau memilih sendiri, kita juga menentukan korban mana yang pantas diingat.”
+Kael membaca nama-nama proyek dengan rasa mual. Orang seperti Eira tidak selalu lahir dari kecelakaan. Banyak diciptakan untuk meniru kemampuan Fragment tanpa memberi tubuh pilihan.
 
-Kael memakai kompresi data jiwa. Dia tidak menyalin seluruh kehidupan, hanya pola kesaksian: nama jika masih ada, pilihan terakhir, perlakuan Sistem, dan hubungan dengan percobaan anti-Voidmaker.
+"Itu sebabnya istilah Furyborn jadi kutukan," kata Sylvara. "Kalau sejarah asli diketahui, kerajaan harus mengakui mereka membuat monster yang kemudian mereka buru."
 
-Sisa denyut Fury Eira yang tertanam dalam Frekuensi Penyangkal menjadi kalibrator. Irama kasarnya membedakan kesaksian hidup dari data palsu para dewa.
+Kael tidak suka kata monster.
 
-Protokol penghapus menyadari tindakan mereka.
+Jejak arsip menuju fasilitas lama di perbatasan Drakonar.
 
-Cahaya putih menyapu lorong. Setiap bagian arsip yang disentuh tidak sekadar hancur; seluruh bukti bahwa catatan tersebut pernah ada ikut hilang.
+Di sana tersimpan catatan pertama tentang resonansi Furyborn dan—lebih penting—hubungan mereka dengan Dua Belas Fragmen.
 
-Kael membangun simpul nol agar proses penghapusan kehilangan hubungan dengan Gema Pengetahuan. Sylvara menjaga artefak tanpa sihir cahaya, memakai tubuh dan busurnya untuk menahan puing yang runtuh.
+Sebelum menuju perang yang mulai terbentuk di peta, mereka memutus mengambil kebenaran itu.
 
-Mereka mencapai ruang pusat.
+Bukan untuk membersihkan nama Furyborn.
 
-Di sana tersimpan catatan subjek yang tidak diberi nomor. Diagramnya sama dengan struktur Kael: darah campuran, Fragmen hidup, luka primordial, dan resonansi yang berada di luar sebab-akibat Sistem.
-
-Statusnya berbeda dari semua percobaan lain.
-
-**LAHIR TANPA OTORISASI.**
-
-Kael membaca baris berikutnya.
-
-**FURYBORN PERTAMA YANG TIDAK DICIPTAKAN SISTEM.**
-
-Dia bukan hasil akhir program para dewa. Keberadaannya lahir di luar rancangan yang mereka buat, meski menggunakan bahan-bahan yang pernah mereka eksploitasi.
-
-“Karena itu Sistem tidak pernah dapat mengklaimmu sepenuhnya,” kata Sylvara.
-
-Protokol penghapus mengunci seluruh ruang.
-
-Untuk membawa bukti tersebut keluar, Kael harus memasukkannya ke Gema Pengetahuan sebelum pusat arsip menghapus dirinya dan semua orang di dalamnya.
+Untuk memastikan perang berikutnya tidak mengulang metode yang sama.

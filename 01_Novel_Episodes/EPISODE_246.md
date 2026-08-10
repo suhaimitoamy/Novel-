@@ -1,45 +1,37 @@
 # Episode 246 — Jejak Dua Belas Panji
 
-Dataran Terbelah dipenuhi pasukan dari dua belas kekaisaran.
+Jejak panji bukan pasukan.
 
-Panji Elf, Dwarf, Celestial, Warlock, manusia, Beastmen, dan bangsa lain berkibar mengelilingi cekungan tempat salah satu Fragmen dunia bersemayam. Setiap pasukan mengaku datang untuk melindunginya.
+Ia berupa keputusan logistik: jembatan diperkuat, gudang dikosongkan, healer dipanggil, anak-anak dievakuasi.
 
-Tak satu pun bersedia mundur lebih dahulu.
+Kael mengikuti salah satu rute ke dataran pusat Zerath.
 
-Kael dan Zevaron memasuki wilayah netral di antara garis depan. Sylvara serta Zireth bergerak melalui jalur komunikasi, mencoba menahan perintah serangan selama mungkin.
+Di sana dua belas utusan bertemu dengan kepercayaan hampir nol.
 
-“Para jenderal Celestial menganggapku pengkhianat karena bekerja denganmu,” kata Zevaron.
+Kael tidak menjadi mediator resmi. Ia hanya membawa bukti serangan palsu.
 
-“Setidaknya mereka belum menembak.”
+Beberapa percaya.
 
-Sebuah tombak petir jatuh beberapa meter di depan mereka.
+Sebagian menuduh bukti direkayasa Nexus.
 
-“Belum resmi,” jawab Zevaron.
+Satu utusan Celestial berkata, "Kalau kita menunggu kepastian, musuh lebih dulu menyerang."
 
-Kael membaca residu kausal pada nubuat yang dibawa setiap pasukan. Meskipun bahasanya berbeda, semua memiliki inti sama:
+Itulah logika yang Arsitek sukai.
 
-**Jika Fragmen tidak berada dalam tangan bangsa pilihan saat konvergensi tiba, Zerath akan berakhir.**
+Kael meminta satu hal kecil: dua puluh empat jam tanpa aktivasi Fragmen utama sambil data diverifikasi oleh tiga jaringan berbeda.
 
-Sumber nubuat disebut dewa, leluhur, pohon ingatan, atau mesin suci. Namun jejak kausalnya mengarah ke satu tempat—Sistem Pahlawan.
+Setengah pihak setuju.
 
-“Semua menerima pesan yang membuat mereka yakin hanya bangsa sendiri dapat menyelamatkan dunia,” kata Kael.
+Empat menolak.
 
-Zevaron memandang dua belas garis pasukan. “Nubuat terakhir yang dirancang agar semua bergerak bersamaan.”
+Dua diam.
 
-Mereka mencapai tenda mediasi. Dua belas utusan duduk mengelilingi meja, masing-masing membawa senjata dan tuntutan.
+Tidak cukup untuk damai.
 
-Kael tidak meminta mereka percaya kepadanya. Gema Pengetahuan menampilkan bukti tentang fungsi Fragmen sebagai jangkar hukum dunia dan catatan bagaimana Sistem memanipulasi nubuat.
+Cukup untuk memperlambat.
 
-Sebagian utusan goyah. Para jenderal garis keras menuduh bukti itu rekayasa Furyborn yang membawa Neraka ke permukaan.
+Di malam hari salah satu gudang amunisi meledak.
 
-Tuduhan tersebut menyebar cepat melalui pasukan.
+Panji-panji kembali bergerak.
 
-Kael menahan keinginan membalas dengan kekuatan yang bahkan sudah tidak dimilikinya. Entropi murni telah ditinggalkan di Neraka. Dia hanya dapat membaca pola dan mencoba memutus kebohongan tanpa memaksa orang menerima kebenaran.
-
-Tanah bergetar.
-
-Fragmen di bawah dataran merespons dua belas pasukan dan mulai terangkat dari tempatnya. Jika salah satu pihak mencoba merebutnya, jangkar materi wilayah tersebut akan tercabut.
-
-Nubuat palsu tidak hanya memicu perang.
-
-Ia dirancang agar perang itu sendiri melepaskan Fragmen dari tanah.
+Seseorang tidak ingin dua puluh empat jam itu selesai.

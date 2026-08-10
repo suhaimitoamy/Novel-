@@ -1,45 +1,35 @@
 # Episode 236 — Jejak Penjaga Neraka
 
-Danau darah membeku ketika Penjaga Neraka bangkit.
+Penjaga Neraka meninggalkan jejak berupa area yang terlalu stabil.
 
-Raksasa itu mengenakan zirah yang tersusun dari ribuan pelat. Pada setiap pelat terukir satu nama—pahlawan gagal, Furyborn, jiwa eksperimen, dan korban Sistem yang tidak pernah kembali ke dunia atas.
+Di tengah dunia penuh gema dan perubahan, jalurnya lurus, suhu tetap, gravitasi normal.
 
-Rantai menghubungkan seluruh nama ke inti merah di dada Penjaga.
+Eira tampak tidak nyaman.
 
-“Dia memakai jiwa sebagai pelindung,” kata Kael.
+"Penjaga dibuat untuk menjaga Neraka tetap terpisah dari Zerath. Mereka tidak peduli siapa menderita di dalam selama pintu tidak bocor."
 
-Eira berjalan ke tepi danau. Tubuhnya sudah lemah setelah kehilangan Fury dan kenangan terakhir, tetapi tatapannya tetap tajam.
+Kael mengenali tipe sistem itu.
 
-“Banyak nama itu milik leluhur kami.”
+Mereka tiba di benteng basalt yang mengelilingi sumur cahaya merah.
 
-Penjaga mengayunkan pedang batu. Gelombang darah beku menyapu daratan. Kael menahan serangan dengan Frekuensi Penyangkal, sementara Sylvara memindahkan posisi menggunakan panah tali biasa karena cahayanya telah padam.
+Penjaga muncul sebagai sosok tinggi berzirah tanpa kepala. Suaranya keluar dari seluruh benteng.
 
-Setiap kali Kael menyerang zirah, satu jiwa menjerit.
+"Kalian mengubah klasifikasi jiwa, menstabilkan Lembah, merusak reservoir Malgorath, dan membuka protokol baru."
 
-Dia segera menghentikan tebasan.
+"Ya."
 
-“Menghancurkan pelindung berarti menghancurkan mereka.”
+"Tanpa izin."
 
-Eira memeriksa pola rantai. “Pisahkan jiwa dari zirah. Jangan sentuh intinya sebelum semua nama bebas.”
+"Ya."
 
-Kael memakai pemisahan harmonik. Setiap pelat memiliki dua nada: logam Neraka yang memenjarakan dan jiwa yang masih mengingat sebagian dirinya.
+"Mengapa aku tidak menghapus kalian?"
 
-Dia membuka satu sambungan.
+Kael menjawab, "Karena kalau sistemmu masih bekerja baik, kami tidak akan perlu mengubah sebanyak itu."
 
-Pelat pertama terlepas. Roh seorang Furyborn tua keluar, menatap Eira, lalu mengucapkan nama yang tidak lagi dia kenali.
+Keheningan panjang.
 
-Eira terhuyung. “Dia mengenalku.”
+Zireth berbisik, "Diplomasi tajam."
 
-Roh itu menyentuh dahinya dan memperlihatkan potongan masa lalu: Eira kecil dilatih oleh klan, adiknya tertawa di halaman, lalu desa dibakar oleh pasukan pahlawan yang mengincar calon wadah anti-Voidmaker.
+Benteng membuka gerbang.
 
-Kenangan tersebut bukan milik Eira sepenuhnya, tetapi cukup untuk menunjukkan apa yang telah dirampas Sistem.
-
-Penjaga menyerang lebih ganas.
-
-Kael dan Sylvara menahan tubuh raksasa, sementara Eira memanggil setiap nama pada zirah. Satu demi satu pelat mulai beresonansi.
-
-Namun jumlahnya ribuan.
-
-Danau retak di bawah kaki mereka. Inti Penjaga menyala semakin terang, bersiap membakar seluruh jiwa sebagai perisai terakhir.
-
-Untuk menyelamatkan mereka, seseorang harus masuk ke jaringan nama dan menahan pelepasan dari dalam.
+"Masuk. Tunjukkan kerusakan yang kau klaim."

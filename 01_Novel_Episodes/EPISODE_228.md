@@ -1,43 +1,45 @@
 # Episode 228 — Benturan Bayangan Malgorath
 
-Takhta kosong mengendalikan seluruh reruntuhan.
+Mahkota Nama menyerang hubungan mereka.
 
-Begitu Kael mendekat, pasukan ketakutan menyatu menjadi bentuk Malgorath yang lebih besar. Sayapnya menutup langit-langit, sementara tangan-tangan bayangan mengangkat pedang dari setiap sisi.
+Kael tiba-tiba lupa kapan bertemu Sylvara.
 
-Sylvara menembakkan panah tanpa cahaya. Serangan itu menembus tubuh bayangan dan memperlihatkan simpul yang terhubung ke takhta.
+Zireth lupa kenapa mempercayai Kael.
 
-Kael memakai superposisi cahaya dan gelap. Setiap kali Malgorath menciptakan bayangan, Kael mengembalikan cahaya secukupnya untuk menunjukkan bentuk aslinya tanpa memberi energi tambahan.
+Eira lupa suara kakaknya.
 
-Malgorath membalas dengan ketakutan paling sederhana.
+Nama tetap ada, tetapi jembatan di antara memori dipotong.
 
-Kael melihat dirinya kehilangan kendali dan membunuh Sylvara. Melihat Zireth dihancurkan oleh lengan bintangnya sendiri. Melihat seluruh Zerath menyebutnya dewa lalu berlutut sebelum dia menyadari bahwa tak seorang pun lagi berani berkata tidak.
+Mereka tidak bisa mengandalkan cerita bersama.
 
-“Takhta itu dibuat untukmu,” bisik Malgorath. “Sistem, Arsitek, dan Voidmaker semua menginginkan tubuhmu karena kau mampu mengendalikan keseimbangan. Mengapa terus berpura-pura tidak pantas?”
+Kael hampir panik.
 
-Kael mengangkat pedang dengan tangan kanan.
+Lalu menemukan sesuatu lebih dasar daripada ingatan: kebiasaan tubuh.
 
-“Karena kemampuan bukan hak.”
+Sylvara tetap berdiri di sisi kirinya saat bahaya.
 
-Pertarungan berpindah ke seluruh reruntuhan. Dinding menjadi cakar, lantai menjadi jurang, dan pasukan ketakutan memakai wajah orang-orang yang pernah mempercayainya.
+Zireth tetap memeriksa struktur sebelum membuat lelucon buruk.
 
-Cahaya Sylvara mulai meredup. Ruang Kegelapan Pertama menelan setiap panah sebelum mencapai sasaran.
+Eira tetap menggeser ritme ketika takut.
 
-Kael mencoba melindunginya dengan Pulse, tetapi Malgorath justru memusatkan serangan pada sumber cahaya tersebut.
+Hubungan tersimpan juga dalam pola tindakan.
 
-“Sylvara, berhenti memakai sihir cahaya.”
+Mereka menggunakan itu sebagai jangkar sampai memori perlahan kembali.
 
-“Kalau berhenti, simpulnya tertutup.”
+Kael menyerang mahkota bukan untuk menghancurkan nama, tetapi memutus struktur kepemilikan Malgorath.
 
-Panah terakhir dilepaskan.
+Eira mengacaukan ritme.
 
-Cahaya Sylvara padam sepenuhnya. Aura Elf yang selama ini selalu menyertainya lenyap, meninggalkan busur gelap di tangannya dan rasa kosong pada matanya.
+Zireth meretakkan menara.
 
-Namun panah tersebut menancap tepat pada pusat takhta.
+Sylvara menembak titik yang Kael tunjuk.
 
-Kael menggunakan celah itu untuk memisahkan Kegelapan Primordial dari kehendak Malgorath. Luka realitas tetap ada, tetapi tidak lagi menjadi tubuh bagi sang dewa bayangan.
+Mahkota pecah.
 
-Wujud besar Malgorath retak.
+Nama-nama curian terlepas seperti bintang.
 
-Takhta kosong mulai memperlihatkan wajah pemilik berikutnya.
+Bayangan Malgorath kehilangan tubuh padat.
 
-Wajah Kael.
+Namun sebelum lenyap ia masuk ke satu tempat terakhir:
+
+Takhta Nama.

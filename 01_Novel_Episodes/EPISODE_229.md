@@ -1,57 +1,41 @@
 # Episode 229 — Harga yang Dituntut Bayangan Malgorath
 
-Sylvara jatuh pada satu lutut setelah cahaya terakhirnya padam.
+Takhta dapat mengusir Malgorath.
 
-Kael menangkap bahunya. Tidak ada luka pada tubuhnya, tetapi aura yang selama ini terhubung dengan hutan, bintang, dan sihir Elf telah hilang.
+Syaratnya seseorang harus duduk dan memakai otoritas nama.
 
-“Aku tidak bisa merasakan Aether,” katanya pelan.
+Penjaga Furyborn sudah memperingatkan.
 
-Malgorath tertawa dari dalam takhta.
+Kael menatap kursi hitam.
 
-“Cahaya adalah pinjaman. Sekarang lihat siapa dirimu tanpa itu.”
+Eira berkata, "Kalau kita tidak pakai, dia mengambilnya."
 
-Sylvara mencoba membentuk panah. Tidak ada rune atau cahaya yang muncul. Hanya busur, tali, dan tangannya sendiri.
+"Kalau kita pakai, orang yang duduk bisa menjadi masalah berikutnya."
 
-Kael merasakan entropi naik bersama amarah.
+Mereka mencari cara sementara.
 
-Satu ledakan cukup untuk menghancurkan takhta dan seluruh reruntuhan. Malgorath menginginkan itu. Kegelapan Primordial akan terlepas tanpa bentuk, dan Neraka mungkin runtuh bersama jiwa-jiwa di dalamnya.
+Takhta tidak membutuhkan penguasa permanen. Ia membutuhkan suara yang cukup representatif untuk menolak klaim Malgorath.
 
-Sylvara memegang pergelangan tangan Kael.
+Kael memanggil nama-nama di Neraka melalui jaringan memori yang mereka bangun.
 
-“Jangan tukar cahayaku dengan dunia ini.”
+Bukan semua menjawab.
 
-“Aku bisa menghancurkannya.”
+Cukup banyak.
 
-“Aku tahu. Dan sebagian dirimu akan menikmatinya.”
+Ribuan gema menyatakan satu hal dengan cara berbeda:
 
-Pengakuan dari Gerbang kembali menahan tangannya.
+**NAMAKU BUKAN MILIKMU.**
 
-Kael menurunkan amplitudo. Dia memakai superposisi untuk menjaga Kegelapan Primordial tetap utuh sambil memisahkan Malgorath dari takhta.
+Takhta menyala tanpa ada yang duduk.
 
-Malgorath menciptakan ribuan bayangan Sylvara yang menuduh Kael gagal melindunginya. Sylvara yang asli berdiri meski tanpa sihir dan menembakkan panah biasa ke salah satu simpul.
+Otoritas muncul dari persetujuan kolektif, bukan raja.
 
-Panah kayu itu tidak membawa cahaya, tetapi arahnya tetap tepat.
+Malgorath terlempar dari kursi.
 
-“Aku tidak hilang hanya karena kekuatanku padam,” katanya.
+Harga yang dituntut adalah usaha: ribuan individu harus menyatakan diri, bukan menyerahkan keputusan pada satu wakil.
 
-Kael mengikuti serangannya. Pedang dan Pulse memotong benang Malgorath satu per satu.
+Lebih lambat.
 
-Bayangan sang dewa mulai hancur.
+Lebih berisik.
 
-Namun harga pada Sylvara tidak kembali. Cahaya yang dikorbankan untuk membuka simpul telah diserap Kegelapan Pertama dan menyebar terlalu jauh untuk dikumpulkan tanpa merusak keseimbangan.
-
-Kael ingin meminta maaf.
-
-Sylvara menghentikannya. “Aku memilih menembakkan panah itu. Jangan ambil pilihanku dengan menjadikannya kesalahanmu.”
-
-Malgorath kehilangan tubuh bayangannya dan mundur ke dalam takhta.
-
-Sebelum pintu tertutup, dia memperlihatkan satu kemungkinan masa depan: Kael duduk sebagai dewa tiran, sementara Sylvara berdiri di samping tanpa cahaya, mengenakan rantai emas sebagai penasihat terakhir yang masih berani berbicara.
-
-“Ini bukan nubuat,” kata Kael.
-
-“Belum,” jawab Malgorath. “Hanya jalan yang semakin mudah setiap kali dunia meminta kau menyelamatkannya.”
-
-Takhta memakai wajah Kael sepenuhnya.
-
-Untuk menghancurkan pengaruh Malgorath, dia harus menghadapi versi dirinya yang menerima hak untuk memerintah.
+Lebih hidup.

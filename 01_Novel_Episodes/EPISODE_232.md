@@ -1,51 +1,33 @@
 # Episode 232 — Suara dari Nama yang Terkikis
 
-Di balik pintu, koridor berubah menjadi ruang tanpa gambar.
+Nama-nama yang terkikis mulai berbicara bersamaan.
 
-Kael tidak melihat masa lalu, tetapi merasakan bagian-bagian dirinya hilang satu demi satu. Nama tetap ada. Pilihan-pilihan penting masih dapat diingat. Namun wajah, suara, dan tempat yang memberi pilihan itu makna mulai memudar.
+Bukan karena Malgorath.
 
-Eira menyentuh liontinnya.
+Karena sistem Neraka mencoba mengategorikan ulang mereka sebagai 'tak dikenal'.
 
-“Aku tahu pernah punya adik,” katanya. “Tapi aku tidak bisa mengingat suaranya.”
+Sekali kategori itu diberikan, gerbang pelepasan tidak menerima mereka.
 
-Kael menahan rasa bersalah. “Kenanganmu membuka jalan untukku.”
+Kael kesal pada birokrasi bahkan setelah mati.
 
-“Untuk kita. Jangan ubah pengorbananku menjadi hutang yang membuatmu merasa paling menderita.”
+Zireth menemukan daftar klasifikasi lama. Sistem hanya mengenal identitas utuh atau rusak.
 
-Versi-versi Kael muncul kembali. Kali ini mereka tidak menawarkan kekuatan, melainkan identitas sederhana.
+Tidak ada status berubah.
 
-Satu berkata dia hanya korban para dewa.
+Eira berkata, "Maka buat."
 
-Satu menyebut dirinya monster yang tidak dapat berubah.
+Mereka menambahkan kategori baru ke mekanisme gerbang:
 
-Satu lagi mengaku pahlawan terpilih yang wajib menyelamatkan semua orang.
+**IDENTITAS BERKEMBANG / HAK AKSES TETAP.**
 
-Masing-masing memberi jawaban mudah atas pertanyaan siapa dirinya.
+Sistem menolak karena tidak tercatat.
 
-Kael hampir memilih salah satu karena kelelahan menjaga identitas yang terus berubah.
+Kael memakai otoritas kolektif Takhta Nama untuk mengesahkan perubahan, bukan namanya sendiri.
 
-Eira memukul lantai dengan tongkat. “Kau bukan kalimat tunggal.”
+Gerbang menerima.
 
-Denyut ritmis Kael menjawab.
+Tal dan gema lain dapat memilih maju meski tidak kembali seperti dulu.
 
-Dia menyadari identitasnya tidak bertahan karena ingatan sempurna. Banyak kenangan telah hilang, tetapi pada situasi berbeda dia terus memilih hal yang sama: menolak rantai, menjaga hak orang lain, dan membatasi kehancuran meski jalan cepat tersedia.
+Suara mereka berubah dari kebingungan menjadi keputusan.
 
-“Diriku bukan kumpulan gambar yang tidak pernah berubah,” katanya. “Aku adalah pilihan yang terus kuambil ulang.”
-
-Koridor bereaksi.
-
-Versi korban, monster, dan pahlawan menyerang bersamaan. Kael tidak menghancurkan mereka. Dia mengambil bagian yang benar dari masing-masing tanpa menyerahkan seluruh identitas: dia pernah menjadi korban, mampu menjadi monster, dan kadang bertindak sebagai pahlawan.
-
-Tidak ada satu sebutan yang berhak memerintah sisanya.
-
-Denyutnya menjadi lebih stabil.
-
-Di pusat ruang, Kael menemukan satu suara yang hampir hilang—suara ibunya memanggil namanya. Dia mencoba mendekat, tetapi koridor memindahkan suara tersebut ke balik dinding lain.
-
-“Jangan mengejarnya,” kata Eira. “Tempat ini memakai kerinduan sebagai arah.”
-
-Kael menahan langkah.
-
-Pintu berikut terbuka karena dia memilih maju tanpa memperoleh kembali apa yang paling diinginkan.
-
-Namun suara ibunya menjadi semakin tipis di belakang.
+Kael sadar penebusan sistem kadang sesederhana memberi ruang resmi bagi orang yang tidak cocok dua kotak lama.

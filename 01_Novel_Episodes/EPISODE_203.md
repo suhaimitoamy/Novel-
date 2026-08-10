@@ -1,55 +1,39 @@
 # Episode 203 — Benturan Frekuensi Penyangkal
 
-Percobaan kedua dilakukan tanpa jeda panjang.
+Untuk membuat jalur sempit, Kael harus menyelaraskan node entropinya dengan frekuensi Eira.
 
-Kael berdiri dengan tongkat pada tangan kanan. Kaki kanannya diikat penyangga logam agar tidak roboh ketika saraf kehilangan respons. Eira menolak memberinya obat penghilang rasa sakit.
+Masalahnya kedua teknik bekerja berlawanan.
 
-“Rasa sakit memberitahumu kapan tubuh mulai rusak,” katanya. “Jangan membungkam satu-satunya saksi yang jujur.”
+Kael menjaga beberapa nada pada fase terpisah.
 
-Zireth mengaktifkan simulasi residu Voidmaker dalam beberapa tingkat. Bayangan kecil berkembang menjadi jaringan hitam yang memenuhi dinding laboratorium.
+Eira terus menggeser nada agar tidak pernah terkunci.
 
-Kael membentuk Frekuensi Penyangkal.
+Saat digabung, ruang di antara mereka bergetar liar.
 
-Dua gelombang berdiri bertemu pada simpul nol. Serangan bayangan masuk ke wilayah tersebut dan kehilangan kemampuan berubah menjadi tindakan. Sulur-sulurnya berhenti beberapa sentimeter dari wajah Kael.
+"Berhenti mencoba mengikutiku," kata Eira melalui kanal.
 
-“Stabil empat detik,” kata Zireth. “Lima.”
+"Kalau tidak, jalurnya putus."
 
-Pada detik keenam, residu menyesuaikan diri.
+"Ikuti polanya, bukan posisiku."
 
-Ia tidak lagi mengirim energi. Bayangan berpindah melalui impuls saraf Kael sendiri dan menggerakkan lengan lumpuhnya seperti boneka.
+Kael memahami setelah gagal tiga kali.
 
-Tangan kiri Kael terangkat dan mencengkeram tenggorokannya.
+Eira bukan acak. Pergeserannya mengikuti aturan yang berubah berdasarkan tekanan luar.
 
-Eira hendak memutus simulasi.
+Kael menjaga sela; Eira menjaga gerak.
 
-“Jangan.” Kael menahan pergelangan tangannya sendiri dengan tangan kanan. “Kalau berhenti sekarang, kita tidak akan tahu cara menahannya.”
+Dua prinsip itu bisa berdampingan.
 
-Dia memisahkan impuls saraf dari kehendak. Frekuensi Penyangkal diperluas bukan hanya pada ruang di luar tubuh, melainkan pada jalur antara perintah dan gerakan.
+Gerbang membuka celah setinggi manusia.
 
-Lengan kiri berhenti.
+Panas hitam keluar—bukan panas suhu, melainkan energi yang membuat bayangan terasa terbakar.
 
-Namun residu berpindah ke laboratorium. Dinding, meja, dan kumparan berubah menjadi anggota tubuh baru bagi makhluk tersebut. Bilah hitam tumbuh dari lantai dan menyerang Eira.
+Kair memilih tinggal di The Core bersama Sera untuk menjaga node phase. Aven kembali ke Nexus. Yang masuk hanya Kael, Sylvara, dan Zireth.
 
-Kael menggeser simpul nol ke jalur serangan. Bilah tersebut berhenti tanpa pecah.
+Eira berkata, "Bagus. Sedikit orang membuat Neraka lebih sedikit alasan meniru kalian."
 
-Zireth membuka pusat kendalinya melalui kalkulasi fase. Eira menghantam titik itu dengan kapak.
+Mereka melewati celah.
 
-Bayangan bergetar.
+Gerbang menutup di belakang.
 
-Kael menahan diri agar tidak menyelesaikannya dengan ledakan. Dia memisahkan pola kendali dari energi yang dipakai sebagai wadah.
-
-Jaringan hitam terlepas dari laboratorium dan kembali menjadi residu kecil dalam lingkaran.
-
-Simulasi padam.
-
-Kael jatuh pada satu lutut. Frekuensi Penyangkal bertahan sebelas detik.
-
-“Cukup untuk menghentikan satu perintah besar,” kata Zireth.
-
-“Belum cukup untuk manifestasi utama,” jawab Eira.
-
-Alarm The Core berbunyi sebelum mereka dapat memulai percobaan berikutnya.
-
-Sesuatu telah menembus cincin pertahanan.
-
-Dan pola energinya sama dengan residu yang baru mereka pelajari.
+Langit di sisi lain berwarna seperti luka tua.

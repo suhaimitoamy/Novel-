@@ -1,49 +1,37 @@
 # Episode 222 — Suara dari Gerbang Arwah
 
-Roh-roh korban bergerak di atas jembatan.
+Gerbang meminta satu pertanyaan:
 
-Mereka tidak menyerang tubuh Kael. Setiap senjata menembus kesadarannya dan memaksanya melihat peristiwa dari sisi orang yang terluka oleh keputusan para pahlawan.
+"Apa yang kalian bawa yang seharusnya tidak melewati kematian?"
 
-Dia merasakan desa yang dijadikan medan perang, keluarga yang dikorbankan demi kemenangan besar, dan jiwa-jiwa yang dipanen Sistem atas nama keselamatan dunia.
+Sylvara menjawab, "Tubuh hidup."
 
-Penjaga dengan wajah ibunya berjalan di antara mereka.
+Gerbang tetap tertutup.
 
-“Kau juga akan menjadi seperti pahlawan sebelum dirimu. Semua orang mengaku melindungi dunia sampai dunia harus tunduk kepada cara mereka.”
+Zireth mencoba, "Data dunia fisik."
 
-Kael tidak dapat menjawab dengan penyangkalan. Sebagian dirinya memang percaya hanya dia yang mampu memahami ancaman Fragmen, Voidmaker, dan Sang Arsitek.
+Tidak.
 
-Sylvara memotong satu serangan yang hampir menenggelamkan kesadarannya.
+Eira diam lama lalu berkata, "Hak menentukan nasib orang mati."
 
-“Aku tidak akan mengatakan kau selalu benar,” katanya. “Kau sering mengambil keputusan tanpa memberi kami pilihan. Kau memakai dirimu sebagai korban agar tidak perlu menerima bahwa orang lain juga berhak mengambil risiko.”
+Gerbang menyala.
 
-Kael menatapnya.
+Kael mengerti.
 
-Kalimat tersebut bukan dukungan yang nyaman. Justru itu yang membuatnya dapat dipercaya.
+Mereka boleh masuk hanya jika tidak menganggap arwah sebagai sumber informasi, pasukan, atau benda yang harus diselamatkan sesuai kehendak orang hidup.
 
-Gerbang menampilkan ruang tersembunyi di bawah jembatan. Di sana tersimpan catatan pengadilan para korban Sistem. Setiap pahlawan yang ingin melewati Neraka harus menjawab satu pertanyaan:
+Kael berkata, "Kami mengejar nama yang dicuri. Kalau pemiliknya ingin dilepas, kami membantu. Kalau tidak, keputusan tetap miliknya."
 
-**Mengapa kau tetap ingin hidup setelah mengetahui akibat kekuatanmu?**
+Gerbang terbuka.
 
-Jawaban palsu langsung ditolak. Keinginan menjadi penyelamat, membalas dendam, atau membuktikan diri hanya membuat Gerbang semakin kuat.
+Di baliknya tidak ada tanah, hanya jalan tipis di antara cahaya jiwa.
 
-Kael menyentuh rekaman dan merasakan semua alasan tersebut pernah hidup dalam dirinya.
+Suara-suara memanggil nama orang yang mereka kenal.
 
-Dia tidak mencari kalimat mulia.
+Kael mendengar ibunya sekali.
 
-“Aku ingin hidup karena masih takut mati,” katanya. “Karena aku masih ingin melihat apa yang terjadi pada orang-orang yang berjalan bersamaku. Karena aku belum siap menyerahkan semua rasa sakit sebagai alasan untuk berhenti.”
+Dia tidak mengejar.
 
-Jembatan berhenti berguncang.
+Bukan karena yakin suara itu palsu.
 
-Penjaga memandangnya dengan wajah sang ibu.
-
-“Bukan jawaban seorang pahlawan.”
-
-“Memang bukan.”
-
-Sebagian roh menurunkan senjata.
-
-Namun Penjaga Gerbang belum selesai. Wajah ibunya berubah menjadi senyum sedih.
-
-“Kalau begitu akui juga bagian dirimu yang tidak hidup demi orang lain.”
-
-Di bawah tulang jembatan, api entropi Kael mulai menyala dengan kegembiraan yang selama ini dia sembunyikan.
+Karena bahkan jika benar, ia tidak berhak menyeret gema kembali hanya untuk menenangkan dirinya.
