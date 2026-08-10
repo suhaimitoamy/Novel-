@@ -1,45 +1,33 @@
 # Episode 171 — Jejak Tiga Mesin Takdir
 
-Tiga sinyal muncul di peta Zireth.
+Ruang konvergensi menyimpan peta yang tidak dibuat Arsitek.
 
-Yang pertama berasal dari Katedral Waktu di wilayah pusat. Yang kedua dari Menara Memori Aelarion. Yang terakhir berdenyut di bawah Danau Jiwa Nyrathis.
+Tiga simbol muncul setelah simpul Rhythor padam: roda waktu, mata memori, dan spiral jiwa.
 
-“Jaraknya ribuan kilometer,” kata Sylvara. “Tidak mungkin kita menghentikan semuanya secara langsung.”
+Zireth mengenal bentuknya dari arsip Urdron.
 
-Zireth menghubungkan lengan bintang ke jaringan Nexus. “Mesin-mesin itu berbagi satu irama. Jika kita menyentuh salah satunya, dua yang lain merespons.”
+"Tiga Mesin Takdir. Sistem tua yang dipakai untuk menjaga sinkronisasi waktu, ingatan sejarah, dan siklus jiwa sebelum Struktur mengambil alih."
 
-Kael mendengarkan denyut tersebut melalui Leyline Rhythor.
+Kael menatap ketiganya.
 
-Waktu, ingatan, dan jiwa.
+"Masih aktif?"
 
-Tiga unsur yang menentukan apakah suatu peristiwa benar-benar pernah terjadi.
+"Sebagian. Dan semuanya terhubung ke arus yang baru memanggil Voidmaker."
 
-“Sang Arsitek ingin menulis ulang kemenangan kita,” katanya. “Kalau ketiganya aktif, Rhythor mungkin kembali ke keadaan sebelum Wadah dihancurkan.”
+Kair menyentuh dinding. "Jejak terbaru menuju utara-timur."
 
-Sosok Berhelm membuka portal pengamatan yang menghubungkan mereka dengan The Core, pusat koordinasi Nexus. Melalui ruangan itu, mereka dapat menjangkau ketiga mesin sebagai proyeksi kausal tanpa hadir secara fisik.
+Mata Kesembilan menunjukkan tiga jalur berakhir pada satu wilayah kosong dari peta modern.
 
-Begitu masuk, Kael melihat tiga pintu berdiri pada arah berbeda.
+Bukan kebetulan.
 
-Pintu pertama terus menua dan kembali muda.
+Voidmaker tidak menyerang Zerath dari satu pintu. Ia mencari sistem yang menentukan bagaimana dunia mempertahankan identitas materi dan sejarah.
 
-Pintu kedua menampilkan wajah yang berubah setiap kali dilihat.
+"Kalau tiga mesin gagal?"
 
-Pintu terakhir terbuat dari air hitam yang berbisik dengan suara orang mati.
+Zireth diam.
 
-Gema Pengetahuan di tangan Sylvara bergetar. Lengan bintang Zireth menghitung jarak serta jeda di antara ketiganya.
+Kael sudah tahu jawabannya dari judul yang terukir di dinding:
 
-Kael mengirim satu Pulse kecil.
+**WAKTU BERHENTI MENYEPAKATI URUTAN. INGATAN BERHENTI MENYEPAKATI KENYATAAN. JIWA BERHENTI MENYEPAKATI PEMILIK.**
 
-Ketiga pintu menjawab bersamaan.
-
-Seorang Master Waktu muncul di depan Katedral. Penjaga Memori berdiri pada pintu Menara. Pendeta Jiwa bangkit dari Danau.
-
-Ketiganya memiliki wajah berbeda, tetapi berbicara dengan satu suara.
-
-*Peristiwa Rhythor tidak sesuai rancangan. Koreksi kausal dimulai.*
-
-Kael mengangkat Zerath's Fang.
-
-Mereka tidak menghadapi tiga mesin terpisah.
-
-Mereka menghadapi satu failsafe yang sengaja disebar agar tidak dapat dihancurkan dengan satu serangan.
+Mereka berangkat sebelum badai Rhythor benar-benar selesai mencair.

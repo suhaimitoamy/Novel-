@@ -1,43 +1,37 @@
 # Episode 181 — Jejak Abu Antimateri
 
-Hujan abu tidak berhenti di sekitar The Core.
+Terowongan menuju The Core dipenuhi abu putih.
 
-Sebagian terbawa angin sampai kota perbatasan Valerium. Ketika Kael, Sylvara, dan Zireth tiba, beberapa bangunan telah kehilangan dinding, atap, bahkan separuh fondasi tanpa meninggalkan puing.
+Tidak banyak. Satu butir saja cukup membuat logam rel kehilangan lubang baut yang disentuhnya.
 
-Warga berlarian di antara jalan yang terus menghilang.
+Mereka bergerak lambat.
 
-“Jangan sentuh abunya,” teriak Zireth. “Materi yang bersentuhan akan terhapus.”
+Kair dapat mendeteksi zona anti-resonansi lebih cepat daripada Kael. Zireth membaca bagian struktur yang sudah kehilangan massa. Sylvara menandai jalur dengan serat organik yang mudah diganti.
 
-Kael membangun perisai Lorentz lemah untuk membelokkan partikel bermuatan. Sylvara menembakkan panah medan di empat sudut kota dan membentuk koridor evakuasi.
+Di tengah perjalanan mereka menemukan kereta riset tua.
 
-Zireth mengarahkan warga melalui jalur yang masih stabil.
+Separuh gerbong tidak ada.
 
-Abu bergerak seolah memiliki naluri. Setiap kali Kael membuka medan, butirannya berkumpul dan mencari celah. Residu dingin di dadanya ikut menarik mereka.
+Di dalam bagian yang tersisa, jurnal analog masih terbaca.
 
-“Aku pusat tarikannya,” kata Kael.
+**Abu tidak sama dengan antimateri murni. Ia membawa aturan pemusnahan yang memilih target berdasarkan kecocokan fase.**
 
-“Jangan jadikan dirimu umpan,” jawab Sylvara.
+Kael membaca lanjut.
 
-“Tidak perlu. Kita gunakan medan, bukan tubuhku.”
+**Materi dapat dilindungi dengan terus mengubah fase lokal lebih cepat daripada abu dapat mengunci pasangan annihilation.**
 
-Mereka memindahkan ratusan warga menuju gerbang barat. Di tengah evakuasi, satu bagian kota mendadak menjadi sunyi.
+Itulah alasan gangguan acak mereka bekerja.
 
-Orang-orang berhenti berteriak. Beberapa menatap rumah yang baru saja lenyap dengan wajah bingung.
+Bukan solusi, tetapi prinsip.
 
-“Ada siapa di sana?” tanya seorang wanita.
+Catatan terakhir menyebut fasilitas The Core memiliki *phase skin*—medan pelindung yang membuat materi terus bergeser keadaan mikroskopis.
 
-Tidak seorang pun mampu menjawab.
+"Kalau kita mendapatkannya, bisa melawan hujan," kata Zireth.
 
-Zireth memeriksa catatan kota. Sebuah keluarga tercatat tinggal di rumah itu, tetapi nama dan wajah mereka telah hilang dari arsip serta ingatan tetangga.
+Kael menatap abu yang mengambang.
 
-“Annihilation ini bukan hanya menghapus materi,” katanya. “Ia menghapus hubungan sebab-akibat yang membuktikan korban pernah ada.”
+"Atau Voidmaker mempelajari cara melewatinya."
 
-Kael merasakan denyut kecil dari bawah jalan.
+Kair menjawab, "Maka kita belajar lagi."
 
-Abu berkumpul dan membentuk sosok gelap seukuran manusia. Tubuhnya tidak memiliki bayangan, dan tepinya terus memakan batu di sekeliling.
-
-Manifestasi kecil Voidmaker telah lahir dari sisa hujan.
-
-Kael berdiri di antara makhluk itu dan jalur evakuasi.
-
-Untuk menyelamatkan warga, dia harus melawannya tanpa menyentuhkan materi biasa pada tubuh yang dapat menghapus keberadaan.
+Kael menyukai jawabannya.

@@ -1,45 +1,43 @@
 # Episode 156 — Ritual Pemurnian Rawa
 
-Korupsi pusat telah retak, tetapi akar hitam masih menyebar jauh di bawah rawa.
+Hari keberangkatan tertunda ketika akar rawa mulai berubah ungu.
 
-Pemimpin Suku Lumut Sunyi berdiri di tengah lingkaran batu dan memulai ritual pemurnian. Para anggota suku menyanyikan nada rendah yang membuat air, akar, dan lumut berdenyut serempak.
+Infeksi kristal yang mereka putus sebelumnya ternyata hanya satu simpul dari jaringan lama.
 
-Kael, Sylvara, Zireth, dan Sosok Berhelm mengambil posisi di empat sisi.
+Velai dan Free Node biasa membakar area terinfeksi setiap beberapa tahun.
 
-“Nyanyian kami akan memanggil ingatan rawa,” kata sang pemimpin. “Kalian harus memisahkan luka asing dari bagian yang masih hidup.”
+Kael menolak metode itu setelah melihat benang kehidupan di Mata Kesembilan.
 
-Kael menempelkan tangan ke tanah.
+"Kita bisa memisahkan sinyalnya."
 
-Resonansi biologis mengalir melalui jaringan akar. Dia merasakan ribuan kehidupan kecil, kenangan suku, dan bagian rawa yang telah dimakan struktur putih Sang Arsitek.
+Ritual berlangsung sepanjang hari.
 
-Agen penyusup muncul dari bawah air.
+Velai menyanyikan pola akar.
 
-Tubuhnya menyerupai manusia yang disusun dari akar, lumut, dan kabel Nexus. Wajahnya berganti-ganti memakai ingatan orang-orang yang telah dicuri.
+Zireth membaca struktur tanah.
 
-Sylvara menahan serangannya dengan panah penanda. Zireth mengunci pergerakan melalui medan bintang. Sosok Berhelm memotong koneksi menuju markas.
+Sylvara menjaga jalur kehidupan tanaman.
 
-Kael menjaga ritual.
+Kael menggunakan resonansi untuk membuat kristal jaringan kehilangan fase dengan leyline rawa.
 
-Setiap kali agen menyentuh pikirannya, satu kenangan terancam lepas. Wajah ibunya yang sudah kabur kembali ditarik menuju akar hitam.
+Tidak ada satu orang memimpin.
 
-Dia tidak mengejar gambaran itu dengan panik. Kael menahan identitasnya pada suara Sylvara, denyut Zireth, dan nyanyian suku.
+Saat satu bagian gagal, yang lain menyesuaikan.
 
-“Sebut namamu,” kata pemimpin.
+Menjelang malam warna ungu surut dari akar.
 
-“Kael Drayven.”
+Tidak semua area selamat.
 
-“Sekali lagi.”
+Beberapa pohon mati karena kerusakan sudah terlalu jauh.
 
-“Kael Drayven.”
+Orun tidak menyebut ritual berhasil sempurna.
 
-Ritual semakin kuat.
+"Cukup banyak hidup. Cukup sedikit hilang. Besok kita tanam lagi."
 
-Tiga energi Kael menyebar melalui rawa. Merah memisahkan akar korup, biru menahan jaringan agar tidak mati, dan ungu mengurai perintah asing.
+Kael menyukai cara itu.
 
-Korupsi mulai keluar dari tanah sebagai asap putih kehitaman.
+Kemenangan yang tidak berpura-pura tidak punya kerugian.
 
-Namun pada pusat jaringan, Kael menemukan simpul lain—lebih dalam, lebih tua, dan terhubung langsung ke Rhythor.
+Saat mereka akhirnya pergi, rawa di belakang tidak menjadi suci atau bebas kutukan selamanya.
 
-Agen penyusup bukan tujuan akhir.
-
-Ia hanya saluran yang sedang mengirim hasil eksperimen Nexus menuju Wadah Sekunder.
+Ia hanya memiliki kesempatan lebih baik untuk pulih.

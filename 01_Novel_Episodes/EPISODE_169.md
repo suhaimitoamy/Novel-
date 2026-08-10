@@ -1,59 +1,45 @@
 # Episode 169 — Konvergensi
 
-Benih Struktur mengambil alih tubuh Roh Es Agung.
+Saat badai padam, sesuatu di bawah Rhythor aktif.
 
-Sayap gletser terbuka dan menghantam langit-langit gua. Retakan besar menyebar ke seluruh Jantung Es. Bongkahan sebesar menara mulai jatuh.
+Bukan mesin tiruan.
 
-Shaman Agung memimpin pasukan Iskali mempertahankan lorong. Sylvara serta Zireth membuka jalan menuju dada roh, tempat inti biru terkunci di balik lapisan Void.
+Tiga leyline besar bertemu di bawah kota: jalur Urdron, Iskali, dan satu arus gelap dari luar sistem dunia.
 
-Zevaron berdiri di sisi Kael.
+Konvergensi itu sudah lama ada. Badai hanya menyembunyikannya.
 
-“Aku akan menarik kembali pola elemennya. Kau putuskan kendali Arsitek.”
+Zireth menatap pembacaan. "Arus ketiga bukan Void biasa."
 
-“Kalau arusnya berbalik, tubuhmu bisa hancur.”
+Kael merasakannya.
 
-“Tubuhku sudah dipakai sebagai cetakan. Aku berhak mengambil risiko untuk merebutnya kembali.”
+Outer Void.
 
-Mereka bergerak bersama.
+Tetapi di dalamnya ada pola lain—seperti materi yang tidak mau berada di dunia yang sama dengan mereka.
 
-Zevaron memanggil badai liar yang tidak mengikuti pola mana pun. Kael menyelaraskan Pulse pada ketidakteraturan tersebut dan menyusupkannya ke lapisan Void.
+Aven mengirim data ke Free Node dan Command bersih sekaligus. Untuk pertama kalinya kedua faksi berbagi kanal tanpa pusat tunggal.
 
-Roh Es mengamuk. Cakarnya menghantam lantai dan membuka jurang menuju kedalaman Leyline.
+Kael, Kair, dan Zireth turun ke ruang konvergensi.
 
-Sylvara menembakkan panah pemurnian tepat ke simpul yang ditunjuk Kael. Zireth menahan retakan dengan medan gravitasi lengan bintang.
+Tiga aliran bertemu tanpa bercampur, dipisahkan medan kuno.
 
-Benang pertama terbakar.
+Di dinding ada tulisan sebelum era Struktur:
 
-Lalu yang kedua.
+**JANGAN BIARKAN ABU YANG MENIADAKAN MATERI MENYENTUH JANTUNG.**
 
-Pada benang terakhir, seluruh gua runtuh.
+Kael merasakan lengan kirinya dingin.
 
-Roh Es Agung menyadari apa yang terjadi. Kesadarannya menyentuh Kael dan Zevaron.
+Bukan Arsitek.
 
-*Jika tubuhku dibebaskan sekarang, runtuhan akan menelan kalian dan kota di atas.*
+Ancaman lain sudah menunggu jauh sebelum semua konflik mereka.
 
-“Kita bisa mencari cara lain,” kata Kael.
+Kair menatap arus hitam.
 
-*Musim selalu bergerak karena sesuatu berakhir.*
+"Sinyal memanggil pola kita."
 
-Roh tersebut mengambil kembali kendali untuk satu detik. Sayapnya membentang dan menahan seluruh gletser yang runtuh.
+Suara muncul dari dalam konvergensi.
 
-“Jangan!” teriak Shaman Agung.
+*Wadah ditemukan.*
 
-*Bebaskan benihnya. Biarkan aku menjadi musim terakhir yang membeku.*
+Bukan kepada Kair saja.
 
-Kael menolak menerima pengorbanan itu, tetapi waktu habis. Jika dia berhenti, Benih Struktur akan kembali mengambil alih dan seluruh Rhythor berubah menjadi tubuh Wadah.
-
-Dengan tangan gemetar, Kael memutus benang terakhir.
-
-Benih Struktur terlepas dari inti.
-
-Roh Es Agung meraung, bukan karena sakit, melainkan kebebasan. Cahaya birunya menyebar ke seluruh gletser dan menahan runtuhan cukup lama bagi semua orang mencapai jalur aman.
-
-Tubuh raksasanya kemudian pecah menjadi salju murni.
-
-Untuk pertama kalinya setelah berbulan-bulan, matahari Rhythor bergerak menuju barat.
-
-Musim kembali berjalan.
-
-Namun penjaga yang mengembalikannya telah tiada.
+Kepada Kael juga.

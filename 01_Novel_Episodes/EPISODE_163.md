@@ -1,51 +1,43 @@
 # Episode 163 — Pertahanan Iskali
 
-Penjaga Iskali mengepung kuil.
+Pasukan Iskali mencoba masuk Rhythor dari utara.
 
-Tubuh mereka terbentuk dari es jernih dengan inti biru di dada. Pola putih Sang Arsitek membungkus sendi dan kepala, memaksa setiap gerakan mengikuti perintah yang sama.
+Badai menyerang mereka sebagai refleks K-4.
 
-“Jangan hancurkan intinya,” kata Shaman Agung. “Roh penjaga terikat di sana.”
+Kael melihat tombak es terbentuk di udara dan berlari ke depan sebelum barisan pertama tertusuk.
 
-Kael menahan serangan pertama dengan perisai tipis. Tombak es menghantam dan membuat lengannya mati rasa.
+Dia tidak menghancurkan tombak satu per satu.
 
-Zireth mengirim medan bintang ke tanah, memperlambat gerakan dua penjaga. Sylvara menembakkan panah penanda ke sambungan geometri pada bahu dan leher.
+Zireth membaca struktur kristalnya, Sylvara menandai jalur aman, Kael menggeser frekuensi pembentukan sehingga es jatuh sebagai salju kasar.
 
-Kael mencari perbedaan fase antara es murni dan Void.
+Komandan Seraq tiba bersama pasukan.
 
-Di dalam setiap penjaga terdapat dua irama. Satu liar, dingin, dan hidup. Satu lagi terlalu sempurna.
+"Kalian bilang pusatnya satu wadah."
 
-Dia menyentuh Penjaga pertama dengan Zerath's Fang tanpa menebas. Pulse tiga warna masuk melalui bilah dan memisahkan pola asing dari inti.
+"Benar."
 
-Tubuh es itu kejang.
+"Lalu kenapa seluruh kota melindunginya?"
 
-Pola putih retak dan jatuh seperti kulit mati. Penjaga tersebut berhenti menyerang, lalu berlutut di hadapan Shaman.
+Kael menunjuk penduduk yang tertidur.
 
-“Berhasil,” kata Sylvara.
+"Karena dia memakai mereka sebagai sistem saraf. Kalau kalian serang kota, responsnya makin keras."
 
-Penjaga lain langsung menyesuaikan diri. Mereka menebalkan lapisan Void dan menyerang Kael dari semua arah.
+Seraq mengertakkan gigi.
 
-Ragnarok Pulse menawarkan ledakan yang mampu menghancurkan seluruh barisan.
+"Jadi kami harus diam melihat rumah kami dipakai."
 
-Kael menolaknya.
+"Tidak. Kalian harus membantu kami memutus warga tanpa membangunkan badai."
 
-Dia membiarkan Shaman Agung menyanyikan nama masing-masing penjaga. Ketika satu roh mengingat identitasnya, Sylvara menandai simpul kendali, Zireth membukanya, dan Kael memutus benang asing.
+Pertahanan berubah menjadi evakuasi.
 
-Pertempuran berlangsung lambat dan melelahkan.
+Iskali membentuk jalur es stabil. Sylvara menandai rumah-rumah berpenghuni. Zireth menemukan simpul jaringan di fondasi.
 
-Setiap penjaga harus diselamatkan satu per satu.
+Kael memutus satu rumah dari K-4.
 
-Ketika yang terakhir terbebas, Kael hampir tidak mampu berdiri. Namun tidak ada inti yang hancur.
+Badai melemah sedikit.
 
-Para Penjaga Iskali membuka jalan ke pegunungan.
+Satu keluarga terbangun.
 
-Salah satu dari mereka menyentuh tanah dan mengirim pesan melalui es:
+Mereka tidak menang dengan menembak pusat ancaman.
 
-*Badai pusat telah memakai suara Zevaron. Jangan percaya apa pun yang memanggil dengan namanya.*
-
-Di kejauhan, suara Zevaron terdengar dari dalam badai.
-
-“Kael! Cepat!”
-
-Kael memandang Shaman Agung.
-
-Mereka tidak tahu apakah itu pangeran Iskali—atau Wadah Sekunder yang telah belajar menirunya.
+Mereka mengambil kembali kota, satu manusia setiap kali.

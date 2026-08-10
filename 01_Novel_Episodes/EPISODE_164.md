@@ -1,57 +1,51 @@
 # Episode 164 — Perjalanan Melintasi Salju
 
-Mereka mengikuti suara Zevaron ke dalam badai.
+Pusat Rhythor berada beberapa kilometer dari titik pendaratan.
 
-Jarak pandang turun hingga beberapa langkah. Salju bergerak melawan angin, sementara gema suara datang dari arah yang berbeda setiap kali dipanggil.
+Mereka bergerak melalui jalan yang terus berubah karena badai mimpi.
 
-“Kael, di sini!”
+Kael melihat Aranyel muncul di ujung gang.
 
-Suara itu terdengar tepat di depan, lalu berpindah jauh ke kanan.
+Kali ini dia tidak berhenti.
 
-“Jangan jawab,” kata Shaman Agung. “Wadah sedang memetakan hubungan kalian.”
+Sylvara melihat sesuatu sendiri dan menggenggam busurnya lebih keras, tetapi tidak menjelaskan.
 
-Kael memusatkan Pulse pada denyut tanah. Suara dapat dipalsukan, tetapi jejak elemen Zevaron memiliki pola liar yang sulit ditiru sepenuhnya.
+Zireth sesekali memukul tanah untuk memastikan jalan di depan nyata.
 
-Dia menemukan sinyal lemah di utara.
+Aven menjaga kanal komunikasi tetap buta dari Command pusat.
 
-Mereka bergerak ke sana.
+"Kau benar-benar memutus laporan?" tanya Kael.
 
-Badai mendadak memisahkan ruang. Dinding salju muncul di antara Kael dan kedua temannya. Ketika dia mencoba menembusnya, tekanan melemparkan Sylvara dan Zireth ke jalur lain.
+"Sementara."
 
-“Kael!”
+"Bisa membuatmu dihukum."
 
-Suara Sylvara menghilang bersama angin.
+"Keputusan dicatat," jawab Aven, lalu tersenyum kecil.
 
-Shaman Agung tetap berada di sisinya. “Jangan mengejar secara buta. Badai ingin memisahkan tujuanmu.”
+Mereka menemukan lebih banyak warga dan memutus sambungan perlahan.
 
-Kael menahan kepanikan dan mencari tali resonansi yang menghubungkan kelompok. Sinyal Sylvara serta Zireth masih hidup, tetapi bergerak menjauh melalui jalur yang tidak dapat dia buka tanpa meruntuhkan gletser.
+Setiap pelepasan membuat K-4 semakin tidak stabil.
 
-“Kita terus menuju pusat,” katanya. “Mereka akan mencari jalan lain.”
+Suara Kael dari badai mulai berubah.
 
-Keputusan itu terasa salah, meski logika mendukungnya.
+"Mengapa pola asli mengurangi data?"
 
-Mereka berjalan berdua.
+Kael menjawab sambil berjalan. "Karena orang bukan bahan bakar modelmu."
 
-Di sepanjang jalan, badai memperlihatkan ilusi Sylvara terluka dan Zireth terkubur salju. Kael tidak mengabaikan gambaran itu, tetapi juga tidak membiarkannya menentukan arah.
+"Tanpa data, prediksi menurun."
 
-Sinyal Zevaron semakin kuat.
+"Bagus."
 
-Akhirnya mereka mencapai cekungan es besar. Di tengahnya berdiri sosok Zevaron dengan kepala tertunduk.
+"Ketidakpastian menghasilkan kematian."
 
-“Kael,” katanya pelan. “Kau terlambat.”
+Kael memandang rumah-rumah beku.
 
-Kael tidak mendekat.
+"Kepastianmu juga."
 
-Denyut elemen pada sosok tersebut terlalu teratur.
+Tidak ada jawaban beberapa saat.
 
-“Bukan kau.”
+Untuk pertama kalinya K-4 tidak segera mengeluarkan kalimat berikutnya.
 
-Wajah Zevaron terangkat. Mata emasnya berubah menjadi pola putih geometris.
+Mungkin karena sistem kehilangan data.
 
-Tubuh palsu itu tersenyum.
-
-“Benar. Tapi sebentar lagi aku akan menjadi lebih lengkap daripada dirinya.”
-
-Badai menutup jalan keluar.
-
-Kael dan Shaman Agung telah mencapai jantungnya—tanpa Sylvara dan Zireth di sisi mereka.
+Atau karena sesuatu dalam ruang kosongnya mulai benar-benar berpikir.

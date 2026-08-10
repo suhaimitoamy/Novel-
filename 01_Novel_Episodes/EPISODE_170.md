@@ -1,71 +1,49 @@
 # Episode 170 — Tiga Melawan Struktur
 
-Benih Struktur jatuh ke dasar Jantung Es sebagai bola geometris putih.
+Struktur menyerang lebih dulu.
 
-Ia belum mati.
+Benang Arsitek menembus ruang konvergensi, mencoba mengambil alih Kair kembali dan menutup arus Outer Void dalam satu gerakan.
 
-Begitu menyentuh lantai, akar cahaya menyebar dan mencoba membangun tubuh baru dari es, batu, serta sisa energi Roh Es Agung.
+Kael memahami alasannya: Arsitek takut pada arus ketiga.
 
-Pasukan Iskali kelelahan. Shaman Agung berlutut di antara salju yang merupakan jasad penjaga mereka.
+Itu tidak membuat arus tersebut sekutu.
 
-Kael, Sylvara, dan Zireth berdiri di depan Benih.
+Kair menahan perintah lama yang kembali aktif di kristalnya.
 
-Zevaron hendak ikut maju, tetapi tubuhnya kehilangan terlalu banyak energi setelah terbebas dari kristal.
+Zireth menstabilkan fondasi agar tiga leyline tidak bersentuhan.
 
-“Ini pertarungan kami,” kata Kael. “Lindungi rakyatmu.”
+Kael menghadapi benang Struktur.
 
-Benih membentuk tiga lawan.
+Mereka bertiga memiliki fungsi berbeda.
 
-Satu meniru Ragnarok Pulse Kael. Satu memakai pola panah Sylvara. Yang terakhir memiliki lengan bintang seperti Zireth.
+Tidak ada pusat.
 
-Sang Arsitek telah membangun salinan berdasarkan seluruh data yang dicuri Nexus.
+Arsitek mencoba memprediksi Kael. Kair mengambil keputusan berikutnya.
 
-“Dia mengenal teknik kita,” kata Zireth.
+Arsitek beralih memodelkan Kair. Zireth mengubah geometri ruang.
 
-“Bukan alasan kita memilihnya,” jawab Sylvara.
+Ketika Struktur menyesuaikan pada Zireth, Kael memutus satu simpul.
 
-Mereka menyerang tanpa formasi tetap.
+Loop itu terus berubah.
 
-Kael tidak memerintah. Sylvara mengubah sasaran berdasarkan insting. Zireth mengacak medan gravitasi. Kael mengikuti keduanya dan menjaga hubungan energi tetap terbuka.
+Untuk pertama kalinya mereka tidak mengalahkan Arsitek dengan kejutan satu orang, tetapi dengan keputusan bergantian yang tidak dikendalikan satu otak.
 
-Salinan mereka mampu meniru gerakan, tetapi tidak memahami kepercayaan yang membuat satu orang menanggung risiko bagi yang lain.
+Benang ungu patah.
 
-Sylvara sengaja membuka celah. Salinan Kael bergerak menyerangnya, tepat seperti perhitungan data. Zireth menggeser gravitasi dan memindahkan tubuh Sylvara sesaat sebelum serangan mengenai.
+Simpul Rhythor padam.
 
-Kael masuk melalui ruang kosong tersebut.
+Kair jatuh tetapi tetap sadar.
 
-Pulse merah memisahkan cangkang Benih. Biru menahan energi agar tidak meledak ke Leyline. Ungu mengurai pola Sang Arsitek dari pusatnya.
+Kael memandang arus gelap ketiga.
 
-Benih mencoba mengaktifkan seluruh data Pulse yang disimpan.
+Suara dari dalamnya tertawa tanpa suara.
 
-Zireth menancapkan lengan bintang ke tanah dan membalik koneksi. Sylvara menembakkan panah pemurnian ke jalur yang terbuka.
+*Struktur takut pada kehampaan yang lebih tua.*
 
-Kael melepaskan satu denyut pendek.
+Mata Kesembilan Kael menangkap satu nama dari resonansi kuno.
 
-Tidak ada ledakan besar.
+**VOIDMAKER.**
 
-Benih Struktur retak dan berubah menjadi debu putih. Pola asing terlepas dari Jantung Es, sementara arus musim Rhythor tetap hidup.
+Arsitek bukan lagi satu-satunya ancaman yang mengetahui dirinya.
 
-Ketiganya jatuh hampir bersamaan.
-
-Zevaron dan prajurit Iskali membantu mereka keluar dari gua.
-
-Di luar, salju turun ke bawah untuk pertama kalinya sejak musim terkunci. Matahari tenggelam, memperlihatkan langit malam yang telah lama hilang.
-
-Namun kedamaian hanya bertahan beberapa menit.
-
-Lengan bintang Zireth menerima tiga sinyal dari penjuru berbeda Zerath.
-
-Tiga Mesin Takdir aktif serempak.
-
-Sang Arsitek kehilangan Wadah Sekunder, tetapi rencana lain telah dimulai.
-
-Kael memandang tiga titik pada peta.
-
-“Dia tidak lagi bertaruh pada satu tubuh.”
-
-Sylvara berdiri di sisinya. “Kalau begitu kita hentikan ketiganya.”
-
-Kael mengangguk.
-
-Rhythor telah selamat, tetapi perang terhadap Struktur baru saja berubah bentuk.
+Dan sesuatu di luar realitas baru saja mengetahui bahwa Kael dapat melukai Struktur.

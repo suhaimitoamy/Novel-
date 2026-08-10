@@ -1,59 +1,59 @@
 # Episode 200 — Tubuh yang Memilih Luka
 
-Kael terbangun di ruang medis bawah The Core.
+Voidmaker menawarkan satu modifikasi terakhir.
 
-Napas pertama terasa seperti menelan pecahan kaca. Lengan kirinya tidak bergerak. Kaki kanan hanya merasakan tekanan samar, sementara setiap detak jantung datang dengan jeda yang membuat Sylvara menatap monitor tanpa berkedip.
+Kael dapat menjadi node pertama permanen—bukan pusat, hanya salah satu dari banyak. Risiko jauh lebih kecil, tetapi masih berarti perubahan tubuh.
 
-“Kael?”
+"Tidak wajib," kata Sera.
 
-Dia mencoba menjawab. Suaranya keluar serak.
+Kael memikirkan lengan kiri, Fragment, Mata Kesembilan, titik Hati Dunia.
 
-“Masih aku.”
+Tubuhnya sudah menjadi arsip keputusan orang lain.
 
-Sylvara menutup mata sesaat. Zireth berdiri di sisi lain ranjang dan membaca jalur saraf melalui lengan bintang.
+Kali ini dia ingin satu perubahan yang benar-benar dipilih sendiri.
 
-“Voidmaker tidak lagi mengendalikan tubuhmu. Pintu Entropi terputus.”
+"Apa yang dilakukan node?"
 
-“Kerusakannya?”
+"Menjaga batas fase lokal. Mengurangi risiko annihilation dan memberi peringatan jika Outer Void mendekat."
 
-“Sebagian saraf motorik telah kau rusak sendiri.” Zireth tidak memperhalus kalimatnya. “Lengan kiri lumpuh untuk sekarang. Kaki kanan mungkin pulih sebagian. Kami belum tahu efek pada Ragnarok Pulse.”
+"Bisa dilepas?"
 
-Seorang perempuan tua duduk di sudut ruangan. Rambut putihnya dikepang kasar, kulitnya dipenuhi bekas luka, dan sebuah kapak besar bersandar pada kursi.
+"Dengan prosedur aman."
 
-“Jadi bocah keras kepala ini akhirnya bangun,” katanya.
+Kael setuju.
 
-Kael mengenali suaranya dari labirin. “Eira.”
+Bukan karena dunia membutuhkannya sebagai satu-satunya wadah.
 
-Perempuan itu menyeringai. “Furyborn tua yang menarik jiwamu pulang saat teman-temanmu terlalu sopan untuk memukul kesadaranmu.”
+Karena dia memilih menjadi satu bagian jaringan yang juga akan diisi orang lain.
 
-Sylvara mendengus. “Kami tidak sopan.”
+Node kecil menyatu di dekat tulang selangka, terpisah dari Fragment dan simpul Arsitek.
 
-“Kurang kasar.”
+Rasa sakitnya tajam tetapi singkat.
 
-Kael mencoba menggerakkan jari kiri. Tidak ada respons.
+Voidmaker mengamati.
 
-Rasa kehilangan datang bersama bisikan halus dari Ragnarok Pulse. Keheningan akan lebih mudah. Dia dapat memakai entropi untuk menghapus jalur saraf rusak dan membangun tubuh baru tanpa rasa sakit.
+*Wadah menolak pusat tetapi menerima luka lokal.*
 
-Kael menolak dorongan tersebut.
+Kael menyentuh bekas baru.
 
-Tubuh ini telah memilih luka agar tidak menjadi milik Voidmaker. Menghapus kerusakannya dengan kekuatan yang sama berarti membatalkan pilihan tersebut.
+"Tubuhku. Pilihanku. Itu bedanya."
 
-“Aku akan belajar bergerak dengan tubuh ini,” katanya.
+Hujan annihilation di wilayah tiga mesin berhenti sepenuhnya.
 
-Eira berdiri. “Bagus. Karena aku tidak datang untuk menyembuhkanmu.”
+Voidmaker belum menjadi teman.
 
-Dia melemparkan tongkat pendek ke ranjang. Kael menangkapnya dengan tangan kanan.
+Arsitek belum kalah.
 
-“Aku datang untuk mengajarimu hidup ketika tubuh tidak lagi menuruti gambaran pahlawan dalam kepalamu.”
+Namun ancaman pemusnahan total berubah menjadi negosiasi dan desain baru.
 
-Zireth menampilkan data baru. Selama Kael tidak sadar, Sistem Pahlawan mengirim pasukan pemburu ke berbagai wilayah. Beberapa telah mendekati The Core.
+Jauh di bawah The Core, gerbang lain terbuka.
 
-Kael memandang tongkat di tangannya.
+Udara panas dan bau sulfur masuk.
 
-Episode perjalanan yang lama berakhir pada tubuh yang rusak, kenangan berlubang, dan umur yang berkurang.
+Sera menatap pembacaan.
 
-Namun tubuh itu tetap memilih hidup.
+"Entropi yang kita pindahkan tidak hilang. Ia mengalir ke zona pembuangan lama."
 
-Dia duduk perlahan dengan bantuan Sylvara.
+Nama zona itu muncul:
 
-“Mulai latihannya.”
+**NERAKA ZERATH.**

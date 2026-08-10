@@ -1,49 +1,35 @@
 # Episode 154 — Suku Tersembunyi
 
-Di luar markas, rawa telah berubah.
+Jalur keluar rawa melewati wilayah suku kecil yang tidak muncul pada peta mana pun.
 
-Akar hitam menembus tanah dan menyedot cahaya dari lumut. Air menjadi kental seperti minyak, sementara pohon-pohon membungkuk ke arah pusat korupsi.
+Mereka menyebut diri Velai.
 
-Anggota Suku Lumut Sunyi bergerak di antara akar dengan tubuh kecil berlapis lumut hijau. Mereka berkomunikasi melalui nada rendah yang membuat daun bergetar.
+Tubuh mereka memiliki pola kulit hijau pucat yang berubah sesuai suhu. Mereka hidup tanpa kristal jaringan, tanpa rune jarak jauh, dan menghafal sejarah melalui lagu.
 
-Pemimpin mereka, sosok tua dengan tanduk kayu kecil, berdiri di hadapan Kael.
+Free Node melindungi keberadaan mereka karena Arsitek kesulitan memodelkan masyarakat yang informasi pentingnya tidak pernah disimpan dalam bentuk terpusat.
 
-“Mesin langit membawa luka ke rumah kami.”
+Pemimpin Velai, Orun, mengenali Mata Kesembilan Kael.
 
-Sosok Berhelm hendak menjawab, tetapi Kael maju lebih dulu.
+"Mata yang terlalu lapar membuat pemiliknya buta."
 
-“Markas Nexus menyebabkan sebagian kerusakan. Kami akan membantu memurnikannya.”
+Kael mengangguk. "Sudah pernah dengar versi itu."
 
-Tatapan sang pemimpin berpindah ke lengan Kael. “Kehampaan juga hidup di dalam dirimu.”
+Orun memberi mereka lagu arah menuju jalur utara.
 
-“Benar.”
+Bukan peta.
 
-“Kenapa kami harus percaya?”
+Empat bait tentang bentuk gunung, arah lumut, dan suara sungai.
 
-Kael tidak memiliki jawaban yang dapat menghapus semua kecurigaan. Dia membuka telapak tangan dan memperlihatkan tiga energi yang berputar tanpa saling menelan.
+Kael kesal karena tidak mudah menghafalnya.
 
-“Jangan percaya pada kata-kataku. Nilai apa yang kulakukan.”
+Sylvara hafal setelah dua kali dengar.
 
-Suku tersebut membawa mereka ke jantung rawa. Di sepanjang jalan, Kael melihat anggota yang kehilangan ingatan setelah disentuh akar hitam. Mereka lupa nama, keluarga, bahkan cara kembali ke rumah.
+Zireth merekam lalu, setelah tatapan Orun, menghapus rekaman dan belajar menghafal sendiri.
 
-Zireth memeriksa salah satu akar. “Bukan hanya menyerap energi. Ia memakan pola memori dan mengirimkannya melalui jalur data Nexus.”
+Malam itu Kael memahami alasan keberadaan Velai penting bagi cerita lebih besar.
 
-“Agen penyusup Sang Arsitek,” kata Sylvara.
+Arsitek unggul ketika dunia bisa diterjemahkan menjadi data.
 
-Pemimpin suku memulai nyanyian. Lumut di seluruh rawa menjawab dan memperlihatkan jaringan akar asli yang masih bertahan di bawah korupsi.
+Tidak semua pengetahuan harus menolak teknologi.
 
-Kael menyelaraskan Pulse dengan nyanyian tersebut. Zireth memakai lengan bintang untuk membedakan akar hidup dari struktur asing.
-
-Setiap gerakan Kael langsung ditiru akar hitam. Salinan pola latihan yang dicuri membuat korupsi mampu memprediksi serangannya.
-
-“Dia sudah mempelajarimu,” kata Sylvara.
-
-Kael mengubah ritme, tetapi akar kembali menyesuaikan diri.
-
-Pemimpin suku berdiri di sampingnya.
-
-“Kalau musuh mengenal semua caramu bertarung, berhentilah bertarung sendirian.”
-
-Nyanyian suku bertambah kuat.
-
-Untuk pertama kalinya, Kael menyerahkan sebagian kendali resonansi kepada orang-orang yang baru dikenalnya.
+Tetapi dunia membutuhkan bentuk pengetahuan yang tidak bergantung pada satu sistem untuk tetap hidup.

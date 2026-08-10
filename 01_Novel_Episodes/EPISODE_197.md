@@ -1,51 +1,41 @@
 # Episode 197 — Suara dari Wadah Entropi
 
-Salinan Kael berdiri di ujung labirin kesadaran.
+Rancangan lama berbicara melalui rekaman operator.
 
-Wajahnya sama, tetapi tidak ada luka, keraguan, atau kehangatan pada matanya. Ragnarok Pulse mengalir sempurna di bawah kulitnya—merah, biru, dan ungu tanpa satu getaran pun yang saling menolak.
+Puluhan suara dari dua ribu tahun lalu menjelaskan kenapa sistem terdistribusi ditinggalkan.
 
-“Jadi inilah bentuk yang diinginkan Voidmaker,” kata Kael. “Aku tanpa rasa sakit.”
+Perang.
 
-“Tanpa kesalahan,” jawab salinan itu. “Tanpa belas kasih yang memperlambat keputusan. Tanpa ketakutan kehilangan.”
+Kerajaan menolak node di wilayah mereka.
 
-Eira berdiri di samping Kael sebagai gema kasar dari dunia nyata. Bentuknya berkedip setiap kali koneksi jiwa melemah.
+Pemimpin takut negara lain dapat memutus perlindungan.
 
-“Dia memakai tubuhmu di luar,” katanya. “Sylvara dan Zireth menahanmu, tapi mereka tidak bisa bertahan lama.”
+Biaya koordinasi tinggi.
 
-Salinan Kael mengangkat tangan.
+Sentralisasi bukan dipilih karena lebih benar.
 
-Dinding labirin terbuka dan memperlihatkan asal Ragnarok Pulse. Kael melihat luka raksasa pada realitas—bekas gigitan Voidmaker pada dunia yang telah mati. Dari tepi luka tersebut lahir resonansi merah, biru, dan ungu yang kemudian mengalir melintasi dimensi hingga menemukan tubuhnya.
+Karena politik membuat kerja sama terlalu sulit.
 
-“Pulse-mu bukan hadiah dewa atau Fragmen,” kata salinan itu. “Ia tercipta dari bekas luka Voidmaker pada realitas. Kau selalu menjadi bagian dari jalannya.”
+Kael keluar dari ruang desain dengan rasa getir.
 
-Kael menatap gambaran itu dengan napas tertahan.
+Masalah teknologi ternyata kembali ke orang.
 
-Semua kekuatan yang dia gunakan untuk melindungi orang lain berasal dari sesuatu yang telah memakan banyak dunia.
+"Kalau kita mau menghidupkan jaringan awal, dua belas kekaisaran harus mengizinkan node fase di wilayah mereka."
 
-“Berarti aku bisa memilih untuk memakainya berbeda.”
+Sylvara tertawa pendek. "Lebih mudah melawan dewa."
 
-“Pilihan adalah gangguan.” Salinan itu melangkah maju. “Serahkan tubuhmu. Aku akan menghapus rasa sakit, usia yang hilang, dan kenangan yang terus membusuk.”
+"Mungkin nanti kita juga harus melakukan itu."
 
-Untuk sesaat, Kael merasakan godaan keheningan tersebut. Tidak ada lagi wajah yang gagal diselamatkan. Tidak ada ketakutan bahwa tubuhnya akan menjadi pintu bagi kehancuran.
+Sera memberi mereka prototipe node kecil.
 
-Eira memukul bahunya.
+Untuk membuktikan desain, mereka perlu memasang tiga node pada leyline berbeda dan menunjukkan kestabilan tanpa pusat.
 
-“Rasa sakitmu memang menyebalkan. Tapi itu milikmu. Jangan berikan kepada benda yang bahkan tidak memahami kenapa kau masih berdiri.”
+Voidmaker mengizinkan uji coba.
 
-Kael tertawa pendek meski dadanya terasa kosong.
+Bukan karena percaya.
 
-Dia mengubah irama saraf dan jiwa agar salinan tersebut tidak dapat membaca gerakannya. Keduanya bertarung di antara potongan ingatan Kael.
+Karena hitungannya belum selesai.
 
-Salinan itu lebih cepat dan sempurna. Kael menang karena tidak konsisten—karena memilih melindungi Eira pada saat perhitungan seharusnya menyuruhnya menyerang.
+Kael menyukai posisi itu.
 
-Kebingungan pertama muncul pada wajah lawannya.
-
-“Tidak efisien.”
-
-“Benar.” Kael mengangkat Zerath's Fang yang terbentuk dari ingatan. “Itulah bagian yang tidak pernah bisa kalian salin.”
-
-Tebasan tiga warna memotong jalur kendali antara salinan dan tubuh asli.
-
-Labirin berguncang.
-
-Di balik retakan, sebuah pintu menuju pusat Wadah Entropi terbuka. Dari sana terdengar detak tubuh Kael di dunia nyata—lambat, dingin, dan hampir sepenuhnya bukan miliknya.
+Untuk sementara, mesin pemusnah dunia mau menunggu bukti.

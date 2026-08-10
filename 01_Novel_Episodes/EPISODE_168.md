@@ -1,49 +1,51 @@
 # Episode 168 — Menerobos Badai
 
-Badai memenuhi Jantung Es.
+Mematikan mesin Rhythor membutuhkan jalur pembuangan energi.
 
-Setiap butiran salju membawa serpihan memori Roh Es Agung. Kael melihat musim-musim Rhythor berputar di sekelilingnya: musim semi singkat, musim berburu, malam panjang, dan pencairan pertama.
+Zireth menemukan satu: leyline beku menuju gunung di utara.
 
-Benih Struktur mencoba membekukan semuanya dalam satu keadaan.
+Masalahnya tertutup badai.
 
-Sylvara membuka jalan dengan panah pemurnian. Setiap anak panah menembus kristal Void dan memperlihatkan es murni di bawahnya.
+Kair menawarkan diri menjadi penghantar.
 
-Zireth menempatkan medan bintang pada jalur tersebut agar retakan tidak langsung menutup. Pasukan Iskali menahan makhluk-makhluk es yang terus dilahirkan badai.
+Kael menolak refleks.
 
-Kael bergerak menuju Zevaron.
+Lalu berhenti.
 
-Wadah Sekunder memakai semua data Pulse yang dicuri untuk membalas setiap langkah. Serangan Kael selalu bertemu pertahanan yang tepat.
+"Risikonya?"
 
-“Berhenti memakai pola yang mereka kenal!” teriak Zevaron dari dalam kristal.
+"Tiga puluh tujuh persen kerusakan struktur permanen."
 
-Kael memandangnya. “Kalau begitu bantu aku.”
+"Kau tetap mau?"
 
-Zevaron menutup mata dan mengubah arus elemennya dari dalam. Petir yang semula mengikuti perintah Wadah bergerak liar dan merusak sinkronisasi lapisan kristal.
+"Ya. Bukan karena perintah."
 
-Kael mengikuti ketidakteraturan tersebut.
+Kael mengangguk.
 
-Dia tidak memimpin. Dia menyesuaikan Pulse pada pilihan Zevaron, panah Sylvara, medan Zireth, serta nyanyian Shaman.
+Mereka menerobos badai bersama.
 
-Data Arsitek kehilangan kemampuan memprediksi mereka.
+Kair berjalan di depan, tubuh sintetisnya menyesuaikan frekuensi angin. Kael menjaga tiga energi tetap terpisah. Zireth membaca leyline di bawah salju. Sylvara menandai jalur yang tidak melewati warga.
 
-Mereka mencapai kristal pusat.
+Di puncak arus, mereka membuka saluran.
 
-Kael menempelkan kedua tangan pada permukaan dan mencari benang yang mengikat pola Zevaron ke Roh Es. Jalurnya sangat halus; memotong terlalu cepat akan merobek kesadaran keduanya.
+Energi mesin mengalir ke gunung sebagai panas dan tekanan yang tersebar, bukan ledakan.
 
-“Bertahan,” katanya.
+Kair menjerit saat tiga kristal dadanya retak.
 
-Zevaron menahan rasa sakit saat Kael mulai memisahkan energinya. Sylvara menembakkan panah ke simpul yang ditandai, sedangkan Zireth menjaga celah tetap terbuka.
+Kael ingin menghentikan.
 
-Benang pertama putus.
+Kair berkata, "Lanjutkan. Ini pilihanku."
 
-Kristal di sekitar Zevaron pecah. Dia jatuh ke lantai dan segera bangkit meski tubuhnya lemah.
+Kael melanjutkan.
 
-“Aku belum selesai.”
+Badai mulai runtuh.
 
-Kael membantunya berdiri.
+Untuk pertama kalinya langit Rhythor terlihat.
 
-Di depan mereka, Roh Es Agung membuka mata. Cahaya birunya masih terkurung di balik lapisan Void.
+Penduduk bangun satu per satu.
 
-Wadah telah kehilangan cetakan manusianya.
+Kair jatuh di salju.
 
-Namun Benih Struktur merespons dengan mengambil kendali langsung atas tubuh roh tersebut.
+Masih hidup.
+
+Nama pilihannya sendiri menjadi hal pertama yang dia katakan ketika sadar.

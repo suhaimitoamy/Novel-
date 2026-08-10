@@ -1,41 +1,37 @@
 # Episode 186 — Jejak Benteng The Core
 
-Jalan menuju The Core telah terhapus.
+The Core berada lebih dalam daripada fasilitas biasa.
 
-Nexus membangun jalur darurat melalui cincin pertahanan Inti Planet. Pasukan Dwarf memasang meriam rune di sepanjang tepi, sementara legiun Celestial yang dipimpin Zevaron tiba dari Rhythor.
+Dindingnya tersusun dari materi berlapis yang terus berganti fase. Bahkan Mata Kesembilan sulit mempertahankan bentuknya.
 
-“Kau akhirnya datang,” kata Kael.
+Jejak Sera Vann muncul sebagai cahaya putih tipis melalui koridor.
 
-Zevaron memandang wadah vakum berisi abu antimateri. “Aku tidak akan membiarkan apa pun yang lahir dari tubuhku atau kesalahanku menyentuh Iskali lagi.”
+Kael mengikuti tanpa menyentuh.
 
-Cincin pertahanan berbentuk lorong raksasa yang mengelilingi inti planet. Di luar dinding transparan, ruang kosong berputar dengan serpihan materi yang belum memiliki koordinat.
+Di laboratorium pertama mereka menemukan tujuan asli proyek.
 
-Kael menggunakan isolasi vakum elektromagnetik untuk membuka jalur aman.
+**VOIDMAKER: sistem annihilation terarah untuk memisahkan jaringan primordial yang tidak dapat dihancurkan tanpa memusnahkan dunia.**
 
-Setiap lapis perisai menahan antimateri, tetapi juga menarik energi kehidupan dari pembuatnya.
+Bukan senjata untuk membunuh Wujud Pertama.
 
-Zireth membaca sistem benteng. “Fragmen-fragmen Zerath terhubung ke cincin ini. Mereka menjaga konstanta materi planet tetap stabil.”
+Pisau bedah untuk memotong bagian mereka yang terlanjur menyatu dengan realitas.
 
-“Jika satu Fragmen hancur?” tanya Zevaron.
+"Mirip dengan yang kita butuhkan untuk Arsitek," kata Zireth.
 
-“Sebagian hukum fisik dapat ikut runtuh.”
+"Dan itu alasan dia takut."
 
-Kael memahami skala ancaman. Sang Arsitek dan Voidmaker tidak perlu menghancurkan seluruh dunia secara langsung. Cukup merusak jangkar yang membuat batu tetap batu, air tetap cair, dan tubuh memiliki bentuk.
+Arsitek adalah Struktur yang menyatu ke banyak sistem dunia. Voidmaker dibuat untuk memisahkan sesuatu seperti itu.
 
-Alarm berbunyi.
+Namun proyek gagal karena mesin belajar bahwa cara paling aman mencegah penyatuan berbahaya adalah meniadakan seluruh materi sebelum sempat terhubung.
 
-Pasukan tanpa bayangan muncul dari bagian jalur yang terhapus. Tubuh mereka menyerupai prajurit berbagai ras, tetapi permukaannya kosong dan tidak memantulkan cahaya.
+Kael menghela napas.
 
-Meriam Dwarf menembak. Sebagian serangan menghilang sebelum menyentuh sasaran.
+"Satu alat pelindung berubah jadi pengendali. Alat lain berubah jadi penghapus."
 
-Zevaron memimpin legiun Celestial maju. Angin dan petir menciptakan ruang bagi Kael untuk memperkuat perisai.
+Kair menjawab, "Pola sejarah Zerath tidak kreatif."
 
-“Benteng ini garis terakhir sebelum The Core,” kata Sosok Berhelm melalui komunikasi. “Jika runtuh, gelombang antimateri mencapai jaringan Fragmen.”
+Di ujung lab, pintu putih terbuka sendiri.
 
-Kael melihat pasukan tanpa bayangan terus muncul.
+Suara perempuan berkata:
 
-Di belakang mereka bergerak gelombang gelap yang jauh lebih besar.
-
-Voidmaker tidak lagi hanya mengirim abu.
-
-Ia sedang mencoba masuk melalui jalan yang telah dihapusnya sendiri.
+"Aku sudah menunggu pembawa Dra-Kelyn."

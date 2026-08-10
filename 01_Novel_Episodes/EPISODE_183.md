@@ -1,47 +1,49 @@
 # Episode 183 — Benturan Abu Antimateri
 
-Manifestasi Voidmaker menyerang koridor evakuasi.
+Mereka bertemu badai abu di stasiun bawah tanah.
 
-Tubuhnya memanjang menjadi gelombang hitam yang menghapus jalan di bawahnya. Kael membangun perisai Lorentz dan membelokkan partikel bermuatan ke arah kosong di luar kota.
+Tidak ada jalan memutar.
 
-Benturan membuat detak dingin di dadanya semakin kuat.
+Phase skin portabel berada di sisi lain ruangan.
 
-Sylvara menembakkan panah medan ke bangunan yang masih dihuni. Zireth mengarahkan warga melalui jalur sempit sambil mengoperasikan drone evakuasi.
+Kael membentuk gangguan frekuensi berubah-ubah. Kair menambahkan pola sintetis. Zireth memodulasi struktur logam sekitar agar medan tidak statis.
 
-“Kael, pusat geometrinya muncul saat ia berubah bentuk,” teriak Zireth.
+Mereka berjalan sebagai satu gelembung kecil di tengah hujan pemusnahan.
 
-Kael menunggu.
+Sylvara membawa perangkat pelindung.
 
-Manifestasi menyerang lagi, kali ini memakai sosok keluarga yang telah dihapus sebagai umpan. Wajah-wajah mereka muncul pada permukaan gelap dan memohon pertolongan.
+Setengah jalan, abu menyesuaikan.
 
-Kael tidak menebas.
+Pola penghapus mulai mengikuti perubahan fase mereka.
 
-Dia mengikuti jejak emosional melalui Gema Pengetahuan dan memisahkan gambaran korban dari tubuh antimateri. Sylvara menahan nama-nama mereka dalam cahaya agar tidak ikut terhapus.
+"Dia belajar," kata Kair.
 
-Pusat geometris terbuka.
+Kael mengubah strategi.
 
-Kael mengirim Pulse tiga warna dalam amplitudo sangat rendah. Merah memisahkan pola Sang Arsitek. Biru menjaga jejak korban tetap terhubung. Ungu mengurai koordinat yang mengikat manifestasi pada kota.
+Bukan lebih acak.
 
-Makhluk itu pecah menjadi abu.
+Dia berhenti memancarkan pola sendiri dan memakai noise alami dari empat tubuh: jantung, napas, getaran logam, aliran darah, impuls saraf.
 
-Namun abunya berpindah ke dinding, jalan, dan bangunan. Seluruh Valerium berubah menjadi tubuh baru bagi manifestasi.
+Tidak ada algoritme tunggal.
 
-Pintu-pintu menjadi rahang. Jendela berubah menjadi mata kosong. Jalan berusaha menelan warga yang belum keluar.
+Medan menjadi hidup.
 
-Kael dapat menghapus seluruh blok dengan entropi penuh, tetapi ratusan orang masih berada di dalamnya.
+Abu kesulitan mengunci.
 
-Dia memilih sasaran terkecil.
+Mereka mencapai sisi lain.
 
-Sylvara menandai simpul medan satu demi satu. Zireth menghitung jalur evakuasi dan waktu runtuh. Kael memutus koneksi antara simpul tanpa menyentuh struktur yang menopang warga.
+Sylvara mengaktifkan phase skin.
 
-Setiap pemutusan mengirim rasa dingin ke jantungnya.
+Lapisan tipis seperti riak air menyelimuti tubuh mereka.
 
-Manifestasi kehilangan wilayah sedikit demi sedikit.
+Abu memantul menjauh.
 
-Ketika pusat terakhir terlihat di bawah alun-alun, Kael berdiri di hadapannya dengan napas berat.
+Untuk sekarang.
 
-Di balik pola Sang Arsitek, suara Voidmaker yang asli mulai terbentuk.
+Kael melihat perangkat.
 
-Bukan kata.
+"Jangan salin ritmenya ke jaringan."
 
-Sebuah rasa lapar yang mengenali Kael sebagai suar utama.
+Kair mengangguk.
+
+Mereka bahkan mulai belajar menyembunyikan solusi dari musuh sebelum solusi itu selesai.

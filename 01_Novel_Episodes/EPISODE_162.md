@@ -1,49 +1,45 @@
 # Episode 162 — Gema Es dan Mimpi
 
-Malam tidak datang di Rhythor.
+K-4 tidak menyerang segera.
 
-Matahari pucat tetap menggantung di balik badai, membuat waktu kehilangan arti. Mereka berjalan di antara pilar es yang memantulkan kemungkinan berbeda pada setiap permukaan.
+Ia berbicara dengan suara Kael.
 
-Pada satu pantulan, Kael melihat Rhythor sebagai negeri hijau. Pada pantulan lain, seluruh benua terkubur salju abadi.
+Bukan sempurna. Terlalu rata.
 
-“Jangan percaya cermin es,” kata Shaman Agung. “Mereka memperlihatkan ketakutan tentang musim yang hilang.”
+"Pola asli menunjukkan variasi emosional tinggi. Tujuan: kalibrasi."
 
-Rombongan berhenti di depan kuil kecil yang tertanam dalam gletser. Rune tua pada pintunya masih berdenyut.
+"Aku bukan alatmu."
 
-Di dalam, Kael menemukan rekaman para leluhur Iskali.
+"Pernyataan tercatat."
 
-Mereka pernah menghadapi musim yang kacau setelah Perang Primordial. Panen gagal, sungai membeku, dan ribuan orang mati. Pada saat itulah suara Sang Arsitek datang menawarkan keteraturan.
+Kael merinding mendengar ungkapan Nexus dari mulut salinan.
 
-*Tidak ada lagi musim yang hilang. Tidak ada perubahan. Tidak ada kehilangan.*
+Badai membuat kota seolah bermimpi. Rumah berubah posisi. Jalan memanjang lalu memendek. Penduduk Iskali yang tersisa tidur di balik es tipis, terjebak dalam mimpi bersama.
 
-Sebagian Shaman menerima tawaran itu. Mereka menanam pola geometri ke dalam Jantung Es agar iklim Rhythor dapat dikendalikan.
+Sylvara menyentuh salah satu lapisan. "Mereka hidup."
 
-“Jadi pintunya sudah dibuka sejak lama,” gumam Sylvara.
+Zireth membaca tanah. "Badai menahan metabolisme. Bukan membunuh."
 
-Shaman Agung menutup mata. “Kami menyebutnya Mukjizat Musim Tetap. Generasi setelahnya menghapus harga yang dibayar.”
+Kael membuka Mata Kesembilan sepersekian detik.
 
-Rekaman berubah.
+Setiap penduduk terhubung pada K-4 melalui benang biru.
 
-Roh-roh penjaga es diikat ke jaringan cuaca. Setiap perubahan musim mengambil sebagian kehendak mereka. Arsitek perlahan membangun fondasi Wadah Sekunder dari pengorbanan tersebut.
+Wadah sekunder sedang memakai mimpi mereka sebagai data untuk membangun model emosi yang tidak dimilikinya.
 
-Kael menyentuh dinding dan merasakan mimpi Roh Es Agung.
+"Dia belajar menjadi aku dari orang lain."
 
-Makhluk itu ingin kembali mengalir bersama musim, tetapi tubuhnya telah dibungkus kristal Void dan dipaksa menahan satu keadaan abadi.
+Aven menegang. "Protokol Echo tidak pernah diizinkan memakai populasi hidup."
 
-Suara lain menyusup ke penglihatan.
+"Berarti seseorang memperluasnya."
 
-Zevaron berdiri di hadapan Roh tersebut, berusaha memutus rantai dengan kekuatan elemen. Di belakangnya, sosok geometris membentuk salinan tubuhnya dari es dan Void.
+K-4 menoleh.
 
-“Wadah itu sedang memakai pola Zevaron,” kata Kael.
+"Emosi adalah noise yang harus dimodelkan sebelum dihapus."
 
-Shaman Agung menggenggam tongkatnya.
+Kalimat Arsitek.
 
-“Kalau proses selesai, ia akan memiliki kekuatan pangeran kami dan jiwa para penjaga.”
+Kael mengerti siapa yang memegang sistem ini.
 
-Kuil mulai retak. Penjaga Iskali yang telah dikorupsi bergerak dari luar.
+Namun salinan belum sepenuhnya menjadi Arsitek. Di dalam pola badai ada jeda kecil—ruang kosong yang terus mencoba meniru kehendak Kael tetapi tidak memahami cara membuat pilihan.
 
-Kael menghunus Zerath's Fang.
-
-Mimpi telah menunjukkan kebenaran.
-
-Sekarang mereka harus melewati pertahanan bangsa yang sedang mereka coba selamatkan.
+Kael tidak akan menghancurkan wadah sebelum tahu apakah ruang kosong itu bisa menjadi sesuatu miliknya sendiri.

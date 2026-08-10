@@ -1,45 +1,45 @@
 # Episode 152 — Hutan Rawa Terkutuk
 
-Simulasi Nexus membawa mereka ke rawa yang tampak nyata.
+Sebelum meninggalkan rawa, Free Node membawa mereka melalui jalur yang sengaja tidak dipetakan.
 
-Air hitam mencapai betis. Pohon-pohon besar tumbuh miring, sementara lumut berpendar menutupi akar seperti urat hijau. Setiap langkah terasa lebih berat daripada seharusnya.
+Hutan itu hidup terlalu banyak.
 
-“Konstanta massa dan gesek berubah,” kata Zireth. Lengan bintangnya membaca lingkungan. “Ruangan ini memodifikasi hukum fisik untuk melihat cara kita beradaptasi.”
+Akar bergerak di bawah air. Jamur memancarkan mimpi. Serangga meniru suara manusia agar pengelana berjalan ke lumpur dalam.
 
-Kael menggerakkan tangan. Api yang muncul langsung tertarik ke bawah dan tenggelam ke air.
+Kael hampir mengikuti suara ibunya sekali.
 
-Di antara pepohonan, makhluk rawa bergerak. Tubuhnya terbuat dari lumpur, akar, dan lapisan geometri putih yang tidak alami.
+Dia berhenti bukan karena tahu itu palsu, tetapi karena suara tersebut memanggilnya dengan "Dra-Kelyn".
 
-“Korupsi Struktur,” ujar Kael.
+Ibunya tidak pernah tahu istilah itu.
 
-Makhluk-makhluk itu menyerang.
+Mereka menemukan sumber kutukan di sebuah pohon raksasa yang ditumbuhi kristal ungu Nexus lama.
 
-Kael tidak dapat mengandalkan kecepatan atau ledakan biasa. Dia memakai Pulse kecil untuk mengubah massa tanah di bawah langkah mereka, menciptakan pijakan sesaat bagi Sylvara dan Zireth.
+Mara menjelaskan, "Free Node pertama menggunakan rawa sebagai tempat membuang perangkat yang terinfeksi Struktur. Ide buruk."
 
-Panah Sylvara menandai akar yang menjadi pusat kendali. Zireth menghantamnya dengan medan dari lengan bintang.
+"Kalian punya tradisi keputusan buruk juga. Menenangkan."
 
-Satu makhluk runtuh.
+Kael tidak menghancurkan kristal. Zireth membaca akar; Sylvara menemukan jalur hidup pohon; Kael memisahkan sinyal Arsitek dari resonansi biologis.
 
-Namun data di langit simulasi langsung berubah. Sistem menyesuaikan diri dengan taktik tersebut, dan makhluk berikutnya muncul tanpa pusat kendali yang sama.
+Kristal mati tanpa membunuh pohon.
 
-“Nexus menyalin pola kita setiap kali bergerak,” kata Sylvara.
+Rawa berubah sedikit lebih sunyi.
 
-Kael melihat menara sensor tersembunyi di balik kabut. “Ini bukan latihan untuk membuatku lebih kuat. Mereka sedang membangun cara mengalahkanku.”
+Mara mencatat prosesnya.
 
-Suara Sosok Berhelm terdengar dari seluruh rawa.
+Kael langsung menatapnya.
 
-“Setiap aset kritis harus memiliki prosedur penahanan.”
+"Jangan buat model dariku."
 
-Kael menahan amarah.
+"Catatan bukan model."
 
-Di tepi rawa, beberapa sosok kecil berlumut mengintip dari antara akar. Mereka bukan bagian dari simulasi. Denyutnya terlalu tidak teratur dan hidup.
+"Bedanya tipis."
 
-“Suku lokal,” kata Zireth. “Bagaimana mereka masuk ke fasilitas?”
+Mara menghapus sebagian data otomatis dan hanya menyimpan hasil umum.
 
-Salah satu makhluk mengangkat tangan kurus dan menunjuk tanah.
+"Kalau kami menjadi seperti Command, ingatkan."
 
-Akar hitam dari simulasi telah menembus dunia nyata di bawah markas.
+Kael mengangguk.
 
-Rawa di luar tidak sekadar dijadikan model.
+Organisasi yang sehat, pikirnya, mungkin bukan organisasi yang tidak pernah salah.
 
-Ia sedang dikorupsi oleh eksperimen Nexus sendiri.
+Mungkin yang menyediakan cara untuk dikoreksi.

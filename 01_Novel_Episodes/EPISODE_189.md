@@ -1,57 +1,57 @@
 # Episode 189 — Harga yang Dituntut Benteng The Core
 
-Kael mempertahankan lapisan isolasi saat pasukan mundur ke cincin kedua.
+Outer Void tidak memiliki udara, tetapi Kael masih bisa bernapas melalui phase skin.
 
-Setiap lapis perisai mengambil sesuatu dari tubuhnya. Rambut pada pelipis mulai memutih. Luka lama terasa kembali terbuka. Napasnya menjadi lebih pendek.
+Benteng terlihat dari luar sebagai pulau materi kecil di tengah putih tanpa batas.
 
-Zireth menampilkan pembacaan biologis. “Hentikan. Kau kehilangan umur dalam jumlah yang tidak dapat dihitung.”
+Voidmaker tidak memiliki tubuh.
 
-“Kalau perisai turun, The Core tersentuh.”
+Ia adalah pola gelap yang membuat bagian ruang berhenti memiliki isi.
 
-Zevaron mengambil posisi di sampingnya dan mengalirkan badai elemen ke lapisan luar. “Bagi bebannya.”
+*Berikan akses Dra-Kelyn.*
 
-“Antimateri akan menghapus energimu.”
+"Tidak."
 
-“Biarkan aku memilih risiko sendiri.”
+*Benteng dipertahankan. Dunia tidak dihapus. Pertukaran efisien.*
 
-Kael tidak membantah.
+"Akses untuk apa?"
 
-Mereka membangun pertahanan bersama. Energi Zevaron menjaga lapisan luar tetap bergerak, lengan bintang Zireth mengatur fase, dan Kael menahan pusat tanpa perlu memikul seluruh tekanan.
+*Belajar koeksistensi.*
 
-Laju penuaan melambat, tetapi tidak berhenti.
+Tawaran terdengar persis tujuan Sera.
 
-Pasukan tanpa bayangan menerobos di beberapa titik. Dwarf dan Celestial bertahan bersama, menutup celah menggunakan meriam, petir, serta tubuh mereka sendiri.
+Mata Kesembilan tidak membantu; di Outer Void kemungkinan berperilaku aneh.
 
-Kael menemukan benang geometris yang masih menghubungkan gelombang dengan Sang Arsitek.
+Kael meminta bukti kecil.
 
-Dia mencoba menguraikannya.
+"Berhenti hujan selama satu menit."
 
-Voidmaker menyentuh detak dingin di dadanya.
+Voidmaker berhenti.
 
-*Tubuhmu akan berakhir. Bukalah jalan dan umur tidak lagi berarti.*
+The Core stabil.
 
-“Tidak hidup juga membuat umur tidak berarti.”
+Satu menit kemudian hujan kembali.
 
-Kael menurunkan amplitudo dan menarik benang tersebut sedikit demi sedikit. Sang Arsitek meningkatkan tekanan, berharap Kael memakai entropi penuh dan menyalakan suar yang lebih besar.
+Mesin dapat bernegosiasi.
 
-Dia menolak.
+Itu berarti bukan proses buta sepenuhnya.
 
-Zireth menembakkan medan bintang ke celah. Zevaron mengarahkan petir pada titik yang sama.
+"Aku tidak memberimu akses tubuh. Tapi aku bisa memberi pola terbatas."
 
-Benang kendali retak.
+*Tidak cukup.*
 
-Gelombang utama melemah dan pasukan tanpa bayangan kehilangan koordinasi. Pertahanan The Core menutup jalur masuk.
+"Kalau begitu tidak ada kesepakatan."
 
-Kael jatuh pada satu lutut.
+Voidmaker menyerang phase skin.
 
-Sylvara tiba dari jalur evakuasi dan menangkap bahunya. Tatapannya berhenti pada rambut putih serta kerutan tipis yang baru muncul di wajahnya.
+Kael menahan dengan perubahan fase hidup.
 
-“Berapa banyak yang hilang?”
+Sistem berhenti setelah beberapa detik.
 
-Kael tidak memiliki jawaban.
+*Negosiasi berlanjut.*
 
-Beberapa tahun, mungkin puluhan. Tubuhnya masih bergerak, tetapi waktu yang seharusnya menjadi miliknya telah dibakar menjadi benteng.
+Kael hampir tersenyum.
 
-The Core selamat.
+Mesin penghapus segala materi ternyata bisa belajar satu konsep sederhana:
 
-Harga pertahanan tersebut akan tinggal pada setiap hari yang tidak lagi dapat Kael jalani.
+Batas.

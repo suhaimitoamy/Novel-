@@ -1,59 +1,41 @@
 # Episode 180 — Hujan yang Menghapus Batu
 
-Mereka baru keluar dari ruang observasi ketika abu perak mulai turun dari langit.
+Hujan putih turun di luar kompleks.
 
-Butirannya tampak ringan seperti salju. Saat menyentuh menara The Core, batu hitam menghilang sedikit demi sedikit tanpa pecah atau meninggalkan debu.
+Setiap tetes menghapus sedikit permukaan yang disentuh.
 
-“Residu antimateri,” kata Zireth. “Bayangan itu pergi, tetapi sebagian lapisan atmosfer sudah terkontaminasi.”
+Batu menjadi berlubang tanpa pecahan. Salju menghilang sebelum mencair. Satu pohon kehilangan separuh batang tetapi tetap berdiri karena bagian lain belum memahami bahwa penyangganya hilang.
 
-Alarm Nexus berbunyi di seluruh fasilitas.
+Kael, Kair, Sylvara, dan Zireth berlindung di bawah medan tiga mesin.
 
-Sylvara melihat abu menembus perisai biasa. “Bagaimana menghentikannya?”
+Pelindung tidak menahan hujan.
 
-Kael merasakan setiap butir memiliki frekuensi yang sama dengan dingin di dadanya. Dia dapat menarik hujan tersebut ke tubuh, tetapi jumlahnya terlalu besar. Menyerap semuanya mungkin menghapus dirinya dari dalam.
+Ia terus mengganti lapisan materi yang hilang menggunakan cadangan lokal.
 
-Sosok Berhelm memerintahkan evakuasi. “The Core dapat ditinggalkan. Jangan mempertaruhkan aset kritis.”
+Tidak berkelanjutan.
 
-Kael menatap daratan di bawah. Abu tidak hanya jatuh pada fasilitas. Angin mulai membawanya menuju kota dan hutan di sekitarnya.
+Konfirmasi dari Free Node datang: The Core berada beberapa hari ke timur dan memiliki fasilitas anti-annihilation.
 
-“Kalau kita pergi, hujan ini menyebar.”
+Kael memandang hujan.
 
-Dia tidak menggunakan Pulse besar.
+Mereka tidak punya beberapa hari.
 
-Kael membentuk jaringan resonansi rendah melalui menara sensor Nexus. Zireth menghubungkan lengan bintang ke sistem dan mengubah seluruh The Core menjadi penangkap spektrum.
+Zireth menemukan jalur bawah tanah lama menuju sistem transportasi The Core.
 
-Sylvara menembakkan panah penanda ke empat arah angin, menciptakan batas wilayah yang harus dilindungi.
+"Kalau masih ada."
 
-Abu perak mulai tertarik ke menara.
+"Kalau tidak?"
 
-Setiap butir yang masuk tidak diserap Kael. Dia menjaga frekuensinya tetap terkunci dalam medan yang dibangun bersama sistem Nexus.
+"Kita mati dengan efisien."
 
-Dinding The Core terus terkikis. Menara sensor satu per satu menghilang setelah menahan beban antimateri.
+Mereka bergerak di bawah tanah saat hujan terus menghapus permukaan Zerath.
 
-“Fasilitas akan runtuh,” kata Sosok Berhelm.
+Di belakang, tiga mesin mempertahankan wilayah dengan daya terbatas.
 
-“Biarkan bangunannya membayar sebelum rakyat di bawah.”
+Kael tidak tahu berapa lama.
 
-Zireth membuka jalur pembuangan menuju ruang observasi kosong. Kael menggeser fase medan dan mendorong seluruh abu terkumpul ke sana.
+Di terowongan terakhir dia menoleh ke satu lubang yang terbuka ke langit.
 
-Proses tersebut menarik residu dalam dadanya ikut bergerak.
+Hujan putih membuat dunia tampak indah.
 
-Untuk sesaat, Kael hampir membiarkannya keluar bersama hujan. Namun simpul itu terikat terlalu dalam pada Ragnarok Pulse. Memaksanya akan merobek Fragmen dan menyalakan suar baru.
-
-Dia melepaskan kesempatan tersebut.
-
-Abu terakhir masuk ke ruang observasi. Zireth menutup jalur, lalu ruang itu terputus dari Zerath.
-
-Hujan berhenti.
-
-Separuh The Core telah terhapus. Langit kembali memperlihatkan bintang, meski beberapa wilayah tetap berlubang gelap.
-
-Kael berdiri di antara sisa menara dengan detak kedua yang masih dingin.
-
-Mereka menyelamatkan daratan, tetapi Nexus kehilangan pusat pengamatannya.
-
-Di balik puing, satu transmisi baru muncul dari Sistem Pahlawan.
-
-Pahlawan-pahlawan terpilih telah menerima perintah bersama:
-
-**Buru Kael Drayven sebelum dia menghancurkan dunia.**
+Itu mungkin pemandangan paling menakutkan yang pernah dia lihat.

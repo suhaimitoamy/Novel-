@@ -1,51 +1,47 @@
 # Episode 155 — Simulasi Nexus
 
-Nyanyian Suku Lumut mengubah ritme rawa menjadi sesuatu yang tidak pernah direkam Nexus.
+Sebelum berangkat, Mara meminta satu hal.
 
-Kael berhenti memimpin setiap gelombang. Dia mengikuti perubahan nada dari para penyanyi, membiarkan Sylvara dan Zireth menentukan kapan serangan bergerak.
+"Masuk simulasi."
 
-Akar hitam kehilangan kemampuan memprediksi mereka.
+Kael langsung menolak.
 
-“Pola kolektif tidak sesuai data,” kata Sosok Berhelm sambil menebas sulur yang mencoba mencapai markas. “Simulasi penahanan gagal.”
+"Aku sudah terlalu banyak dijadikan subjek."
 
-“Bagus,” jawab Kael. “Berarti aku bukan satu-satunya variabel.”
+"Bukan untuk mengukurmu. Untuk menunjukkan sesuatu yang Command temukan."
 
-Mereka mencapai pusat korupsi—sebuah simpul hitam yang terhubung ke jaringan simulasi Nexus. Di dalamnya berputar salinan gerakan Kael, respons Sylvara, dan data lengan bintang Zireth.
+Dia setuju dengan syarat data sesi tidak disimpan.
 
-Akar rawa dipakai sebagai tubuh hidup bagi mesin pembelajaran musuh.
+Simulasi menampilkan Rhythor.
 
-Kael merasakan keinginan untuk menghancurkan seluruh simpul. Namun ribuan ingatan suku terperangkap di dalamnya.
+Kael, Sylvara, dan Zireth berdiri di tengah badai. Wadah sekunder muncul—sosok tanpa wajah menggunakan api, es, dan Void persis seperti Kael.
 
-Dia menahan Pulse dan memilih jalur lebih sulit.
+Setiap kali Kael memakai teknik, salinan menirunya pada percobaan berikutnya.
 
-Sylvara memakai nyanyian suku untuk memanggil nama-nama yang hilang. Zireth memutus koneksi data satu per satu. Kael menjaga struktur tetap utuh sambil mengurai pola Sang Arsitek dari akar asli.
+Dalam tiga puluh dua simulasi, Kael kalah dua puluh sembilan kali.
 
-Simpul melawan.
+"Karena ia belajar lebih cepat?"
 
-Simulasi menciptakan bayangan Kael yang memakai semua tekniknya dengan sempurna. Setiap serangan datang dari keputusan yang pernah dia ambil.
+Mara menggeleng.
 
-Kael tidak membalas dengan teknik baru.
+"Karena model selalu menganggap tujuanmu adalah menang."
 
-Dia menyerahkan satu sisi kepada Sylvara, satu kepada Zireth, dan mengikuti suara pemimpin suku untuk bagian terakhir.
+Kael memasuki simulasi terakhir.
 
-Bayangan tersebut gagal menyesuaikan diri terhadap pilihan yang tidak berasal dari satu orang.
+Kali ini dia tidak menyerang wadah.
 
-Pusat kendali retak.
+Dia memecahkan struktur badai yang memberi energi pada medan.
 
-Korupsi terlepas dari akar hidup tanpa menghancurkan ingatan yang dikandungnya. Anggota suku mulai mengingat nama dan keluarga mereka.
+Salinan menunggu pertarungan yang tidak terjadi.
 
-Di dalam data yang tersisa, Zireth menemukan pesan terenkripsi dari utara.
+Simulasi gagal menghitung hasil.
 
-“Transmisi Sang Arsitek.”
+Mara tersenyum.
 
-Sosok Berhelm mendekat. “Putar.”
+"Itulah alasan kami tidak ingin memberi Command datamu."
 
-Suara geometris memenuhi rawa:
+Kael keluar.
 
-*Wadah Sekunder telah ditanam di Rhythor. Aktivasi menunggu konvergensi berikutnya.*
+Dia tidak merasa lebih yakin.
 
-Kael memandang peta yang muncul.
-
-Rhythor—wilayah Iskali dan rumah Zevaron.
-
-Sang Arsitek sedang membangun pengganti apabila Kael tidak dapat dipakai.
+Namun setidaknya tahu satu hal: di Rhythor, musuh yang mengenal semua tekniknya mungkin masih tidak mengenal alasan dia memilih teknik tersebut.

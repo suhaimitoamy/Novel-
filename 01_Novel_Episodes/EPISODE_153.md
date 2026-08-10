@@ -1,51 +1,35 @@
 # Episode 153 — Latihan dan Informasi
 
-Kael menghentikan simulasi secara paksa.
+Free Node memberi mereka tiga hari sebelum perjalanan ke Rhythor.
 
-Dia tidak menghancurkan ruangan. Ragnarok Pulse diarahkan ke batas antara proyeksi dan akar nyata, memutus aliran yang membuat korupsi Nexus merembes ke rawa.
+Kael memakai waktunya untuk latihan yang membosankan.
 
-Dinding buatan berkedip lalu padam.
+Itu baru.
 
-Sosok Berhelm menunggu di ruang kontrol.
+Tidak ada duel besar. Tidak ada teknik bernama. Dia berlatih menutup Mata Kesembilan selama satu jam, mempertahankan tiga jalur energi tanpa menarik daya tambahan, dan menghentikan resonansi sebelum tubuh lelah.
 
-“Ujian belum selesai.”
+Zireth menguji lengan barunya dengan membaca struktur benda tanpa membongkarnya.
 
-“Sudah.” Kael menunjuk data yang masih bergerak pada layar. “Setiap latihan menyalin pola Pulse-ku. Sementara fasilitas kalian meracuni rawa di luar.”
+Sylvara berlatih menggunakan panah sebagai sensor kehidupan, bukan senjata.
 
-“Itu efek samping yang dapat dikendalikan.”
+Mara mengajarkan satu teknik Nexus lama: *blind checksum*—cara memastikan pesan tidak dimodifikasi tanpa membuka isi seluruh pesan pada jaringan.
 
-Sylvara menatapnya tajam. “Makhluk hidup di sana bukan efek samping.”
+Konsep itu memberi Kael gagasan untuk lengan kirinya.
 
-Zireth membuka log tersembunyi dari terminal simulasi. Di dalamnya terdapat ribuan rekaman gerakan Kael, respons emosional, dan strategi penahanan.
+Jika Arsitek mencatat teknik melalui simpul kedelapan, Kael bisa mengirim pola verifikasi palsu: cukup untuk memberi tahu jaringan bahwa aktivitas terjadi, tanpa membocorkan detail.
 
-“Bukan hanya Nexus yang mengakses data ini,” katanya. “Ada jalur transmisi asing menuju utara.”
+Percobaan pertama membuat rune di lengannya mati rasa selama dua jam.
 
-Simbol geometris Sang Arsitek terlihat pada beberapa paket yang telah dicuri.
+Percobaan kedua berhasil.
 
-Kael memandang Sosok Berhelm. “Fasilitas kalian telah disusupi.”
+"Sekarang Arsitek tahu kau melakukan sesuatu, tapi tidak tahu apa," kata Mara.
 
-Untuk pertama kalinya, penjaga Nexus itu tidak langsung menjawab.
+"Bukankah itu membuat dia curiga?"
 
-“Mustahil. Jaringan ini terpisah dari realitas lokal.”
+"Kecurigaan lebih murah daripada data."
 
-“Tidak cukup terpisah.” Zireth menampilkan log. “Setiap kali Kael berlatih, salinan polanya dikirim kepada seseorang yang sedang membangun lawan khusus untuknya.”
+Pada malam terakhir, pesan dari Rhythor datang.
 
-Alarm markas berbunyi.
+**BADAI TIDAK BERPUTAR MENGELILINGI GUNUNG. BADAI BERPUTAR MENGELILINGI SESEORANG.**
 
-Lantai bergetar. Akar hitam menerobos dinding dan memadamkan beberapa terminal.
-
-Dari lorong luar terdengar teriakan anggota Suku Lumut Sunyi.
-
-Kael menghunus Zerath's Fang.
-
-“Kalian mau terus mengukurku, atau membantu memperbaiki kerusakan yang dibuat fasilitas ini?”
-
-Sosok Berhelm mengaktifkan tombaknya.
-
-“Prioritas berubah. Korupsi rawa harus ditahan.”
-
-Mereka berlari keluar bersama.
-
-Latihan Nexus berakhir tanpa hasil yang diinginkan pihak mana pun.
-
-Namun informasi yang bocor jauh lebih berbahaya daripada kegagalan simulasi: Sang Arsitek kini memiliki salinan pola Ragnarok Pulse Kael.
+Kael tidak tidur setelah itu.

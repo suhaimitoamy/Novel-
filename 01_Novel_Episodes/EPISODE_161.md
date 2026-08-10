@@ -1,49 +1,55 @@
 # Episode 161 — Pendaratan di Rhythor
 
-Kapal Nexus menembus aurora ungu di atas Rhythor.
+Mereka tidak memasuki Rhythor lewat darat.
 
-Badai es menghantam lambung sebelum mereka mencapai daratan. Pola geometris bergerak di dalam awan, mengubah arah angin dan gravitasi tanpa peringatan.
+Badai menutup semua jalur setelah dua jam perjalanan.
 
-Sosok Berhelm memaksa kapal mendarat di dataran es jauh dari ibu kota.
+Aven menawarkan Void Wyvern.
 
-Begitu pintu terbuka, dingin menggigit sampai tulang. Kael menempelkan tangan pada tanah dan mengirim Pulse rendah.
+Kael menatap mesin itu. "Setiap kali naik benda ini, sesuatu runtuh."
 
-Es murni Rhythor memiliki irama lembut dan dalam. Di bawahnya terdapat denyut Void yang terlalu teratur—akar Benih Struktur.
+"Korelasi bukan kausalitas."
 
-“Seluruh daratan sudah terhubung,” kata Zireth. “Bukan hanya istana.”
+"Kau belajar humor dari Zireth?"
 
-Rombongan Iskali muncul dari balik badai. Mereka dipimpin seorang Shaman tua yang mengenakan tanduk es dan jubah kulit putih.
+"Sayangnya."
 
-Prajurit-prajuritnya mengangkat senjata ketika melihat Kael.
+Mereka terbang rendah di bawah lapisan awan. Mara dan pasukan lain menunggu di perbatasan agar jumlah orang di pusat badai tidak terlalu besar.
 
-“Pembawa Fragmen datang tepat saat negeri kami sekarat,” ujar sang Shaman. “Entah sebagai penyelamat atau penyebab.”
+Rhythor muncul sebagai kota es yang setengah terkubur.
 
-“Kami mencari Zevaron,” kata Kael. “Dan Wadah Sekunder yang ditanam Sang Arsitek.”
+Di pusatnya berdiri menara tanpa puncak. Badai berputar mengelilingi menara, tetapi Mata Kesembilan Kael melihat pusat sebenarnya beberapa meter di atas tanah—sebuah sosok manusia melayang di udara.
 
-Nama itu membuat beberapa prajurit saling berpandangan.
+Tubuhnya kosong dari wajah.
 
-“Pangeran Zevaron memasuki Jantung Es tiga hari lalu,” jawab Shaman. “Dia belum kembali. Setelah itu, musim berhenti bergerak.”
+Tiga cahaya bergerak di dalamnya.
 
-Kael memandang cakrawala.
+Merah.
 
-Matahari menggantung pada posisi yang sama, tidak terbenam meski waktu terus berjalan. Salju turun ke atas pada beberapa wilayah, lalu membeku di udara.
+Biru.
 
-Arsitek tidak sekadar menanam tubuh pengganti.
+Ungu.
 
-Ia sedang mengunci Rhythor dalam satu keadaan sempurna yang tidak pernah berubah.
+K-4.
 
-Shaman mengarahkan tongkat ke pegunungan.
+Saat Void Wyvern mendekat, salinan membuka mata yang tidak memiliki pupil.
 
-“Jalan menuju Jantung Es melewati Pertahanan Iskali. Penjaga kami telah berubah dan menyerang siapa pun yang mencoba masuk.”
+Semua sistem Kael bereaksi bersamaan.
 
-Kael berdiri di depan rombongan.
+Badai berubah arah.
 
-“Kami tidak akan menghancurkan penjaga kalian. Kami akan memutus sesuatu yang mengendalikan mereka.”
+Wyvern kehilangan kendali.
 
-Shaman menatapnya lama.
+"Turun!" teriak Aven.
 
-“Ucapan mudah. Daratan ini akan menilai niatmu.”
+Mereka melompat sebelum mesin menabrak menara.
 
-Badai di depan membuka jalur sempit.
+Kael jatuh ke atap rumah dan menembus dua lapisan es.
 
-Mereka memasuki Rhythor Membeku, menuju tempat Zevaron dan Wadah Sekunder menunggu.
+Pendaratan keras kedua dalam waktu singkat.
+
+Dia bangkit sambil mengumpat.
+
+Di luar, suara dirinya sendiri berkata:
+
+"Pola asli terkonfirmasi."

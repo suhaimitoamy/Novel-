@@ -1,59 +1,43 @@
 # Episode 157 — Pesan Terintersep
 
-Ritual membuka saluran tersembunyi di bawah akar rawa.
+Di jalan utara, lengan Zireth menangkap getaran yang seharusnya tidak berada di batu.
 
-Zireth menyambungkan lengan bintangnya ke jalur tersebut. Data mengalir terlalu cepat, tetapi pola Logam Bintang mampu menahannya cukup lama untuk diterjemahkan.
+Kode digital sedang dikirim melalui leyline mineral.
 
-Sosok Berhelm berdiri di belakangnya. “Akses itu termasuk jaringan rahasia Nexus.”
+"Command," katanya.
 
-“Jaringan kalian sudah tidak rahasia,” jawab Zireth. “Arsitek menggunakannya lebih lama daripada yang kalian sadari.”
+Mereka memecahkan checksum tanpa membuka identitas pengirim.
 
-Peta Rhythor muncul di atas rawa.
+Pesan ditujukan ke unit Nexus di Rhythor.
 
-Beberapa titik energi berdenyut di sekitar istana Iskali, menara es, dan Gerbang Es. Semua garis bertemu pada satu lokasi di bawah ibu kota.
+**K-4 TERKONFIRMASI. PRIORITAS: AMANKAN WADAH SEKUNDER SEBELUM KONTAK DENGAN KAEL. JIKA KONTAK TERJADI, JANGAN IZINKAN RESONANSI SILANG.**
 
-Suara Sang Arsitek terdengar dari rekaman:
+Kael membaca ulang.
 
-*Wadah Sekunder menunjukkan kompatibilitas. Integrasi emosi belum sempurna. Gunakan trauma Zevaron sebagai pola penyeimbang.*
+"Command juga takut pada benda itu."
 
-Kael menahan napas.
+"Atau ingin memilikinya lebih dulu," kata Sylvara.
 
-“Wadah itu berhubungan dengan Zevaron.”
+Bagian kedua pesan lebih buruk.
 
-Sylvara mengingat pertemuan mereka di Arus Balik. “Dia sudah menuju Iskali.”
+**FREE NODE DIDUGA MEMANIPULASI ANOMALI. OTORISASI PENAHANAN DIPERLUAS.**
 
-Pesan berlanjut.
+Mara kini dianggap musuh.
 
-*Jika Variabel Kael menolak fungsi Kunci, Wadah Sekunder akan menggantikan pusat resonansi. Konflik kedua subjek diperlukan untuk aktivasi penuh.*
+Kael tidak suka kedua sisi menggunakan dirinya sebagai alasan konflik baru.
 
-Sang Arsitek ingin Kael dan Zevaron bertarung.
+Dia mengirim satu pesan balik melalui kanal buta:
 
-Bukan hanya untuk menguji mereka, tetapi untuk menyalakan sesuatu di Rhythor.
+**JANGAN BERPERANG ATAS NAMAKU. AKU AKAN KE RHYTHOR. SIAPA PUN YANG MENEMBAK FREE NODE ATAU COMMAND SEBELUMNYA MEMBANTU ARSITEK.**
 
-Zireth memutus transmisi sebelum jaringan asing menyadari posisi mereka.
+Zireth menatapnya.
 
-Terlambat.
+"Sangat diplomatis."
 
-Sebuah koordinat balasan muncul di layar, diikuti satu kalimat:
+"Aku menahan beberapa kata."
 
-*Data diterima. Subjek utama bergerak sesuai jalur.*
+Tidak ada balasan.
 
-Kael mengepalkan tangan.
+Namun satu jam kemudian dua sinyal tempur di peta berhenti bergerak mendekati satu sama lain.
 
-“Dia sengaja membiarkan kita menemukan pesan ini.”
-
-“Mungkin,” kata Sosok Berhelm. “Namun ancaman Wadah Sekunder tetap nyata.”
-
-Pemimpin Suku Lumut mendekat. “Ritual belum selesai. Kalau kalian pergi sekarang, akar rawa akan kembali terinfeksi.”
-
-Kael memandang peta Rhythor, lalu jaringan hidup di bawah kakinya.
-
-Setiap detik berarti bagi Zevaron. Namun meninggalkan rawa setengah pulih akan mengorbankan orang-orang yang baru mempercayainya.
-
-Sang Arsitek kembali menawarkan pilihan yang memaksa satu korban demi korban lain.
-
-Kael menutup peta.
-
-“Kita selesaikan pemurnian dahulu. Setelah itu baru ke Rhythor.”
-
-Untuk pertama kalinya, dia menolak bergerak mengikuti urgensi yang sengaja diciptakan musuh.
+Untuk sementara.

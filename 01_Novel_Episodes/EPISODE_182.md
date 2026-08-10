@@ -1,49 +1,45 @@
 # Episode 182 — Suara dari Abu Antimateri
 
-Manifestasi Voidmaker berdiri di tengah jalan yang terus menghilang.
+Abu menyimpan gema orang yang dihapusnya.
 
-Ia tidak berbicara dengan suara. Tekanan di udara berubah, dan pikiran Kael dipenuhi gambaran ruang kosong tempat kota seharusnya berada.
+Kael mengetahuinya ketika satu butir menyentuh dinding dekat kepala.
 
-Sylvara menjaga koridor evakuasi. Panah medannya membelokkan abu tanpa menyentuh partikel secara langsung. Zireth mencari pola pada tubuh makhluk menggunakan sensor lengan bintang.
+Suara perempuan muncul sesaat.
 
-“Tidak ada inti,” katanya. “Ia hanya simpul kepadatan antimateri yang meniru bentuk manusia.”
+"Jangan biarkan—"
 
-Kael menahan residu dingin dalam dadanya. Setiap denyut menarik manifestasi semakin dekat.
+Lalu hilang.
 
-Dia membuat perisai Lorentz berlapis dan mengubah arah partikel di sekitar makhluk. Tubuh gelap itu kehilangan keseimbangan, tetapi langsung menyusun ulang bentuknya.
+Bukan rekaman energi. Mata Kesembilan melihat sisa referensi yang belum sepenuhnya lenyap dari dunia.
 
-Di balik tekanan, Kael mendengar gema lain.
+Setiap butir abu membawa bayangan dari materi yang pernah dipasangkan untuk annihilation.
 
-Nama-nama.
+Jutaan potongan.
 
-Sangat lemah, seperti suara orang yang tenggelam.
+Kael menutup Mata Kesembilan cepat.
 
-Korban yang dihapus masih meninggalkan jejak di luar materi—hubungan emosional yang belum sepenuhnya lenyap.
+Terlalu banyak.
 
-“Sylvara, Gema Pengetahuan.”
+Namun satu suara sempat tertangkap lengkap:
 
-Dia mengangkat artefak tersebut. Cahaya lembut menyapu jalan dan memperlihatkan bayangan keluarga yang hilang: seorang ayah, ibu, dan dua anak yang sempat berlari menuju gerbang sebelum abu menyentuh mereka.
+"Voidmaker bukan nama pencipta. Itu nama mesin."
 
-Warga di sekitar mulai menangis tanpa memahami alasan.
+Mereka berhenti.
 
-“Korban annihilation ikut hilang dari ingatan orang terdekat,” kata Sylvara. “Tapi perasaan kehilangan tetap ada.”
+Kair membuka sensor. "Mesin?"
 
-Kael menggunakan suara-suara tersebut sebagai jangkar. Dia memisahkan manifestasi dari jejak korbannya, menjaga hubungan manusia tetap tercatat sementara tubuh antimateri dipaksa menjauh.
+Kael mengulang suara.
 
-Makhluk itu bereaksi liar.
+Jurnal The Core mungkin memberi konteks. Jika Voidmaker awalnya perangkat atau proses, ancaman ini bisa seperti Arsitek: sesuatu yang diciptakan untuk fungsi tertentu lalu melampaui batas.
 
-Jalan di sekeliling mereka terhapus lebih cepat. Sebuah bangunan runtuh tanpa puing, menyisakan warga yang terjebak pada lantai atas yang menggantung di udara.
+Zireth menatap abu.
 
-Zireth mengirim drone evakuasi. Sylvara mempertahankan medan. Kael menahan manifestasi tanpa melepaskan Pulse besar.
+"Apa fungsi mesin yang menghasilkan anti-materi terarah?"
 
-Di pusat tubuhnya, pola geometris kecil kembali terlihat.
+Sylvara berkata pelan, "Menghapus sesuatu yang tidak bisa dihancurkan biasa."
 
-Sang Arsitek menanamkan perintah pada abu agar bukan hanya membunuh, tetapi menghapus bukti bahwa korban pernah hidup.
+Kael teringat perang Wujud Pertama.
 
-Kael mengepalkan tangan.
+Mungkin peradaban lama membangun Voidmaker sebagai senjata terakhir terhadap entitas primordial.
 
-“Dia ingin dunia kehilangan alasan untuk melawan.”
-
-Manifestasi membuka bentuk seperti rahang.
-
-Pertarungan berikutnya akan menentukan apakah nama-nama yang telah dihapus masih dapat dikembalikan kepada mereka yang mengingat dengan hati.
+Dan seperti semua senjata terakhir, seseorang kemudian lupa menentukan apa yang terjadi setelah target pertama selesai.

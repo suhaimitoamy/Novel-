@@ -1,55 +1,55 @@
 # Episode 158 — Ujian Kepercayaan
 
-Agen penyusup mengubah taktik setelah pesan terintersep.
+Free Node tidak menguji kepercayaan mereka.
 
-Ia tidak lagi menyerang Kael. Akar hitam berbalik menuju anggota Suku Lumut dan memakai wajah orang-orang yang mereka cintai untuk memancing keraguan.
+Command yang melakukannya.
 
-“Kael membawa Void,” bisik salah satu wajah palsu. “Nexus membawa mesin. Kalian mengundang dua racun ke rumah sendiri.”
+Agen Berhelm menunggu di jembatan pegunungan dengan Void Wyvern di belakangnya.
 
-Sebagian anggota suku menghentikan nyanyian.
+"Kalian membawa data Free Node."
 
-Ritual pemurnian goyah.
+"Ya."
 
-Pemimpin suku mengangkat tongkat kayu. “Teruskan. Ketakutan bukan kebenaran.”
+"Command meminta salinan."
 
-Namun akar memunculkan rekaman Nexus yang menyebut Kael sebagai aset dan ancaman yang harus dapat dihentikan.
+Kael menggeleng.
 
-Kali ini tuduhannya tidak sepenuhnya palsu.
+"Tidak."
 
-Sylvara menatap Sosok Berhelm. “Katakan kepada mereka.”
+"Penolakan dapat dianggap kerja sama dengan pembelot."
 
-Penjaga Nexus itu diam beberapa detik.
+"Silakan dianggap."
 
-“Benar. Nexus memiliki protokol untuk menahan atau membunuh Kael jika dia kehilangan kendali.”
+Agen itu diam.
 
-Nyanyian semakin melemah.
+Lalu membuka helm sepenuhnya untuk pertama kali.
 
-Kael tidak mencoba membantah. “Mereka tidak mempercayaiku sepenuhnya. Kalian juga tidak harus.”
+Seorang laki-laki muda, lebih muda dari dugaan Kael, dengan bekas luka tipis melintasi pelipis. "Namaku Aven."
 
-Dia menurunkan Zerath's Fang dan membuka kedua tangan.
+"Akhirnya."
 
-“Tapi rawa ini harus selamat tanpa tunduk kepada Nexus atau kepadaku. Kalian yang menentukan irama ritual. Aku hanya akan mengikuti.”
+"Aku melakukan sesuatu yang akan membuat Command menuduhku juga."
 
-Pemimpin suku memandangnya lama.
+Aven menyerahkan inti data kecil.
 
-Kemudian dia mulai bernyanyi sendiri.
+"Ini daftar operasi Echo yang disembunyikan dari sebagian besar agen. Secondary Vessel K-4 dibuat bukan untuk menangkapmu. Dibuat sebagai cadangan jika tubuhmu gagal sebelum Arsitek dapat mempelajari fungsi Dra-Kelyn."
 
-Satu suara menyusul. Lalu suara lain.
+Kael merasa mual.
 
-Seluruh suku kembali bergabung, bukan karena mereka percaya tanpa syarat, melainkan karena Kael memberi mereka hak untuk menghentikannya jika dia melanggar janji.
+"Siapa yang memerintahkan?"
 
-Ritual menjadi lebih kuat.
+"Tanda otorisasi berasal dari Nexus lama. Bisa jadi Arsitek memakai kredensial pendiri."
 
-Agen penyusup menyerang pusat nyanyian. Sylvara dan Zireth menahannya, sementara Kael menyalurkan resonansi sesuai irama suku.
+Aven meminta satu hal sebagai imbalan.
 
-Sosok Berhelm berdiri pada sisi terakhir lingkaran.
+"Kalau di Rhythor kau menemukan bukti Command pusat sudah disusupi, jangan serang seluruh Nexus. Beri aku kesempatan memisahkan yang terlibat."
 
-Untuk sesaat dia ragu, lalu menancapkan tombaknya ke tanah dan memutus aliran data Nexus yang memberi makan korupsi.
+Kael berpikir.
 
-“Pelanggaran protokol dicatat,” kata zirahnya.
+Kepercayaan bukan hadiah penuh.
 
-“Biarkan,” jawabnya.
+"Satu kesempatan."
 
-Kepercayaan di rawa tidak lahir dari rahasia yang disembunyikan.
+Aven mengangguk.
 
-Ia lahir setelah semua pihak memperlihatkan pisau yang mereka simpan—dan memilih tidak menggunakannya.
+Mereka berpisah tanpa bersalaman.

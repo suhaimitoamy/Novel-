@@ -1,55 +1,59 @@
 # Episode 190 — Suara di Antara Atom
 
-Setelah gelombang mundur, cincin pertahanan menjadi sunyi.
+Kael mengirim bukan energi, melainkan jeda.
 
-Kael berdiri di depan dinding transparan yang menghadap ruang kosong. Detak kedua di dadanya bergerak lambat dan dingin.
+Pola Dra-Kelyn paling dasar: dua frekuensi berbeda tetap ada karena tidak dipaksa menempati fase sama.
 
-Voidmaker berbicara lagi.
+Voidmaker mencoba menerjemahkannya.
 
-Bukan melalui udara. Suaranya muncul di ruang kecil di antara atom-atom tubuh Kael.
+*Perbedaan tanpa kontaminasi.*
 
-*Jangkar materi menahan dunia dari bentuk aslinya. Lepaskan. Semua batas akan berakhir.*
+"Ya."
 
-Kael melihat gambaran kosmik: Fragmen-fragmen Zerath sebagai paku cahaya yang menahan materi, waktu, ingatan, dan jiwa tetap terpisah. Di luar jaring tersebut terdapat lautan kesunyian tanpa bentuk.
+*Materi berbeda dapat koeksis jika batas dinamis dipertahankan.*
 
-“Dunia tidak meminta dibebaskan darinya sendiri.”
+"Ya."
 
-*Materi adalah penundaan. Kehidupan adalah pola sementara.*
+Untuk sesaat Kael merasa mereka berhasil.
 
-“Karena sementara, ia berharga.”
+Kemudian mesin mengambil kesimpulan lain.
 
-Voidmaker menunjukkan miliaran dunia yang telah dimakan. Tidak ada rasa sakit di sana. Tidak ada perang, kehilangan, atau ketakutan.
+*Pembawa batas diperlukan permanen.*
 
-Tidak ada siapa pun yang tersisa untuk merasakannya.
+Kael menegang.
 
-Sang Arsitek ikut muncul sebagai pola tipis pada penglihatan.
+"Tidak."
 
-*Voidmaker menghapus. Aku menyusun. Pilih kesunyian atau keteraturan.*
+*Dra-Kelyn optimal sebagai wadah pusat. Seluruh materi dapat diselaraskan melalui tubuhmu.*
 
-Kael memahami jebakan lama dengan bentuk baru. Dua kekuatan kosmik menawarkan akhir berbeda, tetapi keduanya menghapus kehendak makhluk hidup.
+Masalah lama kembali.
 
-“Tidak keduanya.”
+Setiap sistem ingin menjadikan mediator pusat dunia.
 
-Dia menutup koneksi dengan menyeimbangkan tiga Pulse di sekitar residu antimateri. Suara itu tidak hilang sepenuhnya, tetapi terkurung kembali pada detak dingin.
+"Aku bukan infrastruktur."
 
-Zireth mendekat membawa data dari benteng.
+*Tubuhmu kompatibel.*
 
-“Gelombang berikutnya tidak mengarah ke The Core.”
+"Tidak relevan."
 
-Peta menunjukkan dua belas jalur menyebar menuju lokasi Fragmen.
+Voidmaker diam.
 
-“Voidmaker telah memahami fungsi jangkar,” kata Kael. “Ia akan memakan Fragmen satu per satu.”
+Sera Vann berbicara melalui koneksi lemah, "Kael, putus sambungan. Ia mulai membangun model wadah."
 
-Zevaron memandang titik-titik tersebut. “Kita tidak dapat melindungi dua belas tempat sekaligus.”
+Kael mundur.
 
-Sosok Berhelm mengirim perintah darurat kepada seluruh kekaisaran. Untuk pertama kalinya, Nexus membuka data ancaman tanpa menyembunyikan status Kael atau fungsi Fragmen.
+Sebelum keluar, Voidmaker mengirim satu pesan terakhir.
 
-Peringatan bergerak ke Aelarion, Karag Thürm, Rhythor, Nyrathis, Xyphus, dan wilayah lain.
+*Tawaran akan diperbarui. Wadah akan memahami ketika entropi meningkat.*
 
-Di seluruh Zerath, para penguasa harus memilih apakah akan bekerja sama atau tetap memperebutkan jangkar yang menjaga dunia mereka tetap nyata.
+Kael kembali ke The Core.
 
-Kael memandang rambut putih di tangannya yang rontok setelah pertahanan.
+Hujan antimateri berhenti.
 
-Waktu pribadinya semakin sedikit.
+Bukan karena mesin menyerah.
 
-Ancaman yang harus dihentikan justru menyebar ke seluruh dunia.
+Karena sekarang ia memiliki tujuan baru.
+
+Bukan menghapus Zerath.
+
+Menjadikan Kael pusat batas materi.

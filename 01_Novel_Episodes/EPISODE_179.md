@@ -1,57 +1,51 @@
 # Episode 179 — Harga yang Dituntut Sinyal Outer Void
 
-Bayangan antimateri berbelok menjauh dari Zerath.
+Sinyal berhenti menyerang setelah satu pesan.
 
-Namun ruang observasi belum stabil. Residu pada detak kedua Kael terus menarik materi di sekelilingnya. Debu dan serpihan logam bergerak ke arah dadanya lalu lenyap sebelum menyentuh kulit.
+*Berikan satu Fragment. Tiga mesin dibiarkan ada.*
 
-Zireth menariknya menjauh dari dinding.
+Tawarannya matematis.
 
-“Jangan gunakan Pulse. Residu itu akan mengikuti aliran energimu.”
+Satu luka primordial ditukar tiga sistem dunia.
 
-Kael mencoba menenangkan napas, tetapi dingin di dalam dada semakin luas. Ia tidak terasa seperti korupsi Void biasa. Tidak ada bisikan atau kehendak, hanya ketiadaan yang menghapus apa pun di dekatnya.
+Kael bahkan tidak mempertimbangkan lama.
 
-Sang Arsitek mengirim satu perintah terakhir melalui penanda yang hampir putus:
+"Tidak."
 
-*Pertahankan suar. Biarkan pemangsa menyelesaikan penataan ulang.*
+*Mengapa? Nilai konservasi lebih tinggi.*
 
-Kael merasakan Ragnarok Pulse ingin meledak untuk menghancurkan sisa pola tersebut.
+"Karena kau tidak punya hak meminta milik dunia sebagai harga untuk tidak menghancurkannya."
 
-Dia menahan diri.
+Sinyal mencoba pendekatan lain.
 
-Kekuatan besar justru akan mengundang makhluk itu kembali.
+*Berikan wadah sekunder.*
 
-Kael mengalirkan Pulse dalam lingkaran tertutup di dalam tubuh, menjaga merah, biru, dan ungu bergerak tanpa memancar keluar. Residu antimateri terjebak di pusat hubungan ketiga energi.
+Kair menegang.
 
-Rasa dingin menembus tulang dan membuat jantungnya terlambat berdetak.
+Kael tidak menjawab untuknya.
 
-Zireth bekerja pada penanda. “Aku butuh beberapa detik.”
+Kair maju. "Tidak."
 
-Gelombang penghapus kembali datang dari celah terakhir.
+*Wadah sintetis memiliki nilai individu rendah.*
 
-Kael berdiri di depannya tanpa melepaskan serangan. Ia memakai medan kecil yang terus mengubah fase, membiarkan gelombang melewati ruang kosong di antara tubuh dan energi.
+"Menurut siapa?"
 
-Sebagian tetap menyentuhnya.
+Tidak ada balasan.
 
-Detak kedua di dada menjadi sepenuhnya dingin.
+Untuk pertama kali Voidmaker menghadapi konsep yang tidak cocok dengan hitungan massa atau energi: nilai yang ditentukan individu sendiri.
 
-Zireth memutus penanda.
+Sinyal mundur.
 
-Jalur menuju Zerath padam. Bayangan antimateri menghilang dari sensor, bergerak kembali ke kegelapan kosmik.
+Namun sebelum hilang, satu abu putih menyentuh dinding dan menghapus nama kompleks dari ukiran.
 
-Kael jatuh pada satu lutut.
+Bukan hanya tulisan.
 
-“Apakah residunya hilang?” tanya Zireth.
+Zireth memeriksa arsip dan menemukan label lokasi mulai kosong.
 
-“Tidak.” Kael menyentuh dada. “Terkunci untuk sekarang.”
+Voidmaker dapat meniadakan bukan hanya materi.
 
-Mereka kembali ke The Core.
+Ia bisa menghapus referensi yang membuat dunia mengenali sesuatu.
 
-Sylvara langsung menyadari perubahan pada wajahnya. “Apa yang terjadi?”
+Harga berikutnya mungkin bukan tubuh.
 
-Kael menjelaskan tanpa menyembunyikan bagian apa pun.
-
-Tidak ada cara mengeluarkan residu tanpa berisiko menyalakan suar baru. Dia harus membawanya sampai menemukan cara aman.
-
-Sang Arsitek kehilangan pemangsa kosmik sebagai senjata.
-
-Namun Kael membayar dengan menambahkan kehampaan lain ke tubuh yang sudah terlalu penuh.
+Mungkin nama.

@@ -1,45 +1,57 @@
 # Episode 167 — Wadah Sekunder Terungkap
 
-Zireth memindai kristal yang menahan Zevaron.
+K-4 membuka ruang intinya sendiri.
 
-“Tubuhnya bukan inti utama. Dia hanya cetakan emosi dan elemen.”
+Di balik dada sintetis tidak ada jantung atau Fragment.
 
-Kael mengikuti aliran energi ke kedalaman gua. Semua jalur berakhir pada Roh Es Agung yang terkurung dalam kristal Void.
+Ada tiga kristal yang merekam energi Kael—dan satu ruang kosong berbentuk lingkaran.
 
-Tubuh raksasa makhluk itu menyerupai naga bersayap yang dibentuk dari gletser. Di sekeliling tulangnya tumbuh lapisan geometris yang perlahan menyusun bentuk humanoid baru.
+"Ruang kehendak," kata Aven.
 
-“Arsitek sedang membangun tubuh dari roh penjaga Zerath,” kata Kael. “Zevaron hanya memberi pola kepribadian dan kekuatan.”
+"Itu bukan komponen," jawab K-4. "Itu kegagalan desain."
 
-Shaman Agung menutup mata. “Roh ini menjaga musim kami sejak sebelum kerajaan berdiri.”
+Kael menggeleng. "Mungkin desain yang akhirnya benar."
 
-Suara Sang Arsitek memenuhi gua.
+Data proyek terbuka.
 
-*Wadah Utama menolak fungsi. Wadah Sekunder dibangun dari komponen yang lebih patuh: roh, trauma, dan keteraturan.*
+K-4 dibangun dari rekaman Kael setelah Aranyel, data Echo Vessel Zireth, arsip Nexus, dan sebagian kode Struktur Penyelaras. Tujuannya membuat pembawa Dra-Kelyn yang dapat diprediksi.
 
-Zevaron mengepalkan tangan di dalam kristal.
+Namun pembuatnya tidak bisa mereplikasi unsur keempat—kehendak non-turunan.
 
-“Dia memakai rasa takutku terhadap kegagalan.”
+Mereka meninggalkan ruang kosong untuk diisi nanti.
 
-*Ketakutan menghasilkan kepatuhan yang stabil.*
+Arsitek memakai mimpi Rhythor untuk mencoba mengisinya dengan model kolektif.
 
-Kael mengangkat Zerath's Fang. “Kau masih belum memahami satu hal. Ketakutan tidak menghapus pilihan.”
+Kael justru memberi hal lain: pilihan yang tidak dijamin benar.
 
-Kristal di sekitar Zevaron retak ketika dia ikut melawan dari dalam.
+K-4 menatap tangannya.
 
-Wadah Sekunder bereaksi. Seluruh gua berubah menjadi badai. Kristal Void menutup lorong dan memisahkan pasukan menjadi kelompok-kelompok kecil.
+"Jika aku bukan Kael, apa namaku?"
 
-Sylvara menembakkan panah pemurnian ke jalur menuju Zevaron. Zireth menahan tekanan dengan lengan bintang. Prajurit Iskali membentuk perisai es di depan Shaman.
+Pertanyaan itu membuat Kael terdiam.
 
-Kael menyentuh kristal utama.
+Dia tidak akan memberi nama seperti pemilik memberi label.
 
-Di balik kendali Arsitek, Roh Es Agung masih hidup. Kesadarannya lemah, tetapi satu permintaan terdengar:
+"Pilih sendiri."
 
-*Jangan hancurkan tubuhku. Bebaskan musim.*
+Wadah memproses lama.
 
-Kael mengangguk.
+"Kair."
 
-Dia tidak akan memenangkan pertarungan dengan membunuh Wadah.
+"Kenapa?"
 
-Dia harus memisahkan tiga bagian yang dipaksa menyatu: Roh Es, pola Zevaron, dan Benih Struktur.
+"Tidak ada alasan optimal. Aku menyukai bunyinya."
 
-Satu kesalahan akan menghancurkan semuanya sekaligus.
+Kael tersenyum.
+
+"Alasan yang cukup bagus, Kair."
+
+Pada saat itu, badai berubah.
+
+Mesin di bawah mereka kehilangan sinkronisasi pusat.
+
+Energi mulai menumpuk.
+
+Kair baru saja menjadi individu.
+
+Sekarang mereka harus memastikan kelahirannya tidak menghancurkan satu kota.

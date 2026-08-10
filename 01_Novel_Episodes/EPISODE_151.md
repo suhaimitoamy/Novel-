@@ -1,51 +1,49 @@
 # Episode 151 — Markas Nexus
 
-Kapal Nexus membawa mereka jauh dari Karag Thürm dan mendarat di tengah hutan rawa.
+Free Node menyebut desa rawa itu markas.
 
-Markas pengamatan hampir tidak terlihat dari udara. Bangunannya tersembunyi di bawah akar raksasa dan lapisan kabut buatan. Dinding hitamnya tidak memantulkan cahaya, sementara menara sensor bergerak tanpa suara di antara pepohonan.
+Kael menyebutnya cara paling rumit untuk menyembunyikan dua puluh rumah dan satu gudang data.
 
-Sosok Berhelm memimpin mereka masuk.
+Mara menjelaskan alasannya: pusat besar mudah dipetakan, mudah diprediksi, mudah diambil alih. Free Node tidak memiliki satu server, satu pemimpin tetap, atau satu lokasi permanen.
 
-“Fasilitas ini memantau Benih Struktur, aktivitas Sistem Pahlawan, dan gangguan multiverse di wilayah selatan.”
+"Jadi kalian organisasi yang sengaja berantakan?" tanya Kael.
 
-Kael melihat puluhan layar menampilkan peta Zerath, denyut Fragmen, dan jalur pergerakan berbagai pasukan.
+"Terdistribusi," koreksi Mara.
 
-Salah satu layar menampilkan tubuhnya dalam bentuk diagram.
+"Berantakan terdengar lebih jujur."
 
-**ASET KRITIS: KAEL DRAYVEN**
+Mereka melihat arsip Nexus lama yang tidak pernah diberikan Command: laporan tentang kegagalan Struktur Penyelaras, protokol Echo Vessel, serta proyek untuk menyalin pola resonansi individu tanpa menyalin seluruh kesadaran.
 
-Di bawahnya terdapat data tentang Ragnarok Pulse, integrasi Void, kestabilan mental, dan kemungkinan kehancuran jika dia kehilangan kendali.
+Kael berhenti pada satu file.
 
-Kael berhenti. “Kalian mencatat semua ini tanpa izinku.”
+**SECONDARY VESSEL / SUBJECT K-4.**
 
-“Kami memantau ancaman,” jawab Sosok Berhelm. “Bukan mencari persetujuan.”
+"K-4?"
 
-Sylvara berdiri di samping Kael. “Dia manusia, bukan angka pada layar.”
+Mara memandang lengan kirinya.
 
-“Status biologis tidak mengubah tingkat risiko.”
+"Pola berdasarkanmu. Tidak dibuat Free Node. Kami menemukannya setelah sistem lama dibajak."
 
-Zireth memeriksa terminal lain. “Kalian juga memiliki simulasi pola Pulse-nya.”
+Sebuah grafik menunjukkan frekuensi merah, biru, dan ungu yang sangat mirip milik Kael.
 
-“Diperoleh dari setiap benturan sebelumnya.”
+Namun bagian keempat tidak ada.
 
-Kael merasakan kemarahan naik, tetapi menahannya. Menghancurkan markas hanya akan membuktikan semua penilaian mereka.
+Kehendak.
 
-“Apa yang kalian inginkan dariku sekarang?”
+Jeda.
 
-Sosok Berhelm membuka ruang simulasi.
+Apa pun wadah sekunder itu, ia mampu meniru energi tetapi bukan cara Kael memilih menggunakannya.
 
-“Buktikan bahwa kau mampu melawan Benih Struktur tanpa menjadi ancaman yang lebih besar.”
+"Di mana?"
 
-Dinding ruangan berubah menjadi rawa yang sama persis dengan lingkungan luar. Bahkan bau lumpur, serangga, dan tekanan udara terasa nyata.
+"Rhythor."
 
-Namun Ragnarok Pulse menangkap sesuatu yang salah.
+Peta Iskali terbuka.
 
-Simulasi tersebut tidak hanya meniru dunia.
+Di tengah badai abadi, satu titik ungu berdenyut.
 
-Ia sedang mempelajari cara tubuh Kael memilih, ragu, dan menyerang.
+Free Node tidak meminta Kael pergi.
 
-Di balik pepohonan buatan, bentuk-bentuk korup mulai bergerak.
+Mara hanya memberikan data.
 
-Nexus menyebutnya ujian.
-
-Bagi Kael, itu terasa seperti pembedahan tanpa pisau.
+Kael menghargai itu lebih daripada yang dia kira.

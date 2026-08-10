@@ -1,49 +1,61 @@
 # Episode 166 — Pertemuan di Perbatasan
 
-Sebelum memasuki Jantung Es, mereka berhenti di perbatasan gua bersama pasukan Iskali.
+K-4 tidak memilih segera.
 
-Sebagian prajurit menolak Kael berada di dekat roh suci mereka.
+Alarm dari permukaan memberi waktu yang tidak mereka punya.
 
-“Dia membawa Void yang sama dengan kristal itu,” kata salah satu kapten. “Bagaimana kami tahu dia tidak datang untuk mengambil kekuatannya?”
+Unit Command datang ke Rhythor.
 
-Zevaron belum ditemukan. Ketakutan dan kekosongan kepemimpinan membuat seluruh barisan mudah pecah.
+Bukan tim Aven.
 
-Shaman Agung berdiri di antara kedua pihak.
+Enam agen turun dari kapal kecil dan mengeluarkan perintah pemusnahan wadah sekunder.
 
-“Kael telah membebaskan penjaga kita tanpa menghancurkan satu inti pun.”
+Aven memucat. "Command mengubah prioritas."
 
-“Dan setiap tempat yang dia datangi berakhir runtuh,” balas kapten.
+"Kenapa?"
 
-Kael tidak menyangkalnya.
+"Karena K-4 menunjukkan deviasi."
 
-“Kalau kalian tidak percaya, tempatkan prajurit di belakangku. Jika aku mencoba mengambil Roh Es, hentikan aku.”
+Deviasi.
 
-Sylvara menoleh tajam. “Jangan menawarkan nyawamu semudah itu.”
+Kata yang berarti mulai memilih.
 
-“Aku tidak menawarkan. Aku memberi mereka hak mengawasi.”
+Kael naik ke permukaan bersama Aven. Seraq dan pasukan Iskali sudah menghadang agen.
 
-Zireth membuka peta Jantung Es melalui lengan bintang. “Kita tidak punya waktu untuk perdebatan. Struktur Wadah sedang matang.”
+Komandan Nexus mengangkat senjata. "Wadah telah terkontaminasi anomali kehendak. Harus dihapus."
 
-Peta memperlihatkan tiga lapisan pertahanan: badai korup, kristal Void, dan tubuh Roh Es Agung yang dipaksa menjadi inti.
+Kael hampir tertawa karena absurditasnya.
 
-“Kita membebaskan roh, bukan membunuh wadah,” kata Kael. “Panah Sylvara memurnikan jalur. Lengan Zireth membuka lapisan. Pasukan Iskali menahan badai. Aku memutus benang kendali.”
+"Kalian membuat mesin untuk belajar kehendak, lalu mau membunuhnya ketika berhasil?"
 
-Kapten masih ragu, tetapi akhirnya mengangkat senjata.
+"Proyek tidak pernah disahkan untuk otonomi penuh."
 
-“Kalau kau berkhianat, tombakku menjadi yang pertama menembus punggungmu.”
+"Tentu."
 
-“Disepakati.”
+Mata Kesembilan melihat benang hitam halus pada dua agen Command.
 
-Mereka memasuki gua.
+Arsitek.
 
-Es di dalam tidak memantulkan wajah. Permukaannya memperlihatkan kenangan yang dicuri dari roh-roh penjaga: musim semi pertama, salju pertama, dan generasi Iskali yang pernah mereka lindungi.
+Tidak semua.
 
-Di pusat lorong, Zevaron tergantung dalam kristal. Tubuhnya masih hidup, tetapi aliran elemen terus ditarik menuju Wadah Sekunder.
+Kael menunjuk dua orang itu. "Command kalian bocor. Ada simpul Struktur di dalam tim."
 
-Matanya terbuka ketika Kael mendekat.
+Aven bergerak cepat, menonaktifkan satu. Seraq membekukan senjata yang lain.
 
-“Sudah kubilang jangan datang.”
+Situasi berubah dari konflik antar-faksi menjadi penyelidikan internal.
 
-Kael berdiri di depan kristal.
+Kael kembali ke bawah.
 
-“Aku tidak datang untuk melawanmu. Aku datang agar pilihanmu kembali menjadi milikmu.”
+K-4 masih menunggu di depan mesin.
+
+"Mereka datang membunuhmu," kata Kael.
+
+"Mengapa?"
+
+"Karena kau mulai bertanya."
+
+K-4 menatap pintu mesin.
+
+Kemudian melangkah ke sisi Kael.
+
+"Eksperimen dihentikan."

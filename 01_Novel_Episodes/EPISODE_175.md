@@ -1,55 +1,41 @@
 # Episode 175 — Saat Jam Dunia Berhenti
 
-Katedral Waktu dan Menara Memori telah padam.
+Mesin Waktu berhenti selama delapan detik.
 
-Danau Jiwa masih berdenyut, menahan seluruh failsafe pada satu simpul terakhir. Gema Roh Es Agung terus bersaksi melalui Gema Pengetahuan, tetapi Pendeta Jiwa mencoba menenggelamkan suaranya dengan jutaan jiwa yang dipanen Sistem Pahlawan.
+Seluruh Zerath ikut merasakannya.
 
-The Core dipenuhi bisikan orang mati.
+Kael tidak melihat dunia membeku. Dia merasakan hilangnya urutan.
 
-Kael mendengar pahlawan-pahlawan dari zaman berbeda memohon agar nama mereka tidak hilang. Jika Danau dihancurkan, seluruh jiwa itu dapat terlepas ke Outer Void.
+Satu napas terjadi sebelum tarikan.
 
-“Kita tidak boleh memecahkan wadahnya,” kata Sylvara.
+Suara datang sebelum benturan.
 
-Kael memasukkan Pulse tiga warna ke permukaan air. Merah memisahkan rantai pemanenan, biru menahan jiwa tetap utuh, dan ungu mengurai perintah Sang Arsitek.
+Kair berdiri di dua posisi sekaligus.
 
-Zireth menjaga sinkronisasi dengan dua mesin yang sudah padam agar tidak bangkit kembali.
+Mata Kesembilan menjadi putih karena kemungkinan tidak lagi memiliki sebelum dan sesudah.
 
-Pendeta Jiwa menyerang pikiran Kael.
+Di tengah delapan detik itu, sesuatu masuk.
 
-Ia memperlihatkan dua kenangan yang baru hilang, menawarkan untuk mengembalikannya jika Kael membiarkan koreksi Rhythor berlangsung.
+Bayangan tanpa massa melintasi kompleks.
 
-Kael melihat wajah ibunya hampir terbentuk.
+Tidak terpengaruh waktu karena tidak sepenuhnya berada dalam materi mereka.
 
-Hanya satu persetujuan diperlukan.
+Voidmaker belum datang.
 
-Dia menutup mata.
+Ini hanya sinyalnya.
 
-“Kenangan itu milikku. Karena itu aku juga berhak kehilangan tanpa menjual orang lain untuk mendapatkannya kembali.”
+Kael menyalakan penanda Hati Dunia agar identitasnya tetap berurutan. Zireth menambatkan kelompok pada struktur batu. Sylvara menyebut nama mereka satu per satu, menjaga memori urutan.
 
-Tawaran pecah.
+Kair berkata, "Aku memilih berada setelah detik ini."
 
-Gema Roh Es Agung dan suara para pahlawan menyatu. Mereka menolak menjadi bahan bakar serta bukti yang dapat dihapus.
+Kalimat itu menjadi jangkar jiwanya.
 
-Kael memutus perintah terakhir.
+Jam dunia kembali bergerak.
 
-Danau Jiwa menjadi tenang.
+Semua jatuh bersamaan.
 
-Pada saat yang sama, seluruh jam di Zerath berhenti.
+Di dinding muncul jejak hitam seperti bekas benda terbakar tanpa panas.
 
-Angin membeku. Ombak diam. Api tidak bergerak. Setiap makhluk hidup terjebak di antara dua detik.
+Sinyal Outer Void berhasil menyeberang.
 
-Hanya Kael, Sylvara, Zireth, dan beberapa entitas di luar sebab-akibat yang tetap sadar.
-
-“Tiga mesin mati bersamaan,” kata Zireth. “Failsafe kehilangan jangkar waktu.”
-
-Keheningan mutlak menyelimuti dunia.
-
-Kemudian sesuatu menjawab dari luar atmosfer.
-
-Bukan Sang Arsitek.
-
-Sinyal tersebut datang dari ruang yang jauh lebih gelap daripada Void biasa. Ia bergerak menuju Zerath, tertarik oleh berhentinya jam dunia dan ledakan Pulse yang selama ini Kael gunakan.
-
-Tiga Mesin Takdir akhirnya bebas dari kendali.
-
-Namun keheningan yang mereka ciptakan telah mengundang pemangsa lain.
+Dan sesuatu telah menandai koordinat tiga mesin.

@@ -1,59 +1,45 @@
 # Episode 159 — Keputusan Kael
 
-Ritual memasuki tahap terakhir.
+Tiga jalur menuju Rhythor.
 
-Seluruh korupsi rawa terkumpul pada satu akar raksasa di tengah lingkaran. Agen penyusup bersembunyi di dalamnya dan memakai semua pola Pulse yang telah dicuri Nexus.
+Jalur tercepat dikuasai Command.
 
-Setiap serangan Kael sudah diketahui sebelum dilepaskan.
+Jalur aman dipakai Free Node.
 
-Pemimpin Suku Lumut berdiri di depan akar dan mengangkat kedua tangan.
+Jalur ketiga melewati wilayah Iskali tanpa izin.
 
-“Aku akan membuka jalur menuju intinya.”
+Semua orang menunggu keputusan Kael.
 
-“Jangan,” kata Kael. “Tekanannya akan membunuhmu.”
+Dia memandang mereka.
 
-“Rawa ini menyimpan nama nenek moyang kami. Seseorang harus membayar agar mereka tidak dilupakan.”
+"Kenapa aku?"
 
-Kael menolak pilihan tersebut. “Kita cari cara lain.”
+Zireth mengangkat bahu. "Kebiasaan."
 
-Akar hitam menyerang sebelum mereka sempat berdebat.
+"Mari hentikan kebiasaan."
 
-Pemimpin suku mendorong Kael keluar dari jalur dan menerima tusukan akar menembus tubuhnya. Darah hijau gelap mengalir ke tanah.
+Mereka membagi keputusan berdasarkan risiko yang masing-masing bisa baca.
 
-Nyanyiannya tidak berhenti.
+Sylvara memilih rute alam dengan paling sedikit pemukiman yang akan terdampak.
 
-Nada terakhir membuka celah pada akar pusat.
+Zireth menilai kestabilan tanah dan leyline.
 
-“Jangan jadikan kematianku alasan untuk kehilangan dirimu,” katanya. “Selesaikan tanpa menjadi seperti musuhmu.”
+Kael memeriksa jejak Struktur.
 
-Tubuhnya berubah menjadi lumut bercahaya yang menyebar ke seluruh lingkaran.
+Hasil ketiganya sama: jalur Iskali.
 
-Kael merasakan amarah memenuhi Ragnarok Pulse. Satu ledakan entropi cukup untuk menghapus akar, agen, dan mungkin separuh rawa.
+Bukan tercepat atau aman.
 
-Sang Arsitek membisikkan jalan termudah.
+Paling sedikit berada dalam model dua faksi Nexus.
 
-*Gunakan semuanya.*
+Kael mengirim koordinat kepada Aven dan Mara hanya setelah mereka sudah bergerak.
 
-Kael menurunkan amplitudo.
+"Kau tidak percaya mereka," kata Sylvara.
 
-Dia mengikuti nyanyian terakhir sang pemimpin dan memisahkan agen penyusup dari jaringan hidup. Sylvara menjaga irama, Zireth menahan struktur, dan Sosok Berhelm memutus saluran data terakhir.
+"Aku percaya cukup untuk memberi tahu. Tidak cukup untuk meminta izin."
 
-Agen itu menjerit ketika benang kendalinya retak.
+Keputusan itu sederhana.
 
-Akar hitam runtuh menjadi debu, sementara akar asli rawa tetap hidup.
+Tidak heroik.
 
-Ritual selesai.
-
-Anggota suku berkumpul di tempat pemimpin mereka lenyap. Tidak ada ucapan kemenangan.
-
-Kael berdiri di antara cahaya lumut dengan kepala tertunduk.
-
-Dia telah menyelamatkan rawa, tetapi tidak semua orang di dalamnya.
-
-Keputusan berikutnya menunggu: mengejar Wadah Sekunder ke Rhythor atau tetap membantu suku yang baru kehilangan pemimpin.
-
-Kael menyerahkan persediaan Nexus, menyiapkan perlindungan rawa bersama Zireth, dan memastikan suku memiliki jalur komunikasi sebelum pergi.
-
-Dia tidak dapat tinggal selamanya.
-
-Namun dia juga menolak meninggalkan mereka seolah pengorbanan tersebut hanya angka dalam perjalanan.
+Namun Kael mulai mengerti bahwa perubahan besar dalam dirinya terlihat bukan pada jurus baru, melainkan pada cara dia berhenti menjadikan setiap pilihan sebagai pembuktian identitas.

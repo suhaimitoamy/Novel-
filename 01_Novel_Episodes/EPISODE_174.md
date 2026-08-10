@@ -1,67 +1,41 @@
 # Episode 174 — Harga yang Dituntut Tiga Mesin Takdir
 
-Failsafe memakai The Core sebagai medan perang.
+Tiga mesin menawarkan kompromi.
 
-Kael memotong rantai jiwa yang mengarah kepada Zireth, tetapi Master Waktu mengulang serangan beberapa detik kemudian. Sylvara menghancurkan tangan memori, hanya untuk melihatnya kembali terbentuk dari kenangan mereka sendiri.
+Masing-masing meminta satu bagian Kael.
 
-“Kita harus memutus satu mesin lebih dulu,” kata Zireth. “Walau hanya sementara.”
+Waktu meminta masa depannya: Kael tidak akan menua selama sistem aktif.
 
-“Dua lainnya akan membangunnya kembali.”
+Memori meminta masa lalunya: semua ingatan Kael disalin sebagai arsip permanen.
 
-“Tidak sebelum kita membayar biaya koreksi.”
+Jiwa meminta hak menentukan bentuk dirinya setelah mati.
 
-Zireth menunjukkan pola tersembunyi. Setiap kali salah satu mesin dipaksa berhenti, failsafe mengambil energi dari sumber terdekat yang berada di luar sistem.
+"Tidak," kata Kael pada ketiganya.
 
-Kael.
+**TANPA JAMINAN, STABILITAS TIDAK DAPAT DIPASTIKAN.**
 
-Lebih tepatnya, ingatannya.
+"Itu masalah kalian."
 
-“Mesin tidak dapat menulis ulang Fragmenmu,” kata Sylvara. “Jadi ia memakai kenanganmu sebagai jembatan.”
+Kair mengamati. "Mereka tidak memahami kepercayaan tanpa kepemilikan."
 
-Kael memahami harga tersebut.
+"Banyak sistem tidak."
 
-Untuk mematikan Katedral Waktu sementara, dia harus menyerahkan satu kenangan. Menara Memori akan meminta kenangan berikutnya. Danau Jiwa mungkin mengambil bagian yang lebih dalam.
+Zireth menemukan cara lain: ketiga mesin dapat saling mengaudit, sehingga tidak perlu menjadikan satu individu jaminan.
 
-“Kita cari cara lain,” kata Sylvara.
+Mereka menyusun protokol baru—setiap perubahan waktu harus diverifikasi memori dan jiwa; setiap pemulihan memori harus menghormati akhir biologis; setiap transfer jiwa membutuhkan kontinuitas identitas.
 
-Tidak ada waktu.
+Tidak sempurna.
 
-Master Waktu mulai memundurkan Rhythor. Pada salah satu layar, matahari kembali membeku dan jejak Roh Es Agung mulai hilang.
+Tetapi tidak ada lagi satu mesin memegang keputusan mutlak.
 
-Kael menyentuh pintu Katedral.
+Harga yang dibayar bukan tubuh Kael.
 
-“Ambil satu kenangan.”
+Tiga mesin harus menyerahkan sebagian kewenangannya sendiri.
 
-Mesin meraih bagian masa kecilnya: hari ketika ibunya mengajarinya menyalakan api kecil tanpa takut. Wajah dan kata-katanya menghilang dari pikiran Kael.
+Mereka menolak selama hampir satu jam.
 
-Katedral padam.
+Akhirnya ancaman Voidmaker di luar membuat pilihan jelas.
 
-Menara Memori mencoba membangunnya kembali. Sylvara menahan arsip dengan Gema Pengetahuan, sementara Zireth membuka jalur menuju simpul kedua.
+Kekuasaan dibagi.
 
-Kael menyentuhnya.
-
-Kenangan lain hilang—suara Aranyel pada pagi yang damai.
-
-Menara padam.
-
-Danau Jiwa berguncang. Kael bersiap membayar lagi, tetapi Sylvara menangkap tangannya.
-
-“Cukup. Kita tidak akan membiarkanmu menghapus seluruh dirimu.”
-
-Zireth menemukan celah pada failsafe yang kini hanya ditopang satu mesin.
-
-“Danau tidak membutuhkan kenanganmu jika jiwa yang hendak dihapus bersaksi sendiri.”
-
-Gema Roh Es Agung masih tersimpan dalam salju Rhythor.
-
-Sylvara memanggilnya melalui Gema Pengetahuan.
-
-Suara penjaga yang telah gugur memenuhi The Core.
-
-*Aku memilih pengorbananku. Tidak ada mesin yang berhak menghapusnya.*
-
-Danau Jiwa berhenti.
-
-Kael telah kehilangan dua kenangan berharga.
-
-Namun untuk mesin terakhir, mereka menemukan cara agar korban berbicara atas namanya sendiri.
+Untuk pertama kalinya ketiga mesin bekerja sebagai jaringan, bukan tiga takhta.

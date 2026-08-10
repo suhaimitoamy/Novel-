@@ -1,49 +1,43 @@
 # Episode 178 — Benturan Sinyal Outer Void
 
-Gelombang antimateri memenuhi ruang observasi.
+Jawaban datang sebelum konfirmasi lengkap.
 
-Kael dan Zireth bergerak di antara bagian lantai yang menghilang. Setiap sentuhan bayangan menghapus materi tanpa meninggalkan puing.
+Sinyal Outer Void menyerang tiga mesin.
 
-Jaringan sensor Zireth membentuk peta spektrum. “Penanda Arsitek berada pada pusat jalur, tetapi makhluk itu melindunginya karena menganggapnya bagian dari sumber makanan.”
+Bukan dengan tenaga, melainkan zona anti-resonansi yang meluas dari jejak hitam.
 
-Kael mengirim Pulse kecil ke arah berbeda. Bayangan langsung mengikuti, membuktikan bahwa ia memburu intensitas energi, bukan identitas.
+Kristal Memori mulai kehilangan data.
 
-“Kalau aku membuat suar palsu, kita bisa menariknya menjauh.”
+Mesin Jiwa tidak dapat membaca identitas.
 
-“Pulse sebesar itu akan memperkuat jejakmu.”
+Jam Waktu berhenti secara lokal.
 
-“Bukan ledakan. Resonansi yang memantulkan tanda lama.”
+Kael tidak bisa melawan ketiadaan dengan ledakan lebih besar.
 
-Zireth memahami rencananya. Lengan bintang membuka arsip spektrum dari pertempuran Rhythor. Kael membentuk gema energi tanpa menciptakan daya baru—seperti suara yang dipantulkan banyak dinding.
+Dia memakai hal paling sederhana: gangguan.
 
-Bayangan antimateri ragu.
+Materi bertahan karena pola interaksi. Kael mengirim berbagai frekuensi kecil, tidak sinkron, terus berubah—membuat zona penghapus harus meniadakan terlalu banyak keadaan sekaligus.
 
-Pada saat yang sama, mereka bergerak menuju penanda geometris.
+Zireth menambahkan getaran materi.
 
-Sang Arsitek menyadari gangguan tersebut. Pola putih mengambil alih dinding dan membentuk bilah yang menyerang dari sisi lain.
+Sylvara menambah sinyal biologis acak dari benih dan akar yang dibawanya.
 
-Kael harus menahan dua ancaman: pemangsa alami di depan dan struktur buatan di belakang.
+Kair memancarkan pola keputusan yang sengaja tidak diulang.
 
-Dia memilih sasaran terkecil.
+Anti-resonansi melambat.
 
-Pulse merah memisahkan penanda dari jaringan sensor. Biru menjaga ruang tidak runtuh. Ungu mengurai koordinat yang mengarahkan makhluk ke Zerath.
+Tidak kalah.
 
-Zireth memperkuat gema suar palsu.
+Hanya kewalahan.
 
-Bayangan bergerak mengejarnya, tetapi bagian tubuhnya menyapu Zireth dari samping.
+Tiga mesin menggunakan waktu itu untuk menutup terowongan dan mengisolasi abu putih.
 
-Kael membentuk perisai tipis dan menerima benturan. Dingin menyusup ke detak kedua di dadanya.
+Kael terengah.
 
-Penanda retak.
+"Kita tidak bisa terus mengusirnya seperti ini."
 
-Sinyal utama mulai berbelok menjauh dari planet.
+Kair mengangguk. "Kita perlu memahami apa yang membuat materi aman dari annihilation."
 
-Namun sentuhan antimateri meninggalkan sesuatu dalam tubuh Kael. Ragnarok Pulse tidak lagi berdenyut hangat. Irama keduanya berubah menjadi dingin dan sunyi.
+Jawaban Aven tiba melalui kanal.
 
-Zireth memandang pembacaan energi. “Kau membawa residunya.”
-
-Kael menekan dada.
-
-Makhluk itu mulai menjauh.
-
-Sebagian kecil kehampaannya kini tertinggal di dalam Kael.
+**THE CORE MEMILIKI ARSIP ANTIMATERI. JANGAN MASUK TANPA PELINDUNG.**

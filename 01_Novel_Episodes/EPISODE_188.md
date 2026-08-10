@@ -1,51 +1,51 @@
 # Episode 188 — Benturan Benteng The Core
 
-Lapisan pertama benteng runtuh.
+Voidmaker menyerang benteng dari luar realitas.
 
-Gelombang antimateri menyapu cincin pertahanan dan menghapus meriam Dwarf sebelum para penembaknya sempat mundur. Pasukan tanpa bayangan bergerak melalui celah tersebut.
+Dinding phase skin berkedip. Satu sisi laboratorium lenyap, memperlihatkan ruang putih tanpa kedalaman.
 
-Kael memperluas isolasi vakum menjadi beberapa lapisan tipis. Setiap lapisan membelokkan sebagian gelombang ke ruang kosong, tetapi membuat tubuhnya menua dan melemah sedikit demi sedikit.
+Sera Vann mengaktifkan pertahanan.
 
-Zevaron memimpin serangan balasan.
+"Aku bisa menahan tujuh menit."
 
-Badai petir Celestial menahan pasukan, sementara para Dwarf memindahkan meriam yang tersisa ke posisi baru. Zireth mengatur seluruh medan melalui lengan bintangnya.
+Kael tidak bertanya kenapa selalu ada angka buruk.
 
-“Jangan bertahan terlalu lama,” teriak Zevaron kepada Kael. “Perisai itu memakanmu.”
+Mereka bergerak ke inti kendali.
 
-“Aku tahu.”
+Pertahanan The Core memakai pola annihilation kecil untuk meniadakan abu sebelum menyentuh dinding. Setiap tembakan adalah versi mini dari musuh.
 
-Voidmaker kembali berbicara melalui detak dingin.
+Voidmaker mulai meniru.
 
-*Buka jalan. Kehidupan singkatmu akan menjadi sunyi tanpa rasa sakit.*
+Kair berkata, "Sistem pertahanan mempercepat pembelajarannya."
 
-Kael menutup saluran mental dan mencari bagian gelombang yang diarahkan oleh Sang Arsitek. Di antara kekacauan alami antimateri terdapat pola geometris kecil yang memaksa serangan fokus pada jaringan Fragmen.
+Kael memerintahkan Sera berhenti menembak.
 
-Dia tidak dapat melawan seluruh Voidmaker.
+"Benteng akan rusak lebih cepat."
 
-Namun dia dapat memutus penunjuk sasarannya.
+"Tapi dia belajar lebih lambat."
 
-Kael bergerak ke garis depan. Zevaron menutup sisi kanan, legiun Celestial menahan kiri, dan meriam Dwarf menciptakan celah pada pusat gelombang.
+Mereka mengganti pertahanan dengan phase shift pasif dan rute evakuasi.
 
-Zireth menghitung momen ketika pola geometris paling terbuka.
+Benteng kehilangan beberapa ruangan.
 
-“Sekarang.”
+Namun Voidmaker tidak mendapat pola baru.
 
-Kael mengirim Pulse rendah melalui lapisan isolasi. Merah memisahkan penanda dari gelombang. Biru menjaga benteng tidak runtuh. Ungu mengurai koordinat The Core dari jalur serangan.
+Di inti, Kael menemukan koneksi langsung ke Outer Void.
 
-Penanda retak.
+Sera berkata, "Kalau kau masuk, aku tidak bisa menarikmu paksa."
 
-Gelombang antimateri kehilangan fokus dan menyebar ke cincin kosong, tetapi pasukan tanpa bayangan tetap menyerang.
+"Bagus. Aku mulai alergi ditarik paksa."
 
-Salah satu dari mereka muncul di belakang Zevaron.
+Sylvara memegang lengannya.
 
-Kael memutar perisai tipis dan menahan tebasan yang seharusnya menghapus tubuh rivalnya. Pandangannya memutih dan kulit pada lengannya menua beberapa tahun dalam sekejap.
+"Kita masuk bersama."
 
-Zevaron menghancurkan penyerang dengan petir.
+Kael menggeleng. "Phase skin hanya satu koneksi organik aman."
 
-“Kenapa selalu kau yang menanggung?”
+Dia melihat wajah Sylvara sebelum protes.
 
-“Karena kali ini aku yang melihatnya lebih dulu.”
+"Ini bukan soal aku harus sendirian. Ini batas perangkat. Kalian pegang jalur keluar. Kalau ada cara kedua, gunakan."
 
-Mereka kembali berdiri berdampingan.
+Perbedaannya penting.
 
-Pusat gelombang Voidmaker terbuka untuk sesaat. Di dalamnya terdapat suara yang bergerak di antara atom, mencari jalan masuk ke dunia.
+Kael masuk ke inti.

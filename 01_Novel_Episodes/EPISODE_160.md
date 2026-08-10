@@ -1,53 +1,55 @@
 # Episode 160 — Benang Takdir Bertemu
 
-Setelah pemurnian, rawa kembali bernapas.
+Di perbatasan Iskali, semua jalur bertemu juga.
 
-Air hitam berubah jernih. Lumut hijau menyala di sepanjang akar, membawa nama-nama yang sempat hilang. Tempat sang pemimpin gugur menjadi lingkaran cahaya yang tidak padam meski malam turun.
+Free Node tiba dari barat.
 
-Kael, Sylvara, Zireth, dan Sosok Berhelm berdiri di tepi markas Nexus.
+Aven dan dua agen Command dari timur.
 
-Zireth membuka peta dari pesan terintersep. Koordinat Rhythor berdenyut tepat di bawah ibu kota Iskali.
+Patroli Iskali menghadang dari utara.
 
-“Wadah Sekunder belum aktif penuh,” katanya. “Namun semua jalur energinya terhubung ke Zevaron.”
+Dan badai Rhythor membesar di belakang mereka.
 
-Sinyal lain muncul dari barat.
+Kael hampir tertawa.
 
-Zevaron mengirim pesan singkat melalui kristal Iskali:
+"Arsitek suka kerumunan."
 
-*Jangan datang. Istana telah diambil alih. Mereka memakai keluargaku sebagai jangkar.*
+Mata Kesembilan melihat benang kemungkinan menegang. Satu salah tembak cukup memulai pertempuran empat pihak.
 
-Kael membaca kalimat itu dua kali.
+Komandan Iskali, perempuan bernama Seraq, mengangkat tombak es.
 
-Sang Arsitek telah mengatur semua benang untuk bertemu di Rhythor: trauma Zevaron, pola Pulse Kael, data Nexus, dan energi Gerbang Es.
+"Tidak ada yang masuk Rhythor. Badai telah mengambil tiga desa."
 
-Sosok Berhelm mengaktifkan kapal. “Nexus memerintahkan fasilitas ini menahanmu. Data menunjukkan perjalanan ke Rhythor akan meningkatkan peluang aktivasi Wadah.”
+Aven menurunkan senjata lebih dulu.
 
-“Apakah kau akan menjalankan perintah itu?” tanya Sylvara.
+Mara melakukan hal sama.
 
-Helm hitam mengarah kepada lingkaran lumut tempat pemimpin suku gugur.
+Kael tidak bicara tentang takdir atau dunia.
 
-“Tidak.”
+Dia menunjukkan data wadah sekunder dan pola badai.
 
-Dia membuka pintu kapal.
+"Kalau kami benar, pusat badai bukan fenomena alam. Kalau kami salah, kami pergi setelah kalian lihat sendiri."
 
-“Namun aku tidak akan menutupi konsekuensi pilihanmu. Sang Arsitek menginginkan kau datang. Setiap langkah menuju Rhythor mungkin bagian dari rencananya.”
+Seraq memeriksa data lama.
 
-Kael menaiki kapal.
+"Dan kalau kalian membawa bencana lebih besar?"
 
-“Kalau aku tidak datang, Zevaron dan seluruh Iskali akan dipakai. Kalau datang, aku memberinya konflik yang dia butuhkan.”
+"Kalian berhak mengusir kami."
 
-Dia memandang kedua temannya.
+Tidak sempurna.
 
-“Kita tidak memilih salah satu rencananya. Kita masuk untuk membebaskan Zevaron dan memutus Wadah tanpa bertarung sesuai aturan Arsitek.”
+Tetapi cukup.
 
-Sylvara dan Zireth ikut naik.
+Patroli membuka jalan.
 
-Kapal meninggalkan rawa dan bergerak menuju utara.
+Saat mereka melewati gerbang es Iskali, empat kelompok yang seharusnya saling membenci berjalan ke arah sama.
 
-Di bawah mereka, Suku Lumut menyanyikan nama pemimpin yang telah gugur agar tidak pernah dimakan akar atau waktu.
+Di kejauhan, badai Rhythor berdenyut tiga warna.
 
-Di depan, aurora ungu di atas Rhythor telah berubah menjadi pola geometris raksasa.
+Merah.
 
-Benang-benang perjalanan Kael, Zevaron, Nexus, dan Sang Arsitek akhirnya bertemu pada satu tempat.
+Biru.
 
-Kali ini, Kael berniat memutus tangan yang menarik semuanya.
+Ungu.
+
+Persis seperti Kael.

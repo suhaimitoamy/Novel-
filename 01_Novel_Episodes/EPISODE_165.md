@@ -1,47 +1,49 @@
 # Episode 165 — Jantung Badai
 
-Wadah berwajah Zevaron mengangkat tangan.
+Jantung badai bukan K-4.
 
-Angin, petir, dan es berkumpul dalam pola sempurna. Kekuatan elemennya menyerupai Zevaron, tetapi tidak memiliki kemarahan atau keraguan yang membuat serangannya manusiawi.
+Itu mesin di bawah menara.
 
-Shaman Agung membangun lingkaran es di sekitar mereka.
+Zireth merasakannya dari fondasi: tiga cincin raksasa berputar di kedalaman, masing-masing menghasilkan frekuensi yang meniru energi Kael.
 
-“Itu belum Wadah Sekunder penuh. Hanya cangkang uji.”
+K-4 hanya berada di pusat untuk menyelaraskan.
 
-Cangkang tersebut menyerang.
+"Kalau mesin dihentikan?" tanya Sylvara.
 
-Kael menghindari tombak petir dan menahan pusaran es dengan perisai tiga warna. Setiap teknik yang dia gunakan langsung ditiru dalam versi yang disesuaikan dengan data Nexus.
+"Badai runtuh. Tapi energi tersimpan harus pergi ke suatu tempat."
 
-“Salinan pola Pulse-mu telah masuk ke dalamnya,” kata Shaman.
+Kael melihat warga yang masih tertidur.
 
-Kael berhenti mencoba menemukan teknik yang belum diketahui musuh.
+Tidak bisa meledakkannya.
 
-Dia mengubah cara bertarung.
+Mereka turun melalui poros menara.
 
-Alih-alih mengambil keputusan sendiri, Kael mengikuti ketukan tongkat Shaman. Nada lambat berarti bertahan, dua ketukan berarti menggeser fase, dan jeda panjang menjadi tanda menyerang.
+K-4 muncul di depan pintu mesin.
 
-Wadah terlambat menyesuaikan diri.
+"Pola asli tidak boleh mengubah eksperimen."
 
-Kael menembus badai dan menyentuh dada cangkang dengan telapak tangan. Di balik lapisan Void, dia merasakan jejak emosi Zevaron yang dicuri—rasa takut gagal melindungi Iskali, iri kepada Kael, dan tekad untuk tidak dianggap lemah.
+"Eksperimen selesai."
 
-“Arsitek memakai lukanya sebagai algoritma.”
+"Belum ada konvergensi kehendak."
 
-Kael memisahkan emosi tersebut dari pola kendali. Cangkang retak, lalu pecah menjadi kristal putih.
+Kael berhenti.
 
-Badai tidak berhenti.
+"Apa itu?"
 
-Dari gletser terdengar raungan yang jauh lebih besar. Seluruh cekungan terbelah dan memperlihatkan lorong menuju Jantung Es.
+"Tahap saat model sekunder memahami keputusan tanpa sumber asli."
 
-Di bawah sana, siluet Roh Es Agung terlihat terkurung dalam kristal Void. Salinan tubuh Zevaron tumbuh di sekelilingnya seperti lapisan daging baru.
+Aven menatap K-4. "Proyek ini memang mencoba menciptakan kehendak."
 
-Shaman Agung memandangnya dengan ngeri.
+Kael merasa marah.
 
-“Wadah Sekunder yang sebenarnya.”
+Bukan karena salinan dibuat.
 
-Dari jalur lain, panah cahaya menembus badai. Sylvara dan Zireth muncul bersama prajurit Iskali yang selamat.
+Karena sesuatu diberi peluang menjadi individu lalu diperlakukan sebagai alat sebelum sempat memilih.
 
-“Kalian lama,” kata Kael.
+"Kalau kau ingin memahami kehendak," kata Kael kepada K-4, "mulai dengan satu pilihan. Bantu kami mematikan mesin atau pertahankan eksperimen karena perintah yang ditanamkan."
 
-Sylvara menatap luka di tubuhnya. “Kau juga terlihat baik-baik saja.”
+K-4 berdiri diam.
 
-Mereka kembali lengkap tepat ketika Jantung Badai bangun sepenuhnya.
+Badai meraung di atas.
+
+Untuk pertama kalinya tidak ada jawaban otomatis.

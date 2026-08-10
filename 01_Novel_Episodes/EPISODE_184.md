@@ -1,59 +1,49 @@
 # Episode 184 — Harga yang Dituntut Abu Antimateri
 
-Pusat manifestasi berada di bawah alun-alun Valerium.
+Phase skin membutuhkan bahan bakar.
 
-Kael, Sylvara, dan Zireth turun melalui terowongan yang sebagian dindingnya telah terhapus. Di atas mereka, evakuasi hampir selesai.
+Bukan mana.
 
-Satu keluarga masih terjebak di rumah dekat pusat zona.
+Massa.
 
-“Ayah, ibu, dan dua anak,” kata Zireth sambil membaca sensor. “Jalur menuju mereka runtuh.”
+Untuk menjaga tubuh terus bergeser fase, perangkat mengubah sedikit materi pelindung menjadi energi setiap menit.
 
-Kael memisahkan tim. Sylvara dan Zireth pergi menyelamatkan keluarga tersebut, sementara dia menahan pusat manifestasi.
+Tidak banyak.
 
-Makhluk itu menyerang dengan gelombang penghapus. Kael membelokkannya memakai perisai Lorentz, tetapi setiap lapisan medan menarik umur dan tenaga dari tubuhnya.
+Tetapi perjalanan panjang berarti mereka harus memilih apa yang dikorbankan.
 
-Di komunikasi, suara Sylvara terdengar terputus.
+Peralatan.
 
-“Kami menemukan mereka. Bangunan mulai—”
+Logam cadangan.
 
-Sinyal hilang.
+Kristal.
 
-Kael melihat pusat geometris terbuka. Jika dia meninggalkannya sekarang, seluruh kota akan terhapus. Jika bertahan, keluarga itu mungkin tidak sempat keluar.
+Zerath's Fang bereaksi kuat ketika medan kekurangan bahan.
 
-Dia mencoba melakukan keduanya.
+Kael menarik pedang menjauh.
 
-Kael menanamkan sebagian kesadarannya pada medan penahan, lalu berlari menuju rumah. Pembagian fokus membuat manifestasi mulai merobek perisai.
+"Bukan ini."
 
-Dia mencapai bangunan tepat ketika lantai bawah menghilang.
+Kair menawarkan pelat tubuh rusaknya.
 
-Sylvara sudah membawa seorang anak. Zireth menahan balok dengan lengan bintang. Ayah dan ibu mendorong anak kedua ke arah Kael.
+Zireth menawarkan sisa lengan mekanis lama yang masih dia bawa.
 
-Kael menangkapnya.
+Sylvara memberikan beberapa kepala panah logam.
 
-Gelombang antimateri menyapu.
+Kael memasukkan gesper, pelindung bahu, dan sebagian sarung pedang.
 
-Dia membangun perisai terakhir, tetapi pusat kota dan rumah berada terlalu jauh untuk dilindungi bersamaan.
+Sedikit dari semua orang.
 
-Ayah dan ibu anak-anak itu mendorong Sylvara serta Zireth keluar dari jangkauan.
+Tidak satu benda suci atau satu tubuh dipilih sebagai korban dramatis.
 
-Mereka tersentuh abu.
+Phase skin terus bekerja.
 
-Tubuhnya lenyap tanpa suara.
+Kael memikirkan betapa sering dunia menyukai narasi satu pengorbanan besar karena lebih mudah diceritakan.
 
-Sesaat kemudian, wajah mereka mulai hilang dari ingatan Kael. Nama, suara, dan alasan kesedihan berubah kabur.
+Kenyataan yang sehat mungkin justru banyak orang kehilangan sedikit agar satu orang tidak kehilangan semuanya.
 
-“Siapa yang...” Kael menatap dua anak yang menangis. “Siapa yang baru saja hilang?”
+Saat cadangan stabil, pintu The Core muncul di depan.
 
-Sylvara memegang wajahnya. “Orang tua mereka. Jangan biarkan dirimu lupa.”
+Tulisan di atasnya hampir terhapus abu:
 
-Kael mengulang fakta itu keras-keras sambil kembali menuju pusat.
-
-“Dua orang mengorbankan diri untuk anak-anak mereka. Mereka hidup. Mereka memilih. Mereka tidak akan menjadi ruang kosong.”
-
-Dia menyimpan kalimat tersebut dalam Ragnarok Pulse sebagai jangkar.
-
-Pusat manifestasi menunggu.
-
-Kali ini Kael tidak bertarung hanya untuk menghentikan kehancuran.
-
-Dia bertarung agar korban tetap memiliki tempat dalam dunia yang berusaha melupakan mereka.
+**LABORATORIUM ANNIHILATION / AKSES TERBATAS.**

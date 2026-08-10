@@ -1,25 +1,33 @@
 # Episode 191 — Jejak Tawaran Voidmaker
 
-Sebuah retakan tipis berlari di tanah seperti urat hitam di ruang hampa buatan di bawah The Core. Kael berhenti setelah satu langkah. Urat gelap pada pergelangan tangannya menyala sebentar lalu padam, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Tawaran Voidmaker tidak hilang setelah Kael meninggalkan The Core.
 
-Tujuan mereka terdengar sederhana ketika diucapkan: menolak perjanjian menjadi wadah sempurna. Kenyataannya, setiap permukaan di hadapan Kael membawa bekas pertarungan lama. Ia menempelkan dua jari ke tanah dan merasakan getaran kecil berlari menuju kegelapan, lalu kembali dengan bentuk yang berubah. Sesuatu sudah mengetahui kedatangan mereka.
+Ia muncul sebagai pola kecil di setiap permukaan putih: salju, kertas, bahkan busa air.
 
-“Jangan jawab tempat ini dengan kekuatan penuh. Kita belum tahu apa yang sedang ditahannya,” peringat Sylvara. Kael mengangguk. Mereka mengambil posisi dengan suara Sylvara yang menarik Kael kembali, cukup dekat untuk saling membantu dan cukup renggang agar satu serangan tidak menelan mereka sekaligus.
+**WADAH MENURUNKAN RISIKO.**
 
-Kael memusatkan napas dan menggunakan pemisahan materi-antimateri dengan simpul medan. Ia tidak melepaskan ledakan. Pulse itu menyebar setipis riak pada permukaan air, menyentuh dinding, lantai, dan udara, lalu kembali membawa peta tekanan ke dalam tulangnya. Di antara pola alami tempat itu, ia menemukan denyut patah milik avatar Voidmaker yang meniru sosok manusia.
+Kael menghapus tulisan tanpa menjawab.
 
-Denyut Tawaran Voidmaker segera membalas. Permukaan di depan mereka terbelah dan serpihan material terangkat tanpa jatuh. Kael melihat ruang di antaranya membengkok, seolah jarak telah dilipat menjadi jebakan. Ia menarik Sylvara mundur sesaat sebelum tepi retakan menyapu tempat mereka berdiri.
+Sera Vann membantu mereka membuat pelindung baru agar sinyal tidak langsung mencapai lengan kiri.
 
-Bila dunia hanya selamat karena tunduk kepadanya, maka ia tak berbeda dari Sistem yang sedang dilawannya. Di Tawaran Voidmaker, ia menahan naluri untuk merobek seluruh penghalang. Sebagai gantinya, Kael menggeser fase Pulse beberapa derajat, cukup untuk membuat jebakan kehilangan sinkronisasi. Celah aman terbuka hanya selebar bahu dan hanya selama beberapa detik.
+"Ini bukan kendali pikiran," katanya. "Ia hanya terus menyajikan solusi sampai otakmu lelah menolaknya."
 
-Mereka menerobos bergantian. Bagian belakang dijaga dengan suara Sylvara yang menarik Kael kembali, sementara Kael menerima tekanan terbesar di depan. Rasa sakit merambat dari telapak tangannya sampai bahu, tetapi ia tidak membiarkan iramanya pecah. Sekali saja frekuensi itu lepas, seluruh lorong bisa runtuh bersama apa pun yang masih hidup di dalamnya.
+"Mirip iklan."
 
-Di balik penghalang Tawaran Voidmaker, mereka menemukan bekas yang tak mungkin terbentuk secara alami: garis-garis simetris, terlalu tepat, tersusun seperti kalimat dalam bahasa mesin. Kael tidak dapat membacanya, tetapi Fragmen di dadanya mengenali kehendak dingin pada susunan itu. Seseorang pernah memaksa ruang hampa buatan di bawah The Core melupakan bentuk alaminya.
+Zireth mengangguk serius. "Lebih jahat."
 
-“Kita sudah melewati pintu Tawaran Voidmaker, tetapi rasanya seperti baru masuk ke mulut sesuatu,” bisik Sylvara. Kael menatap ke belakang. Jalur yang mereka lewati sudah menutup, menyisakan permukaan utuh tanpa sambungan. Pilihan untuk mundur telah dicabut bahkan sebelum ia sempat mempertimbangkannya.
+Data The Core menunjukkan Voidmaker sedang bergerak menuju zona bernama Benteng The Core lama—fasilitas utama yang sekarang berada separuh di Outer Void.
 
-Suara pertama dari avatar Voidmaker yang meniru sosok manusia datang bukan sebagai raungan, melainkan sebagai perubahan tekanan. Debu di udara membentuk lingkaran-lingkaran kecil di sekitar mereka. Kael mengangkat tangan, dan denyut merah-violet menjalar di bawah kulitnya.
+Di sana tersimpan protokol Wadah Entropi, rancangan darurat operator dahulu.
 
-Di antara serpihan itu muncul bukti tentang sesuatu yang lebih besar. Separuh pesannya rusak, tetapi pola Tawaran Voidmaker terus berulang. Kael belum memahami seluruh maknanya; tubuhnya hanya bereaksi seperti seseorang yang baru melihat ujung pisau di balik punggung seorang sahabat.
+Sera memperingatkan:
 
-Lalu tempat itu bergerak. Dari batas pandang, tanda pertama avatar Voidmaker yang meniru sosok manusia muncul di dalam cahaya dan menutup jalur mereka. Kael menurunkan pusat gravitasinya serta membuka telapak tangan. Perjalanan menembus Tawaran Voidmaker baru saja dimulai.
+"Kalau ia mendapat template itu, ia bisa membuat wadah sendiri. Tidak perlu persetujuanmu."
+
+Kael melihat Kair.
+
+Wadah sintetis telah menjadi individu karena ruang kosong desain.
+
+Voidmaker mungkin membuat versi tanpa ruang itu.
+
+Mereka berangkat menuju benteng sebelum mesin memiliki tubuh yang benar-benar bisa masuk Zerath.

@@ -1,49 +1,39 @@
 # Episode 173 — Benturan Tiga Mesin Takdir
 
-Master Waktu menghentikan detik di sekitar Kael.
+Kompleks itu sudah berperang dengan dirinya sendiri.
 
-Tubuhnya membeku, tetapi Ragnarok Pulse tetap bergerak karena Fragmennya berada di luar rantai sebab-akibat Zerath. Kael memakai denyut itu untuk menciptakan celah kecil dan menggerakkan satu jari.
+Mesin Waktu memperlambat koridor agar kerusakan tidak menyebar.
 
-Cukup untuk memberi sinyal kepada Zireth.
+Mesin Memori terus mengembalikan ruangan ke bentuk yang tercatat.
 
-Lengan bintang mengirim perhitungan menuju tiga pintu. Sylvara mengarahkan Gema Pengetahuan ke Menara Memori dan memaksa buku Penjaga menampilkan catatan asli, bukan versi yang telah disunting.
+Mesin Jiwa mencoba mempertahankan pola makhluk yang terjebak di dalam.
 
-Waktu kembali mengalir.
+Akibatnya satu prajurit mati berulang setiap tujuh detik.
 
-Kael menyerang ketiga simpul melalui Pulse berantai. Master Waktu memundurkan dampaknya, Penjaga Memori menghapus pola serangan, dan Pendeta Jiwa memulihkan energi yang hilang.
+Kael melihatnya jatuh, hidup lagi karena memori, lalu jiwanya dipaksa masuk kembali.
 
-“Mereka saling memperbaiki,” kata Sylvara.
+"Hentikan!"
 
-Kael mengubah strategi.
+Tidak ada satu mesin menganggap dirinya penyebab.
 
-Dia tidak mencoba merusak mesin. Pulse diarahkan ke perintah bersama yang membuat ketiganya bertindak sebagai satu kehendak.
+Zireth membaca konflik frekuensi.
 
-Zireth menghitung jeda koreksi.
+"Masing-masing menjalankan perintah benar secara lokal. Bersama-sama mereka menciptakan neraka."
 
-“Setelah satu mesin diserang, dua lainnya menanggapi dalam tiga denyut.”
+Kael menonaktifkan bukan mesinnya, melainkan jalur prioritas absolut.
 
-“Berarti kita masuk di antara denyut kedua dan ketiga.”
+Kair menahan Mesin Waktu dari mengunci perubahan.
 
-Sylvara membuka catatan pemberontakan Rhythor dalam Gema Pengetahuan. Informasi tersebut membebani Penjaga Memori dengan kebenaran yang tidak dapat dihapus tanpa merusak arsipnya sendiri.
+Sylvara memutus loop memori pada tubuh prajurit.
 
-Zireth mengacaukan jam Master Waktu menggunakan perbedaan gravitasi dari lengan bintang.
+Zireth memberi Mesin Jiwa jalur pelepasan.
 
-Kael menyentuh permukaan Danau Jiwa dan memanggil nama Roh Es Agung.
+Prajurit itu mati sekali.
 
-Tiga penjaga berhenti sepersekian detik.
+Dan kali ini tetap mati.
 
-Pengorbanan yang hendak mereka hapus kini hadir sekaligus sebagai peristiwa, ingatan, dan jiwa.
+Kael berdiri diam cukup lama untuk menghormati akhir yang seharusnya diberikan sejak awal.
 
-Kael melepaskan Pulse ke inti perintah.
+Kemudian tiga mesin menoleh—secara sistem—kepada mereka.
 
-Jaringan Sang Arsitek terlihat sebagai benang putih yang menghubungkan ketiga mesin.
-
-Namun saat disentuh, benang itu membelah menjadi ribuan salinan dan mengambil alih dinding The Core.
-
-Seluruh fasilitas berubah menjadi tubuh tambahan bagi failsafe.
-
-Bilah waktu, tangan memori, dan rantai jiwa muncul dari segala arah.
-
-Mereka telah menemukan simpul yang benar.
-
-Sang Arsitek juga menyadari bahwa perlindungannya sedang dibuka.
+**PENYIMPANGAN TERDETEKSI.**

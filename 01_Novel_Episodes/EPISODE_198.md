@@ -1,51 +1,37 @@
 # Episode 198 — Benturan Wadah Entropi
 
-Pintu menuju pusat labirin terbuka pada ruang yang menyerupai jantung raksasa.
+Uji coba hampir gagal pada node kedua.
 
-Dindingnya berdenyut mengikuti tubuh Kael di dunia nyata. Setiap kali Voidmaker menggerakkan tangannya di luar, otot dan saraf pada ruang ini ikut berubah menjadi lorong baru.
+Arsitek menemukan jaringan baru dan mencoba mengambil alih koordinasi.
 
-Salinan Kael menunggu di tengah jaringan tersebut.
+Voidmaker merespons dengan niat menghapus node yang terkontaminasi.
 
-Ia tidak lagi berdiri sebagai satu tubuh. Wajahnya muncul pada dinding, lantai, dan setiap jalur saraf, seolah seluruh kesadaran Kael telah menjadi wadahnya.
+Kael terjebak di antara dua sistem: satu ingin menguasai, satu ingin memusnahkan.
 
-“Kau terlambat,” kata suara dari segala arah. “Tubuh telah menerima keheningan.”
+"Tidak ada dari kalian menyentuh node."
 
-Eira menghantam lantai dengan tongkat bayangan. Resonansi kasar dari dunia nyata membuat satu bagian labirin bergetar.
+Tentu saja keduanya mengabaikannya.
 
-“Tubuhnya masih meronta. Aku bisa merasakan tulangnya mencoba mematahkan dirinya sendiri agar kau tidak dapat memakainya.”
+Zireth mengisolasi material. Kair memutus kanal Structure. Sylvara mengaktifkan node biologis cadangan dari akar lokal.
 
-Kael menahan napas.
+Kael menahan pola Voidmaker dengan phase shift.
 
-Di luar kesadaran, tubuhnya sedang melawan tanpa kendali pikiran. Gerak kecil itu memberi jalan.
+Benturan terjadi pada level frekuensi, bukan ledakan.
 
-Dia mendesinkronkan impuls saraf dari frekuensi jiwa. Ketika salinan memerintahkan tangan kanan bergerak, Kael menggeser jalur perintah ke kaki kiri. Ketika Voidmaker mencoba menyalakan Pulse, dia mengunci alirannya pada lingkaran tertutup.
+Node bergetar antara ungu dan putih.
 
-Tubuh salinan mulai berkedip.
+Kael memasukkan unsur keempat: bukan energi, tetapi aturan persetujuan lokal. Node hanya menerima perubahan jika dua sumber independen memverifikasi.
 
-Namun lawan tersebut mempelajari perubahan dengan cepat. Jaringan saraf di sekeliling mereka berubah menjadi bilah dan rantai. Eira hampir tertusuk dari belakang.
+Arsitek kehilangan kontrol tunggal.
 
-Kael membentuk perisai dari ingatan akan suara Sylvara. Benturan membuat sebagian kenangan tersebut pecah, tetapi Eira selamat.
+Voidmaker tidak bisa memutus sepihak.
 
-“Jangan lindungi aku dengan bagian dirimu yang tersisa,” geram Eira.
+Node stabil.
 
-“Kalau tidak digunakan untuk melindungi, kenangan itu hanya akan menjadi barang yang kusimpan sampai hilang.”
+Sera tertawa melalui kanal. "Kau memasukkan tata kelola ke dalam fisika."
 
-Mereka bergerak menuju simpul pusat.
+"Lebih baik daripada membiarkan fisika jadi diktator."
 
-Eira memukul ritme kasar pada dinding. Kael memakai setiap ketukan untuk mengubah pola saraf tanpa urutan yang dapat diprediksi. Salinan yang sempurna terlambat sepersekian detik setiap kali keputusan lahir dari dua kehendak berbeda.
+Dua sistem mundur.
 
-Di pusat jaringan, Kael melihat akar sebenarnya dari Wadah Entropi: residu Voidmaker telah menanam pintu kecil pada detak keduanya.
-
-Dia mengulurkan tangan.
-
-Salinan Kael muncul tepat di depan, kini tanpa wajah.
-
-“Jika pintu itu ditutup, Pulse-mu ikut mati.”
-
-Kael menatap luka realitas yang menjadi sumber kekuatannya.
-
-“Kalau harga kebebasanku adalah kehilangan kekuatan, biarkan.”
-
-Dia memisahkan pintu dari jaringan saraf.
-
-Seluruh labirin bergetar. Di dunia nyata, tubuh Kael menjerit dengan suara yang bukan sepenuhnya miliknya.
+Prototipe kedua hidup.

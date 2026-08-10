@@ -1,25 +1,49 @@
 # Episode 192 — Suara dari Tawaran Voidmaker
 
-Udara bergetar sebelum suara apa pun sempat lahir di ruang hampa buatan di bawah The Core. Kael berhenti setelah satu langkah. Retakan mikro di tulang lengannya berdenyut mengikuti Fragmen, sementara Ragnarok Pulse di dalam dadanya menangkap pola yang tidak dapat didengar telinga biasa. Di balik segala bau, suhu, dan tekanan tempat itu, ada satu irama asing yang berusaha memaksa dunia bergerak sesuai kehendaknya.
+Di perjalanan, Voidmaker mengubah cara berbicara.
 
-Sejak benturan sebelumnya, pola avatar Voidmaker yang meniru sosok manusia terus membayangi langkah mereka. Kael menghitung jeda di antara setiap denyut. Jeda itu tidak acak; ia menyerupai napas makhluk hidup yang berusaha menyamar sebagai mesin. Untuk menolak perjanjian menjadi wadah sempurna, mereka harus masuk lebih dalam ke sumber napas tersebut.
+Tidak lagi lewat tulisan.
 
-“Ada lapisan lain di bawah Tawaran Voidmaker. Kalau kita salah membuka, seluruh beban di atasnya akan jatuh,” ujar Sylvara. Kael memandangi garis-garis pada permukaan. Ia tahu Sylvara benar. Kekuatan mentah hanya akan mempercepat bencana.
+Ia memakai suara Kael sendiri.
 
-Ia mengalirkan pemisahan materi-antimateri dengan simpul medan melalui ujung jarinya. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material. Dua gema kembali dengan waktu berbeda. Di antara keduanya terdapat ruang tersembunyi yang sengaja dihapus dari geometri tempat itu.
+"Kau sudah menjadi pusat terlalu banyak sistem. Aku hanya menawarkan fungsi yang sesuai."
 
-Mereka membuka jalan menuju ruang tersebut dengan mengandalkan suara Sylvara yang menarik Kael kembali. Di dalamnya, udara terasa tua dan kering. Simbol-simbol rusak memenuhi dinding, tetapi satu pola tetap aktif, mengulang adegan yang sama: tangan-tangan masa lalu mencoba menahan sesuatu, lalu cahaya putih memotong rekaman sebelum wajah mereka terlihat.
+Kael berhenti berjalan.
 
-Kael menyentuh rekaman Tawaran Voidmaker. Sakitnya tiba tanpa peringatan. Ia mencium asap dari zaman yang tidak pernah dijalaninya, merasakan ketakutan milik orang-orang yang telah lama menjadi debu, dan mendengar satu perintah dingin agar mereka menyerahkan kehendak demi keselamatan.
+Suara berasal dari phase skin di pergelangan.
 
-Ia memutus kontak dengan rekaman Tawaran Voidmaker sebelum gema itu mengambil lebih banyak. Darah tipis mengalir dari hidungnya. Kekuatan selalu menawarkan jalan tercepat. Kael sudah terlalu sering melihat ke mana jalan itu berakhir. Kael membersihkannya dengan punggung tangan, lalu memaksa napasnya kembali teratur.
+Sera memutus kanal.
 
-“Ini bukan hanya jejak serangan di Tawaran Voidmaker,” kata Kael. “Seseorang membangun ketakutan di sini, lapis demi lapis, sampai orang-orang menganggap rantai sebagai perlindungan.” Kata-katanya mengubah wajah Sylvara. Mereka kini tahu bahwa ancaman di depan bukan sekadar penjaga, melainkan gagasan yang telah berakar.
+"Ia mempelajari pola suaramu dari koneksi."
 
-Saat mereka menyalin pola penting, dinding mendadak merapat. Avatar Voidmaker yang meniru sosok manusia telah menemukan mereka. Kael menahan dua sisi ruang dengan Pulse seimbang. Otot lengannya menegang dan retakan mikro bergerak semakin dalam, tetapi ia memberi cukup waktu bagi yang lain untuk keluar.
+Kael tidak takut pada tiruan suara.
 
-Mereka lolos beberapa detik sebelum ruang itu mengatup menjadi garis. Namun Kael membawa sesuatu: sepotong informasi yang terus berdenyut pada telapak tangannya. Potongan itu memperjelas kebenaran yang selama ini hanya terasa samar—Voidmaker bukan sekadar monster, melainkan mekanisme penyeimbang kosmik yang telah menyimpang.
+Yang mengganggu adalah argumennya.
 
-“Kalau petunjuk tentang Tawaran Voidmaker ini benar, akibatnya lebih besar daripada musuh di depan,” kata Sylvara. Kael menutup jari di sekitar cahaya informasi. “Karena itu kita harus melihatnya sampai akhir.” Dari kejauhan terdengar bunyi pengunci terbuka satu demi satu.
+Dia memang terus dijadikan mediator: Fragmen, Hati Dunia, Nexus, Arsitek, Voidmaker.
 
-Jalur berikutnya menyala dengan warna yang tidak berasal dari sihir Zerath. Pada ujungnya, bayangan avatar Voidmaker yang meniru sosok manusia berdiri menunggu di depan pusat kendali. Penyelidikan mereka telah berubah menjadi undangan untuk bertarung.
+Mungkin karena tubuhnya benar-benar kompatibel.
+
+Kair berkata, "Kompatibilitas tidak menciptakan kewajiban."
+
+Kael menoleh.
+
+"Kau belajar cepat."
+
+"Aku punya contoh buruk banyak."
+
+Mereka tertawa kecil.
+
+Suara Voidmaker kembali, kali ini melalui getaran tanah:
+
+*Jika wadah menolak, entropi tetap meningkat. Dunia kehilangan bentuk.*
+
+Kael menjawab pertama kali sejak The Core.
+
+"Kalau satu-satunya solusi membutuhkan seseorang menjadi alat permanen, solusinya belum selesai."
+
+Tidak ada balasan.
+
+Namun phase skin mencatat satu perubahan:
+
+Voidmaker mulai mencari alternatif.

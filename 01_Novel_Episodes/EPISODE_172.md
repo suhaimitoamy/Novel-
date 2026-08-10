@@ -1,45 +1,43 @@
 # Episode 172 — Suara dari Tiga Mesin Takdir
 
-The Core menghubungkan kesadaran mereka ke tiga lokasi sekaligus.
+Mesin pertama berbicara melalui jam yang tidak berdetak.
 
-Kael berdiri di satu ruangan, tetapi melihat Katedral Waktu di kiri, Menara Memori di kanan, dan Danau Jiwa tepat di bawah kakinya.
+Mesin kedua melalui kenangan yang bukan milik Kael.
 
-Master Waktu mengangkat jam tanpa jarum.
+Mesin ketiga melalui mimpi Kair.
 
-*Rhythor akan dikembalikan pada keadaan stabil sebelum pemberontakan Wadah.*
+Ketiganya mengirim pesan sama:
 
-Penjaga Memori membuka buku kosong.
+**PENYANGKAL MATERI MENDEKAT.**
 
-*Semua ingatan tentang kebebasan Roh Es akan dihapus.*
+Kael tidak menyukai istilah itu.
 
-Pendeta Jiwa menyentuh air hitam.
+"Voidmaker?"
 
-*Jiwa para korban akan dikembalikan ke fungsi yang ditetapkan.*
+Zireth membandingkan frekuensi. "Mungkin. Atau sesuatu yang menjadi bagiannya."
 
-Sylvara mengepalkan Gema Pengetahuan. “Mereka ingin membuat pengorbanan Roh Es seolah tidak pernah terjadi.”
+Pesan berikutnya berbeda pada tiap mesin.
 
-Zireth membaca hubungan ketiga mesin. “Mematikan satu saja tidak cukup. Dua yang tersisa akan membangun ulang fungsi yang hilang.”
+Waktu meminta mereka menghentikan perubahan.
 
-Kael mengirim denyut berantai melalui tiga pintu. Resonansi kembali membawa struktur failsafe: satu inti kausal yang dipecah menjadi waktu, ingatan, dan jiwa.
+Memori meminta mereka mempertahankan semua catatan.
 
-“Jadi kita harus menghantam ketiganya pada denyut yang sama.”
+Jiwa meminta mereka melindungi kontinuitas individu.
 
-“Jarak dan hukum masing-masing berbeda,” kata Zireth. “Selisih sepersekian detik akan membuat yang lain mengoreksi kerusakan.”
+Tiga tujuan yang dapat bertabrakan.
 
-Gema Pengetahuan memancarkan cahaya dan menampilkan arsip lama.
+Kael teringat Wujud Pertama.
 
-Tiga Mesin Takdir awalnya dibangun para dewa untuk menjaga sejarah Zerath dari manipulasi luar. Setelah Sistem Pahlawan dibajak, mesin-mesin itu diubah menjadi alat untuk menghapus pemberontakan, kegagalan, dan kebenaran yang mengancam kekuasaan.
+Setiap sistem percaya fungsinya paling penting.
 
-Kael memandang ketiga penjaga.
+"Kita tidak akan memilih satu mesin untuk diselamatkan dengan mengorbankan dua lainnya."
 
-“Kita tidak boleh menghancurkan fungsi aslinya.”
+Kair menoleh. "Itu pola Jalan Keempat?"
 
-Sylvara memahami maksudnya. “Putuskan perintah Sang Arsitek dan para dewa, tetapi biarkan mesin menjaga sejarah.”
+"Jangan sebut begitu."
 
-Tiga penjaga bergerak serentak.
+Kair memproses. "Mengapa?"
 
-*Variabel menolak koreksi. Prosedur pemusnahan dimulai.*
+"Karena aku sedang belajar tidak jatuh cinta pada nama metode sendiri."
 
-Jarum waktu muncul. Halaman buku dipenuhi nama mereka. Danau Jiwa membentuk tangan-tangan hitam.
-
-Pertarungan dimulai pada tiga tempat sekaligus.
+Mereka mengikuti tiga sinyal sekaligus menuju kompleks kuno yang tersembunyi di bawah dataran es.
