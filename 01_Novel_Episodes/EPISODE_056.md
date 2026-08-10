@@ -1,59 +1,109 @@
 # Episode 056 — Bayangan di Belakang
 
-Pilar cahaya mulai memudar, tetapi jejak energinya masih memenuhi aula.
+Suara pertama datang seperti geraman logam.
 
-Kael duduk di atas platform Orrey, berusaha memilah informasi yang baru masuk ke kepalanya.
+Bayangan hitam menukik melewati lubang di langit-langit dan menghantam pelataran di depan reruntuhan. Salju terlempar ke udara.
 
-Sylvara meraih lengannya. “Kau bisa berjalan? Kita harus keluar sebelum—”
+Kael sempat mengira itu naga.
 
-“Sudah terlambat,” potong Zireth.
+Lalu dia melihat sambungan pada sayapnya.
 
-Dia menatap lubang pada langit-langit. Titik hitam di kejauhan tumbuh semakin besar.
+Pelat logam hitam menggantikan sisik. Saluran ungu menyala di sepanjang leher. Di punggungnya duduk seseorang berzirah gelap dengan helm tanpa celah wajah.
 
-Bentuknya menyerupai naga, tetapi tubuhnya tersusun dari logam hitam dengan sudut tajam. Asap ungu keluar dari mesin di punggungnya.
+Zireth mengangkat lengan mekanis. "Itu bukan teknologi Dwarf."
 
-Kael mengenali siluet tersebut dari catatan terlarang Vorth Aereth.
+"Aku sudah bisa menebaknya."
 
-“Void Wyvern.”
+Sosok berhelm turun.
 
-Zireth menahan napas. “Konstruksi Magitek yang dikorupsi Void. Teknologi itu seharusnya sudah musnah.”
+Tombak putih terbentuk dari gagang pendek di tangannya—cahaya padat yang tidak berkedip sedikit pun.
 
-Wyvern meraung. Suaranya merupakan campuran logam bergesekan dan jeritan makhluk hidup.
+"Kael Drayven."
 
-Semburan energi ungu ditembakkan menuju reruntuhan.
+Suara itu keluar melalui modulator, datar dan terlalu bersih.
 
-“Berlindung!”
+"Identitas terkonfirmasi. Integrasi Fragment–Outer Void melewati ambang pengamatan. Nexus Command mengeluarkan perintah penahanan."
 
-Mereka bersembunyi di balik pilar batu hitam. Ledakan menghancurkan pintu masuk dan menutup jalur keluar dengan puing kristal.
+Kael merasakan perutnya mengeras.
 
-“Ia mengurung kita,” kata Kael.
+"Kalian yang membuat Echo Vessel?"
 
-Void Wyvern mendarat di depan reruntuhan.
+Sosok itu diam sepersekian detik.
 
-Di punggungnya duduk sosok berzirah hitam keperakan. Helm tanpa celah menutupi seluruh wajah. Tombak panjang dari energi putih dingin tergenggam di tangannya.
+Cukup lama untuk menjadi jawaban.
 
-“Kael Drayven,” ujar suara yang keluar melalui modulator. “Anomali Fragmen. Atas perintah Nexus Command, kau akan diamankan untuk evaluasi.”
+"Unit pengamatan bukan topik yang relevan."
 
-“Nexus Command?” Kael berdiri di antara puing. “Siapa kalian?”
+"Bagi orang yang wajah temannya disalin, cukup relevan."
 
-“Kami adalah keseimbangan yang seharusnya.”
+Tombak terangkat.
 
-Tombak sosok tersebut mengarah kepadanya.
+"Ikut tanpa perlawanan. Evaluasi tidak harus melukai subjek."
 
-“Fragmen hidup dan integrasi Void di dalam tubuhmu mengancam struktur realitas. Serahkan diri.”
+Sylvara mendekat ke sisi Kael. "Kalimat seperti itu selalu berakhir buruk."
 
-Sylvara mendekat kepada Kael. “Dia tidak berasal dari kekaisaran yang kita kenal.”
+Kael tidak menarik pedang.
 
-Zireth memindai zirah dan tunggangannya. “Teknologinya melampaui Magitek Dwarf maupun Elf. Void pada Wyvern juga dikendalikan sempurna. Ini bukan tingkat Rowan.”
+Dia mendengarkan zirah lawan.
 
-Faksi lain kembali muncul untuk menguasai tubuh dan kekuatannya.
+Berbeda dari konstruksi Lykaros. Tidak ada banyak frekuensi saling bertumpuk. Seluruh sistem bergerak pada satu ritme dasar yang sangat stabil.
 
-“Aku tidak akan ikut.” Api merah dan biru menyala di tangan Kael. Rune ungu pada lengan kiri ikut berdenyut.
+Dibuat untuk menolak gangguan.
 
-Sosok Berhelm mengangkat tombaknya.
+Agen Nexus maju.
 
-“Perlawanan dicatat. Protokol penahanan paksa diaktifkan.”
+Kael menunggu.
 
-Mata mekanis Void Wyvern menyala merah.
+Tombak putih menusuk.
 
-Kael, Sylvara, dan Zireth bersiap di dalam aula yang kini tidak memiliki jalan keluar.
+Zerath's Fang baru keluar pada detik terakhir. Benturan cahaya dan logam membuat telinganya berdenging. Agen itu tidak bergeser sedikit pun.
+
+Serangan kedua datang dari sudut yang tidak biasa—bukan menuju tubuh, tetapi lengan kiri Kael.
+
+Dia mundur.
+
+"Kau tidak ingin menangkapku," katanya. "Kau ingin memutus bagian ini."
+
+"Jika diperlukan."
+
+Void Wyvern di belakang mereka membuka rahang.
+
+Kael merasakan tekanan energi lebih dulu.
+
+"Turun!"
+
+Mereka menjatuhkan diri. Sinar ungu menyapu aula dan memotong dua pilar kristal.
+
+Reruntuhan berguncang.
+
+Jalur keluar utama runtuh.
+
+Zireth memandang puing yang menutup pintu. "Jadi penahanan tanpa melukai subjek tadi punya definisi yang fleksibel."
+
+Agen Nexus berjalan melewati debu.
+
+"Prioritas adalah stabilitas realitas. Bukan kenyamanan subjek."
+
+Kael memandang ke sisi belakang aula.
+
+Salah satu dinding yang terkena getaran Wyvern retak. Di baliknya terlihat cahaya biru memanjang ke luar gunung.
+
+Sebuah jembatan.
+
+Tidak ada waktu untuk memikirkan ke mana arahnya.
+
+"Sylvara. Zireth. Belakang."
+
+Kael memukul lantai dengan satu denyut resonansi. Kristal di bawah kaki Agen Nexus bergetar, tidak cukup untuk merusak zirah—cukup untuk mengganggu keseimbangannya sepersekian detik.
+
+Mereka berlari.
+
+Saat Kael menginjak jembatan cahaya, suara Agen Nexus menyusul dari belakang.
+
+"Berhenti. Struktur itu menolak ketidakselarasan."
+
+Kael melangkah lagi.
+
+Cahaya di bawah kakinya berkedip.
+
+Retakan pertama muncul tepat di bawah sisi kirinya.

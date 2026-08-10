@@ -1,65 +1,101 @@
 # Episode 064 — Void Melawan Cahaya
 
-Zevaron melepaskan seluruh energi yang dikumpulkannya.
+Energi Rowan tidak berhenti mendorong.
 
-Tornado raksasa terbentuk dari angin, petir, dan pecahan es. Pusaran itu memenuhi aula dan bergerak lurus menuju Kael serta Penjaga Celestial.
+Kael menahan alirannya dengan lengan kiri sampai jari-jarinya tidak terasa. Rune ungu di kulit membesar, membentuk pola seperti akar.
 
-“Elemental Vortex!”
+"Kael, lepas!" teriak Sylvara dari pintu aula.
 
-Penjaga terbang mundur dan membangun kubah cahaya di sekeliling altar.
+Dia dan Zireth akhirnya berhasil melewati pertahanan luar. Agen Nexus berada beberapa langkah di belakang mereka, tetapi tidak menyerang. Perhatiannya tertuju pada Hati Lykaros yang mulai tidak stabil.
 
-“Cahaya Abadi, lindungi Inti Suci.”
+Kael tidak bisa melepaskan tangan.
 
-Kael berada tepat di jalur serangan.
+Jika garis Void itu lewat, Fragmen keenam akan terkena langsung.
 
-Dia membentuk perisai api merah-biru terkuat yang mampu dipanggil. Tornado menghantam dan mengikisnya lapis demi lapis.
+Seraphis mengangkat satu telapak tangan.
 
-Pertahanannya tidak akan bertahan.
+Cahaya putih mengenai lengan Kael.
 
-Rune pada lengan kiri menyala, menawarkan energi Void sebagai jalan keluar.
+Rasa sakitnya membuat dunia hilang sesaat.
 
-Kael tahu akibatnya. Setiap kali menggunakan kekuatan itu, batas antara dirinya dan korupsi menjadi semakin tipis.
+Dia mengira Penjaga menyerangnya.
 
-Namun tornado sudah hampir menembus.
+Lalu dia menyadari cahaya itu tidak menembus tubuh.
 
-“Maaf,” gumamnya kepada tubuhnya sendiri.
+Ia menekan dari sisi lain.
 
-Void mengalir dari lengan kiri dan bercampur dengan api serta es. Aura hitam keunguan terbentuk di sekeliling Kael.
+Void Rowan mendorong dari luar.
 
-Energi tornado mulai tersedot ke dalamnya.
+Aether Seraphis mendorong dari dalam.
 
-Rasa sakit segera menyusul. Elemen murni Zevaron, Fragmen Kael, dan Void bertabrakan dalam ruang yang sama. Tubuhnya menjadi pusat tarikan yang dapat meledak kapan saja.
+Kael terjepit di antara dua energi yang seharusnya saling memusnahkan.
 
-Zevaron menatap tidak percaya. “Energi apa itu?”
+"Hentikan!"
 
-Penjaga Celestial melihat aura gelap dan mengambil keputusan berbeda.
+*Stabilkan jeda,* suara Seraphis muncul di kepalanya.
 
-“Noda Kehampaan.” Pedang kristalnya mengarah kepada Kael. “Dugaanku benar.”
+Kael teringat apa yang diperlihatkan Hati Lykaros.
 
-Sinar pemurnian ditembakkan.
+Bukan menyatukan.
 
-Kael masih berusaha menahan tornado ketika cahaya suci menghantam aura Void.
+Memberi jarak.
 
-Ledakan besar mengguncang kuil.
+Dia berhenti mencoba menahan dua kekuatan sekaligus. Sebaliknya, dia mencari titik tempat keduanya hampir bertemu dan menciptakan resonansi tipis di antaranya.
 
-Api, es, Aether, dan Void bercampur dalam gelombang yang menghancurkan sisa tornado dan melemparkan semua orang ke arah berbeda.
+Void dan cahaya bergetar.
 
-Kael menabrak pilar kristal hingga permukaannya retak.
+Lalu berhenti saling menabrak.
 
-Lengan kirinya mengeluarkan asap. Bagian itu lumpuh dan dingin, tetapi rasa sakit korupsi yang selama ini terus berdenyut mendadak mereda.
+Untuk sesaat keduanya mengalir berdampingan melalui lengan Kael.
 
-Bukan sembuh.
+Rasa sakit berubah menjadi dingin yang sangat dalam.
 
-Lebih seperti sesuatu telah dibekukan jauh di dalam struktur energinya.
+Garis korupsi Rowan terputus.
 
-Rowan menahan ledakan dari pinggir aula. Ketertarikan memenuhi matanya.
+Cahaya Seraphis padam.
 
-“Purifikasi dan korupsi terjadi bersamaan dalam satu wadah.”
+Kael jatuh ke lantai.
 
-Senyumnya perlahan muncul.
+Lengan kirinya berasap putih, bukan hitam.
 
-“Eksperimen Arsitek berkembang lebih cepat dari perkiraan.”
+Zireth berlari menghampiri dan memindainya.
 
-Kael mencoba bangkit. Zevaron dan Penjaga Celestial juga mulai berdiri, tetapi kini keduanya memandangnya dengan campuran takut dan bingung.
+"Korupsi permukaan turun."
 
-Untuk sesaat, Kael menjadi ancaman terbesar di ruangan itu.
+Kael tertawa pendek karena lelah. "Bagus."
+
+"Tapi pola di bawahnya menjadi lebih teratur."
+
+"Tentu saja ada bagian buruknya."
+
+Di sisi lain aula, Zevaron berdiri lagi.
+
+Rowan juga.
+
+Penjaga Celestial tidak lagi mengarahkan pedang kepada Kael.
+
+Agen Nexus melihat semua itu dalam diam.
+
+"Catatan diperbarui," katanya akhirnya. "Subjek tidak menunjukkan proses korupsi biasa."
+
+Kael memandang helm hitam itu.
+
+"Berhenti panggil aku subjek."
+
+"Permintaan dicatat."
+
+"Itu bukan—"
+
+Ledakan kecil memotong kalimatnya.
+
+Rowan menghancurkan salah satu pilar yang telah dia pasangi pecahan hitam.
+
+Seluruh jaringan ungu berpindah ke lantai.
+
+Hati Lykaros berkedip.
+
+Kael melihat arah alirannya dan jantungnya jatuh.
+
+Rowan tidak lagi mencoba mengkorupsi Fragmen.
+
+Dia mencoba membuatnya pecah dari dalam.

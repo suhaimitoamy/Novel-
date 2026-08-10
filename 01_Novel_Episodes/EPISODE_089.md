@@ -1,63 +1,95 @@
 # Episode 089 — Benteng Terlarang
 
-Kuil Pengorbanan berdiri di jantung Belzoth seperti spiral obsidian yang menusuk langit.
+Kuil Pengorbanan tidak memiliki pintu.
 
-Aura Void memancar dari dindingnya dan membuat udara terasa berat.
+Setidaknya tidak dari sisi yang bisa dilihat mata biasa.
 
-“Tempat ini seperti pintu menuju Kehampaan,” bisik Sylvara.
+Dinding obsidian menjulang tanpa celah. Rune merah bergerak di permukaannya seperti urat.
 
-“Memang dibangun di atas Nexus Point Void,” jawab Zireth. “Tabir antara Zerath dan dimensi lain sangat tipis di sini.”
+Kael membuka Mata Kesembilan.
 
-Kael memandang gerbang raksasa di depan.
+Seketika benteng berubah.
 
-“Rowan ada di dalam. Liontin Vorthax juga.”
+Ada puluhan pintu.
 
-Rune-rune Void menutupi permukaan pintu dan bergerak seperti makhluk hidup.
+Sebagian mengarah ke ruangan yang sama. Sebagian ke tempat kosong. Tiga berakhir langsung di Outer Void.
 
-“Segelnya akan memicu pertahanan jika dibuka paksa,” kata Zireth setelah memindai.
+Satu pintu tidak memiliki gema sama sekali.
 
-Kael mendekat dan menempelkan lengan kiri pada batu.
+"Yang itu."
 
-Rune ungu di kulitnya langsung berdenyut. Dia mengalirkan sedikit Void ke pola penjaga.
+Sylvara menatap dinding polos. "Aku tidak melihat apa-apa."
 
-Gerbang menjawab.
+"Bagus. Berarti mungkin benar."
 
-Cahaya pada rune bergerak mengikuti irama energi Kael. Batu obsidian bergeser perlahan dan membuka jalan ke dalam.
+Kael menempelkan telapak pada batu.
 
-Sylvara menatapnya. “Tempat ini mengenalimu.”
+Rune kedelapan di lengannya menyala.
 
-“Lebih tepatnya, mengenali Void dalam tubuhku.”
+Dinding terbuka seperti kelopak hitam.
 
-Mereka memasuki lorong gelap yang diterangi kristal ungu pada dinding.
+Zireth menatapnya. "Aku tidak suka benteng musuh mengenali tubuhmu sebagai kunci."
 
-Kuil tersebut menyimpan sejarah paling kelam Xyphus. Altar pengorbanan masih ternoda darah tua. Kitab-kitab terlarang hancur menjadi debu. Makhluk hasil eksperimen gagal diawetkan dalam tabung kristal retak.
+"Aku juga."
 
-“Seperti museum kegilaan para Warlock,” gumam Zireth.
+Di dalam, udara hangat dan berbau logam.
 
-Energi semakin kuat ketika mereka mendekati ruang pusat.
+Koridor spiral turun, bukan naik. Semakin dalam mereka berjalan, semakin kuat Kael merasakan sambungan antara simpul di lengannya dan sesuatu di bawah.
 
-Aula utama berbentuk lingkaran. Pusaran Void melayang di atas altar hitam, berputar pelan seperti mata yang baru terbangun.
+Mereka menemukan ruang ritual pertama.
 
-Rowan berdiri di depannya.
+Puluhan meja batu kosong.
 
-Zevaron berada di sisi sang pengkhianat, tetapi tatapan emasnya telah hilang. Kedua mata memancarkan cahaya ungu kosong. Tubuhnya tegak dan kaku seperti boneka.
+Tali pengikat tua.
 
-Kael menahan amarah. “Apa yang kau lakukan kepadanya?”
+Saluran darah yang mengering menuju satu lubang di lantai.
 
-Rowan tersenyum. “Dia meminjamkan tubuhnya untuk tujuan yang lebih besar. Setelah aku mengalahkannya di reruntuhan Lykaros, tentu saja.”
+Sylvara menahan napas.
 
-Liontin spiral Vorthax tergantung di lehernya. Retakannya kini dipenuhi energi pekat.
+"Berapa banyak?"
 
-“Benda ini lebih dari kunci resonansi,” kata Rowan sambil menyentuhnya. “Ia menyalurkan kehendak Sang Arsitek.”
+Zireth memeriksa bekas residu. "Terlalu banyak untuk dihitung dari sini."
 
-Sylvara mengangkat busur. “Kau ingin memanggilnya ke Zerath?”
+Kael tidak membiarkan matanya melihat gema lama.
 
-“Belum.” Rowan memandang tongkat obsidian yang masih dibawa Kael. “Pertama, aku mengambil kembali milikku.”
+Dia sudah tahu cukup.
 
-Tatapannya beralih ke dada Kael.
+Di ujung ruang terdapat simbol Vorthax versi lengkap: spiral retak yang dikelilingi sembilan mata.
 
-“Lalu kita memulai ujian terakhirmu sebagai Kunci Pengorbanan.”
+Bukan delapan.
 
-Zevaron mengangkat tangan. Angin dan petir mulai berkumpul tanpa emosi.
+Sembilan.
 
-Pertarungan yang mereka hindari sejak Aethelgard akhirnya menunggu di jantung Kuil Pengorbanan.
+"Mata Kesembilan sudah ada dalam lambang mereka," kata Kael.
+
+Sylvara menyentuh ukiran itu tanpa benar-benar mengenai permukaan.
+
+"Keluargaku selalu diajarkan bahwa spiral retak melambangkan pengkhianatan leluhur kami terhadap ajaran Vorthax."
+
+"Mungkin yang diwariskan kepadamu versi sejarah yang salah."
+
+"Atau setengah benar."
+
+Suara tepuk tangan terdengar dari balkon atas.
+
+Kael mendongak.
+
+Rowan berdiri di sana.
+
+"Akhirnya kalian sampai."
+
+Kael mengangkat pedang.
+
+"Di mana Zevaron?"
+
+Rowan tersenyum.
+
+"Masih hidup. Untuk sekarang."
+
+Petir menyala di balik tirai hitam di belakangnya.
+
+Seseorang berdiri di sana dengan kepala tertunduk.
+
+Zevaron.
+
+Mata pria itu kini ungu.

@@ -1,53 +1,119 @@
 # Episode 053 — Reruntuhan Cahaya Beku
 
-Setelah Angin Aether mereda, Kael, Sylvara, dan Zireth keluar dari celah es.
+Dari jauh, bangunan Lykaros tampak seperti kuil.
 
-“Energi Celestial semakin kuat,” kata Zireth sambil membaca pemindai. “Reruntuhannya tidak jauh.”
+Dari dekat, Kael tidak yakin kata itu cukup.
 
-Medan di depan berubah. Es di bawah kaki menjadi jernih seperti lantai kristal. Pilar dan lengkungan putih melayang rendah di udara tanpa penyangga.
+Tidak ada sambungan pada dindingnya. Kristal putih dan logam perak menyatu seperti tumbuh dari bahan yang sama. Lengkungan-lengkungan menggantung di udara tanpa penyangga, berputar begitu lambat hingga gerakannya baru terlihat jika diperhatikan lama.
 
-Sylvara memandang sekeliling. “Indah, tapi kosong.”
+Sylvara mengangkat wajah. "Bangsa seperti apa yang meninggalkan tempat begini?"
 
-“Seperti tempat yang ditinggalkan para dewa,” ujar Kael.
+"Bangsa yang mungkin tidak benar-benar pergi," kata Kael.
 
-Mereka tiba di lembah terlindung. Sebuah bangunan kuno berdiri di tengahnya, tersusun dari kristal putih kebiruan dan logam perak yang tidak menunjukkan karat meski telah melewati ribuan tahun.
+Dia tidak tahu kenapa mengucapkannya.
 
-Menara kecil serta balkon melayang di sekeliling struktur utama. Seluruh arsitekturnya melengkung lembut, seolah dibentuk dari satu bahan tanpa sambungan.
+Lengan kirinya kembali berdengung.
 
-“Lykaros,” gumam Kael.
+Pintu utama terbuka ketika mereka berada lima langkah darinya.
 
-Zireth mendekati dinding dan memindainya. “Tidak ada baut atau bekas penyatuan. Materialnya terikat sampai tingkat paling kecil. Aliran energi di dalamnya juga masih hidup.”
+Tidak ada suara mekanisme.
 
-Pintu utama tertutup sebagian oleh salju.
+Tidak ada debu jatuh.
 
-“Peta bintangku menunjuk tepat ke pusat bangunan,” kata Kael. Lengan kirinya berdengung semakin kuat. “Kita masuk.”
+Celah cahaya hanya muncul di tengah dinding, lalu melebar.
 
-Mereka membersihkan jalan dan melewati pintu.
+Zireth berhenti di ambang. "Aku membenci pintu yang tahu kita datang."
 
-Aula di dalam jauh lebih besar daripada yang terlihat dari luar. Langit-langit kristal menampilkan bintang-bintang meski hari masih terang. Cahaya lembut keluar dari dinding dan menerangi lantai hitam yang tertutup es tipis.
+"Kau membenci hampir semua hal yang lebih pintar dari alatmu," kata Sylvara.
 
-Di tengah ruangan melayang sebuah platform bundar. Di atasnya terdapat bola kristal bening yang dikelilingi cincin-cincin perak berputar.
+"Itu daftar yang pendek."
 
-“Orrey,” kata Zireth. “Tapi bukan untuk memetakan langit biasa.”
+Di dalam, suhu lebih hangat daripada di luar.
 
-Kael mendekat. Energi dari mekanisme tersebut terasa akrab, seperti gema Fragmen yang datang dari tempat sangat jauh.
+Aula pertama kosong. Langit-langit kristalnya menampilkan bintang, padahal matahari masih tinggi. Kael memperhatikan beberapa konstelasi dan tidak mengenali satu pun.
 
-“Hati-hati,” ujar Sylvara.
+Mungkin itu bukan langit Zerath.
 
-Begitu Kael menginjak platform, cincin Orrey berputar lebih cepat. Bola kristal menyala dan memproyeksikan peta bintang tiga dimensi ke seluruh aula.
+Di pusat ruangan melayang sebuah bola bening sebesar tubuh manusia. Tiga cincin perak berputar mengelilinginya pada sudut berbeda.
 
-Zireth menahan napas. “Peta Celestial.”
+Saat Kael mendekat, peta bintang muncul di udara.
 
-Panel-panel tersembunyi pada dinding terbuka tanpa suara.
+Bukan gambar datar.
 
-Beberapa sosok humanoid melayang keluar. Tubuh mereka terbentuk dari cahaya putih kebiruan dan kristal transparan. Senjata cahaya mulai terbentuk di tangan masing-masing.
+Ribuan titik cahaya memenuhi aula sampai mereka seolah berdiri di tengah angkasa.
 
-Suara harmonis terdengar serempak.
+Zireth lupa bicara selama beberapa detik.
 
-“Energi asing terdeteksi. Sumber Fragmen terdeteksi. Sumber Void terdeteksi. Ancaman tingkat Alfa.”
+Itu lebih mengkhawatirkan daripada reaksi apa pun.
 
-Mata kristal mereka menyala.
+Kael mengangkat tangan, tetapi belum menyentuh apa pun.
 
-“Protokol pemusnahan diaktifkan.”
+Peta berubah.
 
-Kael menghunus Zerath's Fang. Sylvara dan Zireth mengambil posisi di sisinya ketika para Penjaga Kristal mengepung platform.
+Satu garis biru muncul dari posisi mereka, menanjak ke arah puncak gunung.
+
+Kemudian garis hitam tipis menembusnya dari samping.
+
+Rune ungu di lengan Kael menyala.
+
+"Ada jalur lain."
+
+"Aku tidak melihat—"
+
+Zireth berhenti ketika Kael menunjuk ruang kosong di antara dua bintang holografik.
+
+Bagi Sylvara dan Zireth tidak ada apa-apa.
+
+Bagi Kael, ada retakan seperti tinta di air.
+
+Panel dinding terbuka.
+
+Kali ini suaranya terdengar.
+
+Denting kristal.
+
+Empat sosok melayang keluar. Tubuh mereka humanoid, tetapi tidak memiliki kulit—hanya susunan cahaya padat yang dibungkus lapisan kristal transparan. Wajahnya kosong kecuali dua titik putih.
+
+Sebuah nada panjang memenuhi aula.
+
+Lalu kata-kata terbentuk di kepala Kael.
+
+*Pola pewaris terdeteksi.*
+
+Dia menghunus Zerath's Fang.
+
+Nada kedua.
+
+*Kontaminasi luar terdeteksi.*
+
+Mata para sosok itu berubah dari putih menjadi merah.
+
+Zireth mengambil posisi di kanan Kael. Sylvara di kiri.
+
+"Kurasa sambutan resminya selesai," kata Zireth.
+
+Para penjaga mengangkat tangan.
+
+Kael menunggu serangan.
+
+Namun yang datang bukan sinar atau pedang.
+
+Seluruh gravitasi aula berubah arah.
+
+Lantai seakan ditarik ke samping.
+
+Kael terlempar ke dinding kristal, sementara peta bintang di sekelilingnya tetap diam seolah hukum ruang hanya berubah untuk mereka.
+
+Salah satu penjaga bergerak mendekat.
+
+Di dadanya muncul simbol yang sama seperti pada jalan masuk: tiga garis dan sebuah sayap patah.
+
+Kael menahan tubuh dengan Zerath's Fang.
+
+Tempat ini bukan sekadar reruntuhan.
+
+Ia masih menjalankan tugasnya.
+
+Dan bagi sistem yang menjaganya, Kael bukan tamu.
+
+Dia adalah kesalahan yang harus diperbaiki.

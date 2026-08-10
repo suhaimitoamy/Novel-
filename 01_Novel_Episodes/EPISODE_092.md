@@ -1,45 +1,95 @@
 # Episode 092 — Tiga Warna Melawan Ungu
 
-Kael berhenti melawan kekuatan Rowan secara langsung.
+Rowan menutup liontin dengan satu tangan.
 
-Dia menjaga jarak dan menunggu celah. Api biru membekukan lantai di jalur serangan berikutnya.
+Zevaron menyerang lebih brutal.
 
-Rowan melesat, lalu pijakannya tergelincir sesaat.
+Kael terdesak sampai altar belakang. Pedang dan petir tidak pernah benar-benar bersentuhan; setiap benturan dipisahkan lapisan energi ungu yang membuat Zevaron terus bergerak meski ototnya sudah robek.
 
-“Kekuatan curian itu tidak akan tunduk kepadamu selamanya,” kata Kael.
+Kalau Kael memutus aliran terlalu cepat, tubuh Zevaron mungkin ikut mati.
 
-“Diam.”
+Dia membutuhkan pemisahan bertahap.
 
-Sulur Void menyambar dari tangan Rowan. Kael melompat dan membakar ikatan tersebut dengan api merah sebelum mendarat di sisi lain aula.
+"Sylvara, buat dia bergerak ke kanan!"
 
-Tiga energi dialirkan ke Zerath's Fang.
+Panah melesat.
 
-“Tri-Elemental Slash.”
+Bukan ke Zevaron, tetapi lantai di sisi kirinya. Ledakan cahaya memaksa pria itu berbelok.
 
-Tebasan merah, biru, dan ungu menembus bagian medan pelindung yang sedang goyah. Zirah hitam Rowan tergores untuk pertama kalinya.
+"Zireth, pukul frekuensi terendah yang bisa alatmu keluarkan."
 
-Dia memandang luka tersebut dengan tidak percaya.
+"Kau akan membuat semua bautku lepas."
 
-“Bagaimana?”
+"Nanti kupungut."
 
-“Keseimbangan energinya menetralkan sebagian kekacauan Void mentah,” teriak Zireth dari tepi medan. “Kekuatanmu besar, tetapi tidak stabil.”
+Pulsa sonik mengguncang ruangan.
 
-Rowan menoleh dengan marah.
+Benang ungu terlihat semakin jelas.
 
-“Analisis murah.”
+Kael membagi tiga energinya.
 
-Dia mengumpulkan energi jauh lebih banyak. Liontin pada lehernya menyala hingga menyakitkan mata, sementara retakannya menjalar semakin lebar.
+Merah diarahkan ke udara sekitar liontin Rowan, memanaskan medan dan mengubah indeks aliran.
 
-“Dia menyiapkan serangan besar,” kata Sylvara. “Alihkan perhatiannya.”
+Biru masuk ke lantai, memperlambat resonansi lingkaran penguat.
 
-Zireth melepaskan sisa drone peledak.
+Ungu dari lengan kirinya tidak ditembakkan.
 
-Rowan menghancurkan semuanya dengan satu lambaian, tetapi pandangannya beralih selama sepersekian detik.
+Kael membuatnya meniru frekuensi kendali Arsitek.
 
-Kael memanfaatkan waktu itu.
+Rowan langsung menyadari.
 
-Dia menjejak lantai dan melesat maju. Zerath's Fang memancarkan tiga warna yang berputar rapat di sepanjang bilah.
+"Jangan."
 
-Sasarannya bukan dada atau kepala Rowan.
+"Kau suka sekali kata itu hari ini."
 
-Ujung pedang diarahkan tepat pada liontin Vorthax yang hampir pecah.
+Kael menggeser fase ungu sedikit.
+
+Benang kontrol bergetar.
+
+Zevaron tersandung.
+
+Dia menggeser lagi.
+
+Tidak memutus.
+
+Membuat dua sinyal yang hampir sama saling mengganggu sampai perintah dari Rowan tidak lagi terbaca jelas.
+
+Zevaron berhenti di tengah serangan.
+
+Matanya berkedip emas.
+
+Lalu ungu.
+
+Emas lagi.
+
+"Ka... el...?"
+
+"Tetap di sana."
+
+"Seolah aku... punya pilihan..."
+
+"Sebentar lagi."
+
+Rowan melepaskan gelombang Void ke arah Kael.
+
+Serangan itu terlalu besar untuk dihindari tanpa melepas resonansi.
+
+Kael memilih menahannya.
+
+Zerath's Fang menangkap sebagian. Sisanya menghantam bahu dan melemparkannya ke lantai.
+
+Namun tiga frekuensi tidak putus.
+
+Zevaron jatuh berlutut.
+
+Benang pertama ke lingkaran rune padam.
+
+Satu tersisa pada liontin.
+
+Satu lagi menuju Arsitek.
+
+Kael bangkit dengan darah di mulut.
+
+"Sekarang kita tahu caranya."
+
+Rowan memandangnya dengan sesuatu yang lebih dekat pada kebencian daripada yang pernah Kael lihat sebelumnya.

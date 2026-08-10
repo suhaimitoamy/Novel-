@@ -1,63 +1,97 @@
 # Episode 098 — Nasib Sang Rival
 
-Keheningan menyelimuti pintu keluar kuil setelah Rowan benar-benar lenyap.
+Zevaron sadar ketika Kael sedang membantu Rowan keluar dari aula.
 
-“Arsitek dapat menghapus bidaknya dari jarak sejauh ini,” gumam Zireth. “Kekuatan apa yang kita hadapi?”
+Hal pertama yang dia lakukan adalah mencoba berdiri.
 
-Zevaron bergerak di atas tandu.
+Hal kedua adalah mengumpat ketika gagal.
 
-Dia mengerang dan membuka mata. Cahaya ungu telah hilang, menyisakan tatapan emas yang kebingungan.
+"Kalian benar-benar menyelamatkan dia?"
 
-“Di mana aku?”
+Kael menatapnya. "Kami juga menyelamatkanmu."
 
-Pandangan Zevaron menemukan Kael, Sylvara, dan Zireth.
+"Aku tidak meminta."
 
-“Kalian.”
+"Aku mulai mengoleksi orang yang bilang begitu."
 
-Sylvara langsung menyiapkan panah.
+Zevaron menyandarkan punggung ke altar patah. Warna ungu di matanya sudah hilang, tetapi kilat emas di bawah kulit bergerak tidak stabil.
 
-“Rowan mengendalikanmu,” kata Kael. “Dia sudah pergi.”
+"Rowan?"
 
-Ingatan kembali sedikit demi sedikit. Wajah Zevaron menegang.
+"Benangnya putus."
 
-“Dia menyerangku setelah pertarungan di Kuil Celestial. Dia menjanjikan bagian dari kekuatan Fragmen keenam.”
+Zevaron menatap pria berambut putih yang nyaris tidak sadar.
 
-“Kau ditipu,” ujar Zireth.
+"Bagus. Sekarang bunuh dia."
 
-Zevaron mencoba bangkit, tetapi tubuhnya belum kuat.
+Kael menggeleng.
 
-Tatapannya kembali dipenuhi iri ketika melihat Kael.
+"Kau terlalu lunak."
 
-“Kenapa Fragmen selalu memilihmu? Apa yang istimewa dari darah campuran sepertimu?”
+"Kau terlalu konsisten."
 
-“Aku tidak pernah meminta kekuatan ini.” Kael menatapnya tenang. “Sama seperti kau tidak meminta tubuhmu diambil Rowan.”
+Zevaron tertawa, lalu meringis kesakitan.
 
-Jawaban tersebut membuat Zevaron diam.
+Mata Kesembilan memperlihatkan kerusakan dalam tubuhnya. Void yang digunakan untuk mengendalikan telah meninggalkan retakan pada jaringan energi. Ia akan pulih, tetapi bukan cepat.
 
-Amarah, malu, dan ambisi bergantian di wajahnya.
+"Kau ikut kami," kata Sylvara.
 
-“Aku hanya ingin cukup kuat untuk melindungi rasku dan membuktikan kami tidak lemah.” Dia menunduk. “Lalu keserakahan hampir membuatku menghancurkan semuanya.”
+"Tidak."
 
-“Apa yang akan kau lakukan?” tanya Sylvara.
+"Kau bahkan tidak bisa berdiri."
 
-Zevaron memandang arah luar kuil.
+"Itu masalah sementara. Harga diriku permanen."
 
-“Kembali ke kerajaanku. Gerbang Es masih dapat menjadi ancaman.”
+Zireth menghela napas. "Secara medis, argumen yang sangat buruk."
 
-Dia memaksa diri turun dari tandu.
+Kael duduk di depan Zevaron.
 
-“Aku tetap tidak menyukaimu, Anomali. Kau berutang karena aku mengalihkan Rowan di Aethelgard.”
+"Arsitek akan mencarimu lagi."
 
-Senyum pahit muncul.
+"Biarkan."
 
-“Dan aku berutang karena kau membebaskanku. Anggap kita impas.”
+"Dia sudah tahu cara masuk ke energimu."
 
-Zevaron berjalan tertatih menuju lorong lain.
+Zevaron terdiam.
 
-“Jika bertemu lagi saat memburu Fragmen terakhir, aku tidak akan menahan diri.”
+Kael melihat ketakutan kecil yang cepat ditutupi kesombongan.
 
-Zireth memandang kepergiannya. “Setidaknya satu masalah menjauh untuk sementara.”
+"Nexus bisa mengisolasi bekas kendalinya," kata Kael.
 
-Kael tidak menjawab.
+"Aku lebih baik mati."
 
-Zevaron adalah rival, pelaku, dan korban dalam waktu yang sama. Di Zerath, batas antara ketiganya semakin sulit dilihat.
+"Kebetulan mereka juga pernah ingin menangkapku. Pengalaman buruk bisa dibagi."
+
+Zevaron menatapnya lama.
+
+"Kau benar-benar tidak tahu kapan harus membenci orang dengan benar."
+
+"Aku membencimu secukupnya."
+
+Akhirnya Zevaron menerima satu kristal komunikasi dari Zireth.
+
+Bukan bergabung.
+
+Bukan berdamai.
+
+Hanya satu jalur jika dia membutuhkan bantuan.
+
+Saat mereka pergi, Zevaron memanggil Kael.
+
+"Drayven."
+
+Kael menoleh.
+
+"Lain kali kita bertarung, jangan menahan diri."
+
+"Lain kali jangan dikendalikan orang."
+
+Senyum Zevaron kembali sedikit.
+
+"Disepakati."
+
+Rival itu tetap di Belzoth.
+
+Untuk pertama kalinya, Kael tidak tahu apakah pertemuan berikutnya akan dimulai dengan serangan atau percakapan.
+
+Anehnya, ketidakpastian itu terasa sehat.

@@ -1,51 +1,101 @@
 # Episode 095 — Kenangan yang Hilang
 
-Void dari eksekusi Rowan menyelimuti Kael.
+Void dari liontin memasuki lengan Kael.
 
-Dia bersiap menerima rasa sakit, tetapi energi tersebut tidak menyerang. Rune pada lengan kiri menariknya masuk seperti pusaran.
+Dia bersiap untuk rasa sakit.
 
-Kegelapan terserap seluruhnya.
+Yang datang justru kenangan.
 
-Dingin memenuhi tubuh Kael. Bersamanya datang potongan-potongan ingatan yang bukan miliknya.
+Bukan miliknya.
 
-Rowan muda berdiri di tengah desa yang hancur oleh perang faksi Fragmen. Mayat ayah, ibu, dan adiknya terbaring di antara puing.
+Kael melihat seorang anak laki-laki berambut putih berdiri di halaman akademi yang tidak dia kenal. Tubuhnya kurus. Satu sisi wajah dipenuhi luka bakar ungu.
 
-Seorang sosok berjubah muncul dari kegelapan dan menawarkan dunia tanpa rasa sakit—dunia yang akan dibangun melalui keteraturan mutlak.
+Orang-orang memandangnya dari jauh.
 
-Rowan menerima perjanjian itu.
+*Rusak.*
 
-Kael melihatnya berlatih Void sendirian selama bertahun-tahun. Setiap kegagalan menguatkan keyakinan bahwa kebebasan hanya melahirkan perang. Dia mulai melihat Kael sebagai kunci untuk menghapus kekacauan, apa pun harga yang harus dibayar.
+*Gagal.*
 
-Penglihatan berakhir.
+*Jangan biarkan Fragment itu dekat murid lain.*
 
-Kael kembali ke aula dengan napas berat.
+Anak itu adalah Rowan.
 
-Rowan juga pernah kehilangan segalanya. Sang Arsitek menemukan luka itu dan mengubahnya menjadi rantai.
+Gambar berganti.
 
-Sylvara berlari menghampiri. “Kael, kau masih sadar?”
+Rowan remaja terikat pada meja batu. Penyihir mencoba mencabut Fragment rusak dari dadanya. Setiap percobaan membuat tubuhnya semakin hancur.
 
-“Aku melihat masa lalunya.” Kael memandang lingkaran hangus tempat Rowan menghilang. “Aku mengerti kenapa dia memilih jalan itu.”
+Tidak ada yang bertanya apakah dia ingin prosedur dilanjutkan.
 
-Tangannya mengepal.
+Gambar berganti lagi.
 
-“Tapi rasa sakit tidak membenarkan semua yang dia lakukan.”
+Rowan sendirian di ruang gelap, menunggu mati.
 
-Zireth berlutut di samping Zevaron. “Dia masih hidup. Kendali Void menghilang setelah liontin pecah.”
+Sebuah pola geometris muncul di dinding.
 
-Sylvara menatap rival mereka yang pingsan. “Apa yang kita lakukan dengannya?”
+Sang Arsitek.
 
-Kael tidak perlu berpikir lama.
+*Aku dapat membuat rasa sakitmu memiliki arti.*
 
-“Kita bawa.”
+Rowan tidak langsung menerima.
 
-Zireth mengangkat alis. “Dia akan menyerang lagi saat sadar.”
+Itu penting.
 
-“Mungkin.” Kael menatap Zevaron. “Tapi membunuh orang yang tidak berdaya atau meninggalkannya untuk dipakai Arsitek bukan jalanku.”
+Kael melihat ketakutan. Curiga. Kemarahan.
 
-Sylvara masih khawatir, tetapi tidak membantah.
+Kemudian Arsitek menunjukkan masa depan: para penyihir yang menyiksanya jatuh, dunia tanpa klasifikasi darah, tanpa lembaga yang menentukan siapa cacat dan siapa murni.
 
-Kael memandang lengan kiri yang baru saja menyerap sisa kekuatan Rowan.
+Bukan kebohongan sepenuhnya.
 
-Dingin di dalamnya terasa lebih lengkap.
+Itulah perangkap terbaik.
 
-Begitu pula pemahamannya terhadap cara Sang Arsitek mengubah orang yang terluka menjadi alat.
+Rowan menerima bantuan.
+
+Void menstabilkan Fragment rusaknya.
+
+Sebagai gantinya muncul benang pertama di jantung.
+
+Tipis.
+
+Hampir tidak terasa.
+
+Tahun demi tahun, setiap kali Rowan meminta kekuatan lebih, benang bertambah.
+
+Setiap kemenangan membuat pilihan berikutnya lebih sempit.
+
+Sampai suatu hari dia tidak lagi ingat kapan terakhir kali memilih sesuatu tanpa lebih dulu membayangkan apa yang diinginkan Arsitek.
+
+Kenangan pecah.
+
+Kael kembali ke aula sambil terengah.
+
+Rowan terbaring beberapa meter darinya, memegangi dada.
+
+Mata mereka bertemu.
+
+Kael tidak merasa kasihan.
+
+Terlalu banyak orang mati karena Rowan untuk perasaan sesederhana itu.
+
+Namun kebenciannya berubah bentuk.
+
+"Aku melihatnya," kata Kael.
+
+Rowan menutup mata.
+
+"Keluar dari kepalaku."
+
+"Aku tidak memilih masuk."
+
+"Kau tidak tahu apa-apa."
+
+"Aku tahu kau pernah punya pilihan."
+
+Rowan membuka mata lagi.
+
+Kael melanjutkan.
+
+"Dan mungkin masih punya satu."
+
+Di lengan kiri Kael, energi liontin menyusun peta benang Arsitek.
+
+Untuk pertama kalinya mereka memiliki jalur nyata menuju sumber kontrol itu.

@@ -1,69 +1,117 @@
 # Episode 052 — Angin Aether
 
-Kael, Sylvara, dan Zireth memasuki celah sempit di antara dinding es.
+Mereka menemukan jalan aman dengan mengikuti sisi tebing, bukan celah utama.
 
-Angin menghantam dari depan begitu mereka melangkah masuk. Serpihan kristal bercahaya terbawa bersama alirannya dan menggores jubah seperti pecahan kaca.
+Hanya ada ruang selebar satu bahu. Kael harus berjalan miring, telapak tangannya menempel pada es untuk menjaga keseimbangan. Di kiri, dinding putih. Di kanan, jurang yang tidak terlihat dasarnya.
 
-Sylvara mengangkat lengan untuk melindungi mata. “Angin ini mendorong kita mundur.”
+Lalu angin datang.
 
-Zireth menanamkan kaki mekanisnya ke permukaan es. Data pada pemindai bergerak liar.
+Bukan hembusan pertama yang membuatnya berhenti, melainkan cara udara itu menarik panas dari kulit.
 
-“Aether murni. Ini Aether Wind.”
+Kael merasa seolah paru-parunya dikosongkan lebih cepat daripada dia bernapas.
 
-Dia meninggikan suara agar terdengar di tengah siulan kristal.
+Sylvara mencengkeram tebing. "Ada yang salah dengan anginnya."
 
-“Paparan terlalu lama akan menguras sihir, bahkan energi kehidupan.”
+Kristal-kristal kecil berpendar di udara, terbawa arus seperti debu bintang. Saat salah satunya menyentuh punggung tangan Kael, kulitnya mati rasa.
 
-Kael menahan tubuh melawan angin. Anehnya, lengan kirinya terasa lebih nyaman daripada bagian tubuh lain. Pola rune ungu berdenyut seolah menyerap sebagian energi yang menerpa.
+Zireth menatap pembacaan di lengannya. "Aether dalam konsentrasi tinggi."
 
-“Angin ini memberi makan sesuatu dalam lenganku.”
+"Berbahaya?"
 
-Mereka terus maju. Debu kristal menempel pada pakaian dan kulit, berkilau seperti bintang kecil.
+"Kalau kita terus berdiri di sini, ya."
 
-Zireth mengambil salah satu serpihan dari sarung tangan logamnya.
+Itu cukup.
 
-“Kristal Aether. Residu energi Celestial. Kita sudah dekat dengan wilayah mereka.”
+Mereka bergerak.
 
-Bayangan terbang muncul dari badai.
+Setiap sepuluh langkah, Kael harus berhenti agar pandangannya tidak menggelap. Aether tidak melukai seperti Void. Ia melakukan sesuatu yang lebih halus—menarik energi dari tubuh sampai otot terasa kosong.
 
-Beberapa burung raksasa menukik dengan sayap yang terbentuk dari jalinan cahaya kristal.
+Anehnya, lengan kiri Kael tidak melemah.
 
-“Aether Roc,” kata Zireth. “Penjaga semi-energi. Mereka menyerang apa pun yang dianggap tidak murni.”
+Rune ungu di bawah kain justru menghangat.
 
-Kawanan itu datang dengan paruh terarah kepada mereka.
+Dia menyadarinya ketika kristal Aether yang menempel di sarung tangannya kehilangan cahaya lebih cepat daripada yang lain.
 
-“Kita tidak bisa bertarung di tengah angin,” ujar Kael.
+Void di tubuhnya sedang memakan sesuatu.
 
-“Ada ceruk di sebelah kanan.” Sylvara menunjuk dinding.
+Kael segera menarik tangan dari dinding.
 
-Mereka berlindung sesaat sebelum seekor Roc menghantam tempat semula. Paruh kristalnya menancap dalam pada es.
+"Jangan sentuh kristalnya," katanya.
 
-“Mereka tertarik pada Fragmenmu,” kata Zireth. “Mungkin juga rune di lenganku.”
+Zireth menoleh. "Kenapa?"
 
-Kael melihat burung-burung itu berputar untuk serangan berikutnya. Lengan kirinya kembali berdenyut.
+"Lenganku menyerapnya."
 
-Jika mereka mengejar energi murni, dia dapat memberi sesuatu yang berlawanan.
+Wajah Zireth langsung kehilangan nada bercandanya.
 
-Kael mengangkat tangan korupnya. Energi Void dikumpulkan menjadi bola kecil ungu yang tidak stabil.
+"Berapa banyak?"
 
-Ketika Roc pertama menukik, Kael melemparkannya.
+"Aku tidak tahu."
 
-Bola itu menghantam dada makhluk.
+"Jawaban itu kembali tidak menenangkan."
 
-Cahaya pada tubuh Aether Roc meredup. Retakan menyebar di sepanjang sayap kristalnya, dan jeritan tajam memenuhi celah.
+Suara melengking memotong angin.
 
-Makhluk yang terluka berbalik. Seluruh kawanan mengikutinya dan menghilang ke dalam badai.
+Bayangan besar melintas di atas mereka.
 
-Sylvara memandang Kael. “Kau dapat mengendalikan Void itu sekarang?”
+Kael mendongak tepat saat seekor makhluk bersayap menukik dari kabut. Tubuhnya seperti burung pemangsa, tetapi setiap bulu terbentuk dari kristal transparan yang memecah cahaya menjadi warna pucat.
 
-“Belum sepenuhnya.” Kael menatap telapak tangannya yang dingin dan nyeri. “Rasanya masih salah. Tapi berhasil.”
+Sylvara menembak tanpa perlu diperintah.
 
-Zireth mengamati residu ungu di udara.
+Anak panah rune membentur sayap makhluk dan terpental.
 
-“Aether murni rentan terhadap Void. Kau menemukan senjata baru.”
+Burung itu berbelok di udara.
 
-Tatapannya turun ke retakan pada lengan Kael.
+Dua lagi muncul di belakangnya.
 
-“Dan mungkin racun baru bagi tubuhmu sendiri.”
+"Kita tidak punya ruang untuk bertarung," kata Kael.
 
-Angin di luar ceruk mulai mereda. Kael menutup kembali lengannya, tetapi denyut rune ungu belum berhenti.
+"Mereka juga tahu," sahut Sylvara.
+
+Makhluk pertama menukik lagi.
+
+Kael merasakan pola getarannya sebelum melihat lintasan penuh. Aether di sayapnya membentuk ritme tetap—denyut yang menjaga struktur kristal tetap menyatu.
+
+Refleks pertamanya adalah melempar Void seperti sebelumnya.
+
+Dia menahannya.
+
+Setiap kali menggunakan Void mentah, sesuatu di lengannya menjadi sedikit lebih mudah bergerak sendiri.
+
+Kael menunggu sampai makhluk itu mendekat.
+
+Lalu dia mengirimkan getaran kecil melalui telapak tangan—bukan ledakan, hanya satu denyut pendek yang sengaja dibuat tidak selaras dengan ritme sayapnya.
+
+Makhluk itu mendadak kehilangan keseimbangan.
+
+Kristal pada sayap kanan berdenting satu sama lain. Retakan menyebar. Ia jatuh melewati mereka dan menghilang ke jurang.
+
+Dua lainnya langsung berputar menjauh.
+
+Kael memandangi tangannya.
+
+Tidak ada bola Void.
+
+Tidak ada api.
+
+Hanya resonansi.
+
+"Apa yang kau lakukan?" tanya Sylvara.
+
+"Aku membuat sayapnya lupa cara tetap utuh."
+
+Zireth menatapnya beberapa detik terlalu lama.
+
+"Itu bukan kemampuan yang kau punya kemarin."
+
+Kael tahu.
+
+Itulah masalahnya.
+
+Di ujung jalur, angin tiba-tiba melemah. Kabut terbuka.
+
+Di seberang lembah, struktur putih-perak berdiri di antara es—terlalu halus, terlalu utuh, terlalu indah untuk menjadi reruntuhan biasa.
+
+Lykaros akhirnya terlihat.
+
+Dan seluruh bangunan itu sedang menyala pelan, seolah baru saja menyadari kedatangan mereka.

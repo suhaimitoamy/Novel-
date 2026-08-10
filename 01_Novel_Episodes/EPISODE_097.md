@@ -1,61 +1,79 @@
 # Episode 097 — Kejatuhan Rowan
 
-Mereka hampir mencapai gerbang utama ketika suara langkah terseret datang dari balik pilar runtuh.
+Rowan mencoba berdiri.
 
-Rowan muncul.
+Kakinya gagal.
 
-Zirahnya retak dan tubuhnya dipenuhi luka bakar Void. Tatapannya kabur, tetapi dia masih hidup.
+Selama bertahun-tahun jaringan Arsitek bukan hanya mengendalikan, tetapi juga menahan Fragment rusak di tubuhnya agar tidak runtuh. Setelah benang diputus, tubuh Rowan harus kembali menanggung kerusakan yang selama ini ditunda.
 
-“Kael?” suaranya serak.
+Retakan ungu muncul di lehernya.
 
-Kael berhenti. “Sudah berakhir. Arsitek meninggalkanmu.”
+Kael bergerak mendekat.
 
-Rowan tertawa getir. Darah hitam mengalir dari sudut bibirnya.
+"Jangan sentuh aku."
 
-“Dia selalu meninggalkan bagian yang tidak lagi berguna.” Tangannya mencari liontin yang sudah hancur. “Setelah semua yang kulakukan.”
+"Kau akan mati."
 
-“Kenapa kau begitu mempercayainya?”
+"Kemungkinan besar."
 
-Rowan menatap langit-langit gelap.
+Tidak ada takut pada suaranya.
 
-“Aku lelah melihat dunia hancur oleh perang para dewa dan perebutan Fragmen. Aku kehilangan semuanya.”
+Hanya lelah.
 
-Dia memandang Kael dengan amarah yang telah berubah menjadi penyesalan.
+Kael mengingat kenangan yang dilihatnya.
 
-“Arsitek menjanjikan dunia tanpa kehilangan. Aku percaya keteraturan mutlak dapat mencegah orang lain mengalami hal yang sama.”
+Anak yang diikat pada meja.
 
-“Dengan mengorbankan Kael dan melepaskan Kehampaan?” tanya Sylvara tajam.
+Laki-laki muda yang diberi pilihan palsu.
 
-Rowan menunduk.
+Lalu semua orang yang dibunuh Rowan setelahnya.
 
-“Aku dibutakan oleh janji yang ingin kudengar.”
+Keduanya benar.
 
-Rune-rune dingin muncul di lantai di bawahnya.
+Satu tidak menghapus yang lain.
 
-Zireth mengangkat pemindai. “Itu bukan sihir Rowan.”
+"Aku tidak memaafkanmu," kata Kael.
 
-Rowan melihat pola tersebut dan tersenyum pahit.
+Rowan tertawa pendek. "Syukurlah. Aku akan muak kalau kau mulai berkhotbah."
 
-“Arsitek tidak menyukai bidak gagal yang masih hidup.”
+"Tapi aku juga tidak akan berdiri melihatmu mati kalau bisa dicegah."
 
-Energi penghapus mulai berkumpul.
+Kael menyalurkan dingin biru ke sekitar Fragment Rowan untuk memperlambat kerusakan.
 
-“Pergilah, Kael. Hentikan Dia sebelum terlambat.”
+Rowan memejamkan mata.
 
-Kael melangkah maju, tetapi ledakan Void lebih cepat.
+"Selalu ingin menyelamatkan semuanya."
 
-Kegelapan menelan Rowan tanpa meninggalkan tubuh atau bayangan.
+"Sedang mencoba mengurangi kebiasaan itu."
 
-Ketika cahaya padam, hanya lingkaran hangus tersisa.
+"Bagus. Dunia akan membunuhmu kalau tidak."
 
-Kael berdiri diam.
+Retakan berhenti menyebar, tetapi tidak menutup.
 
-Sylvara meletakkan tangan pada bahunya. “Dia memilih jalannya dan membayar harganya.”
+Zireth memeriksa. "Stabil sementara. Kita butuh fasilitas, bukan lantai kuil."
 
-Kael memandang tempat Rowan lenyap.
+Rowan membuka mata.
 
-Sang Arsitek telah mengubah luka seorang anak menjadi alat, lalu menghapusnya ketika alat itu retak.
+"Urdron."
 
-Tekad Kael untuk menghentikan entitas tersebut tidak lagi lahir hanya dari kebutuhan menyelamatkan Zerath.
+Kael menoleh.
 
-Kini ada nama lain yang ikut dibawanya.
+"Apa?"
+
+"Sang Arsitek memiliki simpul utama di bawah Urdron. Kota industri tua Dwarf. Bukan markasnya—jangan senang dulu. Tapi salah satu pusat data yang menyimpan model realitas Zerath."
+
+"Kenapa memberitahu?"
+
+Rowan menatap langit-langit.
+
+"Karena untuk pertama kalinya dalam waktu lama aku tidak tahu apa yang akan kulakukan besok."
+
+Kalimat itu sederhana.
+
+Kael mengerti harganya.
+
+Rowan Galt, pengkhianat yang selalu tampak tiga langkah di depan semua orang, akhirnya jatuh bukan karena dikalahkan dalam duel.
+
+Dia jatuh dari jalan yang telah dibangun untuknya.
+
+Dan sekarang bahkan dirinya sendiri tidak tahu di mana akan mendarat.

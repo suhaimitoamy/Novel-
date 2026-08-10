@@ -1,39 +1,99 @@
 # Episode 093 — Retakan di Hati Pengkhianat
 
-Zerath's Fang melesat menuju liontin Vorthax.
+Zevaron terbaring di lantai, tetapi kesadarannya kembali.
 
-Rowan mengangkat lengan yang dilapisi Void untuk menangkis. Namun perhatiannya terlambat kembali setelah ledakan drone.
+"Bunuh dia," katanya serak.
 
-Ujung bilah menyentuh permukaan liontin.
+Kael mengira dia bicara tentang dirinya.
 
-Benturannya tidak besar. Energi tiga warna yang dibawa Kael justru masuk ke dalam retakan dan mengacaukan aliran Void di dalamnya.
+Zevaron menatap Rowan.
 
-Garis pecah menyebar ke seluruh permukaan.
+"Kalau kau punya kesempatan... bunuh dia."
 
-Cahaya ungu berkedip tanpa pola.
+Rowan mendekat dengan tenang.
 
-Rowan menjerit ketika energi yang semula mengalir keluar berbalik menghantam tubuhnya.
+"Kau selalu lebih berguna ketika tidak berpikir."
 
-Ledakan Void mendorong Kael menjauh. Rowan terhuyung sambil mencengkeram liontin di lehernya.
+Zevaron tertawa, lalu batuk darah. "Dan kau selalu lebih menyedihkan ketika berpura-pura tidak takut."
 
-“Tidak. Belum sekarang.”
+Sesuatu pada wajah Rowan berubah.
 
-Kegelapan menyembur dari celah-celah benda tersebut dan membakar zirah serta kulitnya.
+Kael melihatnya dengan Mata Kesembilan.
 
-“Arsitek, bantu aku mengendalikannya.”
+Bukan emosi.
 
-Kael mendarat dengan susah payah. “Energinya terlalu besar untuk wadah itu.”
+Benang.
 
-“Hubungan paksa dengan Nexus Point terputus,” kata Zireth setelah melihat pemindai. “Liontin mengalami kelebihan beban.”
+Dari liontin di dada Rowan, jalur hitam menembus tepat ke jantungnya.
 
-Rowan mengangkat wajah.
+Rowan juga terikat.
 
-Kebencian masih ada dalam matanya, tetapi kini bercampur takut. Untuk pertama kalinya, keyakinannya kepada Sang Arsitek tampak retak bersama liontin di tangannya.
+Lebih dalam daripada Zevaron.
 
-“Kau tidak memahami pengorbanan yang dibutuhkan untuk membangun tatanan sempurna.”
+"Kau dikendalikan."
 
-Energi liar terus merobek tubuhnya.
+Rowan berhenti.
 
-Pertarungan telah berubah. Kael tidak lagi menghadapi Rowan yang mengendalikan Void.
+"Jangan mencoba menyamakan kami."
 
-Dia menghadapi seseorang yang sedang ditelan oleh kekuatan yang dipercaya akan menyelamatkannya.
+"Aku tidak. Zevaron dipaksa lewat sistem saraf. Kau diberi ruang cukup banyak untuk percaya semua pilihan ini milikmu."
+
+Void meledak dari tubuh Rowan.
+
+Kael nyaris tidak sempat menangkis.
+
+"Diam."
+
+Reaksi itu mengonfirmasi lebih dari jawaban mana pun.
+
+Kael memandang benang menuju jantung.
+
+Ada retakan kecil di sana.
+
+Sesuatu dalam diri Rowan masih menolak.
+
+Sangat kecil.
+
+Mungkin hanya kebencian terhadap Arsitek karena diperlakukan sebagai alat.
+
+Mungkin penyesalan.
+
+Kael tidak tahu.
+
+Dan dia menolak mengarang cerita yang nyaman.
+
+"Rowan. Siapa yang memberimu liontin itu?"
+
+"Kau tidak berhak—"
+
+"Siapa?"
+
+Liontin berdenyut.
+
+Rowan menekan dadanya.
+
+Rasa sakit nyata muncul di wajahnya.
+
+Kael melihat benang hitam menarik lebih kencang, seolah pertanyaan itu sendiri melanggar batas.
+
+"Kau bahkan tidak boleh menjawab."
+
+Rowan menatapnya penuh kebencian.
+
+Tetapi kebencian itu tidak seluruhnya untuk Kael.
+
+Retakan pada benang jantung melebar.
+
+Sang Arsitek, di mana pun berada, merespons.
+
+Suara geometris memenuhi ruangan.
+
+Bukan lewat udara.
+
+Lewat semua rune sekaligus.
+
+*Jangan dengarkan dia, Rowan.*
+
+Kael merasakan kulitnya merinding.
+
+Untuk pertama kalinya Arsitek berbicara langsung di dunia fisik.

@@ -1,61 +1,115 @@
 # Episode 100 — Fajar sebelum Badai Terakhir
 
-Kael berdiri di depan Sosok Berhelm.
+Matahari terbit ketika mereka keluar dari Kuil Pengorbanan.
 
-“Aset Kritis berarti apa?”
+Belzoth masih gelap, tetapi garis jingga tipis muncul di cakrawala.
 
-“Kegagalan Rowan membuktikan kau mampu menentang Struktur Sang Arsitek,” jawabnya. “Kau bukan lagi sekadar variabel liar. Nexus menilaimu sebagai penyeimbang aktif yang mungkin berguna.”
+Kael berhenti di tangga obsidian.
 
-Zireth maju setengah langkah. “Apakah Nexus akhirnya akan membantu?”
+Seratus episode kehidupannya—kalau dia mau menghitungnya seperti itu—terasa jauh lebih panjang daripada usia tubuhnya.
 
-“Kami tidak ikut campur dalam konflik satu realitas kecuali ancamannya meluas ke multiverse.”
+Aranyel.
 
-Sosok Berhelm menunjuk Void Wyvern.
+Sylvara.
 
-“Namun kami dapat mengantar kalian ke perbatasan Karag Thürm, dekat Urdron.”
+Zireth.
 
-Sylvara menatapnya tidak percaya. “Kau benar-benar menawarkan tumpangan?”
+Rowan.
 
-“Hanya transportasi. Setelah itu, pertarungan untuk Zerath kembali menjadi tanggung jawab kalian.”
+Gerbang Es.
 
-Dia menaiki konstruksi tersebut.
+Nyara.
 
-“Waktu terbatas. Sang Arsitek akan mengaktifkan rencana cadangan setelah kegagalan Belzoth.”
+Zevaron.
 
-Kael, Sylvara, dan Zireth naik ke punggung Wyvern.
+Nama-nama itu tidak lagi terasa seperti potongan kejadian acak. Semuanya terhubung pada jaringan yang lebih besar.
 
-Mesin senyapnya membawa mereka meninggalkan pulau, menembus badai, lalu melintasi lautan menuju pegunungan Karag Thürm.
+Suara mesin datang dari langit.
 
-Selama perjalanan, Kael memandang rune ungu pada lengannya.
+Void Wyvern turun di pantai.
 
-Setiap pertempuran telah membawanya menuju Fragmen terakhir dan jantung mesin Urdron. Penglihatan Nyara mungkin menunjukkan satu kemungkinan, bukan akhir yang pasti.
+Agen Nexus berjalan mendekat sendirian.
 
-Jalan Keempat berarti dia masih dapat memilih.
+Tombaknya tidak aktif.
 
-Void Wyvern mendarat di pegunungan tandus.
+"Transmisi liontin Arsitek terputus," katanya. "Status Rowan Galt tidak dapat ditentukan. Status Kael Drayven diperbarui."
 
-Sosok Berhelm menunjuk lembah tersembunyi.
+Kael menghela napas. "Silakan. Aku rindu disebut variabel."
 
-“Reruntuhan Urdron berada di depan. Ingatlah keseimbangan ketika memilih kekuatan yang akan kau gunakan.”
+"Aset kritis."
 
-Dia terbang pergi tanpa menunggu jawaban.
+"Lebih buruk."
 
-Kael, Sylvara, dan Zireth berdiri di tepi lembah. Energi kuno yang sangat besar berdenyut dari bawah tanah.
+Agen itu mengabaikan komentar.
 
-“Pembacaannya melampaui Nexus Point Belzoth,” kata Zireth.
+"Nexus mendeteksi aktivasi simpul Urdron. Setelah kejadian Aethelgard dan Belzoth, Command menerima bahwa metode penahananmu memiliki probabilitas kegagalan lebih tinggi daripada kerja sama terbatas."
 
-Fragmen di dada Kael menjawab dengan getaran kuat.
+"Cara panjang mengatakan kalian butuh bantuan."
 
-Bukan peringatan. Sebuah panggilan.
+"Benar."
 
-Awan hitam keunguan berkumpul di atas Urdron. Pusat pusaran robek, memperlihatkan bintang asing dan kehampaan dingin di balik langit.
+Kejujuran itu membuat Kael menatapnya.
 
-Kael mendongak.
+"Apa yang ada di Urdron?"
 
-“Gerbang dimensi.”
+"Kompleks industri pra-Sundering. Arsip Dwarf menyebutnya kota mati. Nexus menyebutnya simpul observasi empat. Arsitek mungkin menyebutnya sesuatu yang lain."
 
-Retakan terus membesar di atas tujuan mereka.
+Zireth mendekat. "Kami tidak akan masuk berdasarkan informasi Nexus saja."
 
-“Sang Arsitek sudah memulai rencananya.”
+"Keputusan bijak."
 
-Tanpa waktu untuk beristirahat, mereka berlari menuju Urdron dan awal dari pertarungan terakhir yang datang lebih cepat daripada penglihatan mana pun.
+Sylvara mengangkat alis. "Kalian benar-benar sedang belajar."
+
+Agen Nexus memberikan kristal data.
+
+"Semua catatan yang Command izinkan untuk dibuka."
+
+"Yang diizinkan?"
+
+"Aku belum mengatakan Nexus menjadi organisasi baik dalam satu malam."
+
+Kael hampir tertawa.
+
+Dia menerima kristal itu.
+
+Di kejauhan, langit di utara-timur retak tipis.
+
+Bukan ilusi.
+
+Garis ungu muncul di antara awan, memperlihatkan bintang di balik siang hari.
+
+Agen Nexus menatapnya.
+
+"Simpul Urdron mulai aktif."
+
+Kael membuka Mata Kesembilan.
+
+Dari retakan langit, ribuan benang kemungkinan menyebar ke seluruh Zerath.
+
+Beberapa menuju perang.
+
+Beberapa menuju kehancuran.
+
+Beberapa masih kosong.
+
+Kael memejamkan mata lagi.
+
+Dia tidak perlu melihat semuanya.
+
+Cukup langkah berikutnya.
+
+"Kita cari data. Kita siapkan jalan keluar. Baru masuk Urdron."
+
+Zireth mengangguk.
+
+Sylvara menarik jubahnya.
+
+Agen Nexus kembali ke Wyvern.
+
+Fajar naik perlahan di atas Belzoth.
+
+Untuk pertama kalinya Kael tidak merasa sedang mengejar petunjuk yang ditinggalkan musuh.
+
+Dia sedang menyiapkan pertanyaan sendiri.
+
+Dan badai berikutnya sudah menunggu jawabannya.

@@ -1,53 +1,111 @@
 # Episode 069 — Inti Kuil Berguncang
 
-Tangan Rowan yang diselimuti Void hampir menyentuh Inti Cahaya.
+Lantai terbuka di bawah altar.
 
-“Akhirnya.”
+Bukan runtuh.
 
-Penjaga Celestial mengerahkan sisa tenaganya. Sinar keemasan ditembakkan dari ujung pedang dan memaksa Rowan menghindar.
+Mekanisme kuno memisahkan lingkaran-lingkaran kristal dan menurunkan Hati Lykaros ke ruang di bawah kuil.
 
-Gangguan itu hanya berlangsung sepersekian detik, tetapi cukup bagi Kael untuk bertindak.
+Seraphis terbang mengikutinya.
 
-Dia terlalu jauh untuk mencapai altar dengan tubuhnya. Namun Inti tersebut telah merespons resonansinya sebelumnya.
+Kael melompat tanpa berpikir.
 
-Kael mengarahkan seluruh sisa tenaga mental dan energi Fragmen menuju cahaya yang berputar.
+Sylvara berteriak namanya dari atas.
 
-“Jangan biarkan dia menyentuhmu.”
+Dia jatuh beberapa meter sebelum medan gravitasi menangkap tubuhnya dan menurunkannya perlahan.
 
-Inti Cahaya menjawab.
+Ruang inti jauh lebih besar daripada aula utama.
 
-Cahaya bintang cair di dalamnya berputar semakin cepat. Gelombang Aether meledak dari altar dengan kekuatan jauh lebih besar daripada pertahanan sebelumnya.
+Ribuan garis cahaya berlari di dinding seperti pembuluh darah. Semuanya terhubung pada Hati Lykaros di pusat.
 
-Rowan menerima hantaman paling dekat dan terlempar melintasi aula.
+Satu bagian jaringan telah berubah ungu.
 
-“Tidak!”
+Korupsi Rowan.
 
-Zevaron ikut tersapu dan menabrak dinding kristal hingga retak.
+"Bisa dibersihkan?" tanya Kael.
 
-Penjaga Celestial telah menghabiskan kekuatan terakhirnya. Tubuh cahayanya meredup, berubah transparan, lalu pecah menjadi debu keemasan.
+Seraphis tidak menjawab langsung.
 
-Kael berada dekat dengan pusat ledakan.
+*Hati telah menerima luka luar. Sistem memasuki protokol penguburan.*
 
-Energi murni merobek tubuhnya. Void pada lengan kiri bereaksi keras, seperti racun yang dibakar keluar tetapi menolak meninggalkan wadahnya.
+"Penguburan?"
 
-Dia berteriak sebelum pandangan mulai gelap.
+*Jika kestabilan turun melewati ambang, seluruh Aethelgard akan dijatuhkan ke kedalaman gunung dan jalur langit diputus.*
 
-Kuil berguncang.
+Kael menatap dinding.
 
-Pilar-pilar kristal pecah. Bagian langit-langit jatuh ke aula, sementara Inti Cahaya terus berputar tanpa kendali.
+"Itu berarti kuil runtuh."
 
-Di luar, Sylvara dan Zireth merasakan getaran tersebut. Sosok Berhelm juga masih berada di sekitar kuil setelah hanya menahan Void Wyvern di perimeter.
+*Ya.*
 
-“Strukturnya akan runtuh,” kata Zireth.
+"Semua orang di atas?"
 
-“Kael!” Sylvara berlari menuju pintu yang tertutup puing.
+*Kerugian lokal diterima.*
 
-Cahaya putih menyembur dari celah-celah dinding.
+Kael memejamkan mata sebentar.
 
-Di dalam, Kael terbaring beberapa meter dari altar. Kesadarannya timbul tenggelam di tengah energi yang semakin liar.
+Tentu.
 
-Penjaga terakhir Lykaros telah lenyap.
+Sistem kuno lain yang rela membunuh manusia untuk menjaga fungsi.
 
-Rowan dan Zevaron tidak terlihat di balik reruntuhan.
+"Tidak."
 
-Inti Cahaya terus membesar, seolah kuil itu sendiri tidak lagi mampu menahan kekuatan yang dibangunkan.
+*Perintah tidak dapat dibatalkan.*
+
+"Bukan perintah. Pernyataan. Aku tidak akan membiarkannya."
+
+Dia mendekati Hati.
+
+Kali ini Seraphis tidak menghalangi.
+
+Kael menempelkan telapak tangan kanan pada cincin luar.
+
+Korupsi ungu langsung mencoba meraih lengan kirinya seolah mengenali rumah.
+
+Dia membiarkannya mendekat, lalu menutup jalur sebelum masuk ke tubuh.
+
+Bukan menyerap.
+
+Mengarahkannya.
+
+Kael membentuk resonansi berlawanan dan perlahan memaksa pola korupsi bergerak menjauh dari pusat.
+
+Setiap sentimeter terasa seperti menarik kawat berduri dari saraf.
+
+Suara lain muncul dari Hati.
+
+Bukan kalimat.
+
+Kenangan.
+
+Kael melihat langit penuh kapal cahaya. Kota Lykaros. Anak-anak berlari di jembatan foton. Lalu alarm. Gerbang hitam di antara bintang. Pengosongan kota.
+
+Sebuah perempuan berdiri di ruang yang sama.
+
+Nyara.
+
+Dia menaruh tangan pada Hati dan berkata sesuatu yang tidak terdengar.
+
+Kemudian memecah kesadarannya menjadi sembilan jalur cahaya.
+
+Gambaran lenyap.
+
+Kael tersentak.
+
+"Nyara masih ada di jaringan ini."
+
+Seraphis menundukkan kepala.
+
+*Sebagian.*
+
+Gunung berguncang lebih keras.
+
+Dari atas terdengar suara Zireth melalui saluran komunikasi.
+
+"Kael! Seluruh puncak turun! Kalau ada rencana bagus, sekarang waktu yang tepat!"
+
+Kael melihat Hati Lykaros.
+
+Retakannya bertambah satu.
+
+Dia punya beberapa menit sebelum Aethelgard mengubur dirinya sendiri.

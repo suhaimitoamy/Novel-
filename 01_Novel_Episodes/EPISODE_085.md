@@ -1,61 +1,87 @@
 # Episode 085 — Perpisahan dan Peringatan
 
-Ketika mereka mendekati perbatasan Xyphus, getaran energi datang dari arah sanctuary Nyara.
+Pagi di Sylphara terasa terlalu biasa.
 
-Sylvara menoleh ke hutan. “Apa itu?”
+Burung kembali bersuara. Kabut bergerak mengikuti angin. Bayangan jatuh pada arah yang benar.
 
-Kael berhenti.
+Kael hampir membencinya.
 
-Koneksi mental yang sangat lemah menyentuh pikirannya, lalu terputus seperti benang yang dipotong.
+Seolah tempat itu tidak tahu Nyara baru saja menghilang.
 
-“Nyara.”
+Kolam kesembilan juga sudah tidak ada. Yang tersisa hanya lingkaran rumput basah dan satu batu kecil bertuliskan koordinat dalam rune Celestial.
 
-Dia berbalik hendak kembali.
+Zireth menyalin datanya.
 
-Zireth menahan lengannya. “Arsitek mengincarnya karena hubungan denganmu. Kembali sekarang mungkin justru membuka jalan lain menuju sanctuary.”
+"Benteng Vorthax berada di perbatasan wilayah yang ditinggalkan setelah Dark Convergence."
 
-“Tapi dia dalam bahaya.”
+Sylvara diam lebih lama dari biasanya.
 
-“Nyara menyuruh kita pergi,” kata Sylvara lembut. “Kita harus menghormati pilihannya.”
+"Keluargaku tidak pernah membicarakan tempat itu kecuali sebagai kutukan."
 
-Kael memandang hutan dengan berat hati. Setelah beberapa saat, dia mengangguk dan kembali berjalan.
+Kael menatapnya. "Kau tidak harus ikut."
 
-Kekosongan lain muncul dalam ingatannya.
+Sylvara langsung menoleh tajam.
 
-“Detail tentang jantung mekanis sudah hilang. Aku tidak dapat mengingat letak persisnya.”
+"Jangan mulai."
 
-“Harga visi itu terus mengambil bagianmu,” gumam Zireth.
+"Aku cuma—"
 
-“Kita masih memiliki arah umum,” kata Sylvara. “Cari petunjuk lain di Xyphus.”
+"Jangan memakai pelajaran Nyara untuk memutuskan bahwa kau harus memberi kami pilihan setiap lima menit. Aku sudah memilih sejak Aranyel."
 
-Mereka melanjutkan perjalanan.
+Kael menutup mulut.
 
-Efek penglihatan tidak berhenti pada ingatan. Emosi Kael berubah tanpa alasan. Sesaat dia merasa dingin dan tidak peduli. Beberapa langkah kemudian, amarah atau ketakutan datang seperti gelombang.
+Zireth mengangguk puas. "Pelajaran diterapkan dengan cepat."
 
-Apakah karena bagian ingatan hilang, atau Void semakin menyatu dalam tubuhnya?
+"Kau juga bisa tinggal."
 
-Lengan kiri tetap tenang, tetapi kekuatan di dalamnya sulit dibaca.
+"Tidak. Aku ingin melihat seberapa buruk keputusan berikutnya. Demi penelitian."
 
-Desa-desa perbatasan Xyphus mulai muncul. Rumah kayu lapuk dipenuhi ward sihir gelap. Penduduk berjubah mengamati mereka dari balik pintu dan jendela.
+Kael tertawa kecil.
 
-“Warlock selalu curiga kepada orang asing,” kata Zireth.
+Rasa itu cepat hilang ketika bulu kristal Seraphis menyala.
 
-Seekor gagak hitam bermata merah mendarat di jalan. Ia menjatuhkan gulungan kecil yang terikat benang hitam, lalu terbang kembali ke langit mendung.
+Suara Penjaga muncul lemah.
 
-Kael membuka pesan tersebut.
+*Peringatan jaringan. Simpul kesembilan padam. Jalur pengamatan berpindah ke pembawa.*
 
-Tinta seperti darah kering membentuk satu kalimat:
+Kael menatap bulu itu.
 
-*Dia menunggumu di Kuil Pengorbanan, Belzoth. Jangan terlambat.*
+"Apa maksudnya?"
 
-“Belzoth adalah pulau utama Xyphus,” kata Kael.
+*Sebagian fungsi Mata Kesembilan kini mengikuti resonansimu.*
 
-“Dan Kuil Pengorbanan tempat ritual Void terbesar pernah dilakukan,” tambah Zireth. “Hampir merobek Zerath.”
+Zireth mengangkat pemindai.
 
-Sylvara menatap pesan. “Rowan?”
+"Kael... pola di matamu berubah."
 
-Kael menggenggam gulungan itu.
+"Apa?"
 
-“Dia tahu kita datang.”
+Sylvara mendekat.
 
-Tujuan mereka kini jelas: Pulau Belzoth, jantung wilayah Warlock, dan kuil yang telah menunggu kedatangan Kael sejak sebelum pesan itu tiba.
+Di mata kiri Kael, warna biru yang biasa kini memiliki lingkaran tipis seperti rune.
+
+Dia tidak merasa lebih kuat.
+
+Justru terasa seperti dunia memiliki terlalu banyak detail.
+
+Benang energi kecil terlihat di sekitar pohon. Jejak langkah meninggalkan gema. Bahkan kebohongan kecil pada nada suara Zireth ketika berkata tidak khawatir terasa seperti distorsi.
+
+Kael memejamkan mata.
+
+"Matikan."
+
+Tidak bisa.
+
+Seraphis mengirim pesan terakhir sebelum cahayanya kembali redup.
+
+*Penglihatan tanpa batas menghancurkan pemiliknya. Belajar memilih apa yang tidak perlu dilihat.*
+
+Kael membuka mata perlahan.
+
+Benteng Vorthax menunggu di timur.
+
+Rowan berada di sana.
+
+Dan kini, setelah Nyara pergi, Kael membawa sebagian Mata Kesembilan dalam dirinya.
+
+Hadiah lain yang terasa terlalu mirip beban.

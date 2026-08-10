@@ -1,41 +1,77 @@
 # Episode 091 — Amarah Void
 
-Rowan berdiri di depan altar dengan aura yang jauh lebih kuat daripada sebelumnya.
+Kael tidak menyerang Zevaron.
 
-Liontin Vorthax yang retak memuntahkan Void mentah ke seluruh tubuhnya. Zevaron terbaring tidak sadar di sisi aula.
+Itu membuat Rowan marah.
 
-“Kau seharusnya menjadi Kunci Agung,” kata Rowan. Amarah dingin menggantikan senyumnya. “Namun keraguan dan moralitas fanamu terus menghalangi tatanan baru.”
+Bukan secara dramatis. Tidak ada teriakan. Tidak ada wajah berubah liar.
 
-Energi ungu berderak di tangan.
+Hanya satu gerakan kecil pada rahangnya.
 
-“Jika menolak menjadi kunci, kau hanya akan menjadi debu.”
+Lalu seluruh benteng menjawab.
 
-Rowan melesat.
+Rune pada dinding menyala ungu. Saluran darah tua di lantai terisi cahaya. Tekanan Void turun dari langit-langit seperti air berat.
 
-Kecepatannya meningkat jauh melampaui batas tubuh biasa. Dia menyerang tanpa tongkat, memakai tinju yang diselimuti Void pekat.
+Zevaron menjerit.
 
-Kael menangkis dengan Zerath's Fang.
+Benang kendali di tulang belakangnya menegang sampai Kael dapat melihatnya bergetar dengan Mata Kesembilan.
 
-Benturan pertama mengguncang lantai dan mendorongnya mundur. Rowan tidak memberi waktu untuk pulih. Pukulan dan tendangan berikutnya datang bersama ledakan korosif yang memakan perisai sedikit demi sedikit.
+"Serang," kata Rowan.
 
-“Rasakan Kehampaan yang sebenarnya,” geram Rowan. “Bukan sisa kecil yang tinggal di lenganmu.”
+Zevaron bergerak.
 
-Sylvara menyerang dari samping. Panah cahayanya memantul dari medan ungu yang melindungi tubuh Rowan.
+Kael membiarkan petir pertama melewati bahunya.
 
-Zireth mencoba menekan dengan gelombang sonik, tetapi perisainya sendiri berderak akibat tekanan balik.
+Yang kedua dia belokkan dengan bilah.
 
-“Void itu tidak dimanipulasi secara normal,” katanya. “Liontin menyalurkan energi mentah langsung ke tubuhnya.”
+Yang ketiga dia tahan menggunakan dingin biru sampai listrik kehilangan jalur.
 
-Kael terus bertahan memakai perisai tiga warna dan langkah cepat.
+Tetap tidak membalas tubuh Zevaron.
 
-Rowan sangat kuat, tetapi setiap gerakan membuat auranya berkedip tidak stabil. Liontin di lehernya menyala semakin liar. Retakannya ikut melebar setiap kali energi dilepaskan.
+"Kau akan mati demi prinsip yang bahkan belum kau pahami," kata Rowan.
 
-Sumber kekuatan itu juga sedang menghancurkannya.
+"Mungkin."
 
-Kael menghindari satu pukulan. Pilar obsidian di belakangnya pecah menjadi serpihan.
+"Lalu apa bedanya dengan pengorbanan yang selalu kau benci?"
 
-Tatapannya terkunci pada liontin.
+Kael berhenti sepersekian detik.
 
-Dia tidak perlu mengalahkan seluruh kekuatan Rowan.
+Pertanyaan itu tepat.
 
-Cukup menghancurkan wadah yang menyalurkannya.
+Rowan melihat celah dan tersenyum.
+
+Kael justru mengangguk kecil.
+
+"Bedanya aku bisa mengubah keputusan kalau ternyata salah."
+
+Dia membuka Mata Kesembilan lebih lebar.
+
+Rasa sakit menusuk pelipis.
+
+Benang ungu Zevaron bukan satu jalur. Ada tiga.
+
+Satu ke lingkaran rune.
+
+Satu ke liontin hitam di dada Rowan.
+
+Satu lagi menembus lebih jauh—keluar benteng, keluar Belzoth, menuju sesuatu yang tidak terlihat.
+
+Arsitek.
+
+Kael memahami struktur kontrolnya.
+
+Rowan hanyalah penguat lokal.
+
+"Zireth! Lingkaran lantai bukan sumber utama. Hanya penguat!"
+
+"Lalu sumbernya?"
+
+Kael menunjuk Rowan.
+
+"Liontinnya."
+
+Rowan tidak lagi tersenyum.
+
+Void di ruangan mengamuk.
+
+Untuk pertama kalinya, Kael merasa mereka telah menyentuh sesuatu yang benar-benar ingin disembunyikan Rowan.

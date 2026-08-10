@@ -1,65 +1,145 @@
 # Episode 057 — Jembatan Cahaya Rapuh
 
-Pertarungan pecah di dalam aula.
+Jurang di bawah jembatan tidak memantulkan cahaya.
 
-Sosok Berhelm bergerak dengan presisi yang tidak pernah Kael lihat. Tombak energinya menusuk dan menebas tanpa satu gerakan sia-sia.
+Itu yang paling Kael benci darinya.
 
-“Perlawanan tidak akan mengubah hasil, Anomali.”
+Dia dapat melihat dinding es turun ratusan meter, kemudian semuanya berubah hitam.
 
-Kael menangkis dengan Zerath's Fang. Setiap benturan mengirim getaran kuat sampai bahunya.
+Retakan cahaya di bawah kakinya memanjang.
 
-Di sisi lain, Void Wyvern menyemburkan api ungu untuk memisahkan Sylvara dan Zireth dari Kael.
+"Jangan bergerak!" teriak Zireth dari tepi reruntuhan.
 
-“Kami tidak bisa mendekat,” teriak Zireth. Gelombang soniknya hanya menggores pertahanan logam Wyvern. “Intinya terlindungi terlalu dalam.”
+"Saranmu terlambat."
 
-Kael semakin terdesak.
+Kael berdiri tepat di tengah jembatan. Mundur berarti kembali kepada Agen Nexus. Maju berarti mempercayai struktur kuno yang sedang patah karena tubuhnya sendiri.
 
-Gaya bertarung lawannya tidak memberinya celah. Setiap kali dia mengubah arah, tombak sudah menunggu di titik berikutnya.
+Suara langkah terdengar dari belakang.
 
-Rune ungu pada lengan kiri berdenyut, menawarkan tenaga tambahan.
+Agen itu tidak mengejar ke atas jembatan.
 
-“Korupsi itu hanya mempercepat kehancuran jiwamu,” kata Sosok Berhelm, seolah membaca niatnya. “Kami datang untuk mencegahnya.”
+"Struktur fotonik mengenali keselarasan energi," katanya. "Void di tubuhmu menciptakan interferensi destruktif."
 
-Tombak menembus pertahanan Kael.
+Kael memandang garis-garis cahaya di bawah sepatu.
 
-Tubuhnya terlempar dan menghantam dinding es. Retakan menyebar dari titik benturan, lalu bagian dinding runtuh.
+Interferensi destruktif.
 
-Di baliknya terdapat jurang dalam dan sebuah jembatan sempit yang tersusun dari cahaya biru padat.
+Kata itu justru memberinya gagasan.
 
-“Kael, ada jalan keluar,” seru Sylvara.
+Selama ini dia memperlakukan energi dalam dirinya sebagai tiga benda yang harus dipaksa hidup bersama: panas, dingin, dan Void.
 
-Kael bangkit dan menatap jembatan tersebut.
+Bagaimana jika jembatan tidak menolak salah satunya?
 
-Sosok Berhelm berhenti sesaat. “Jembatan Foton Celestial. Hanya mereka yang tujuannya selaras dengan Keseimbangan Agung dapat melewatinya.”
+Bagaimana jika ia menolak ketidakteraturan di antara ketiganya?
 
-“Jebakan,” kata Zireth. “Struktur itu bereaksi terhadap emosi dan energi tidak murni.”
+Kael berlutut perlahan.
 
-Kael melihat tombak lawannya kembali terangkat.
+"Apa yang kau lakukan?" Sylvara terdengar panik.
 
-Tidak ada pilihan lain.
+"Mencoba berhenti menjadi masalah selama beberapa detik."
 
-Dia berlari menuju jembatan.
+Dia menempelkan telapak kanan pada permukaan jembatan.
 
-“Perpaduan Fragmen dan Void dalam tubuhmu akan merusaknya,” ujar Sosok Berhelm. “Kau akan jatuh bersama jembatan itu.”
+Api merahnya muncul sangat kecil.
 
-Kael melompat ke atas cahaya.
+Bukan untuk membakar.
 
-Permukaannya terasa padat pada langkah pertama. Dia bergerak cepat menuju tengah.
+Hanya sebagai denyut.
 
-Kemudian jembatan mulai bergetar.
+Energi biru mengikuti. Kael menyesuaikan iramanya sampai keduanya tidak lagi saling mendorong.
 
-Cahayanya berkedip di bawah sisi kiri tubuh Kael. Rune Void pada lengannya bereaksi terhadap energi Celestial, dan retakan tipis menyebar di permukaan.
+Void pada lengan kiri mencoba masuk lebih dulu.
 
-“Kael, tenangkan energimu,” teriak Sylvara.
+Dia menahannya.
 
-Dia memperlambat langkah dan mencoba menahan rasa takut. Fokusnya diarahkan pada satu tujuan: melindungi teman-temannya dan menemukan jawaban, bukan memenangkan pertarungan.
+Tidak mengusir.
 
-Namun Void dalam lengannya terus menolak cahaya murni.
+Menunggu.
 
-Retakan semakin lebar.
+Ketika ritme merah dan biru stabil, Kael membuka jalur bagi ungu.
 
-Di belakang, Sosok Berhelm berdiri di ujung jembatan dan menurunkan tombak.
+Rasa dingin menembus bahu.
 
-“Sudah kuperingatkan.”
+Jembatan berkedip keras.
 
-Kael kini berada di tengah jurang, sementara jembatan cahaya runtuh sedikit demi sedikit di bawah kakinya.
+Retakan baru muncul.
+
+"Kael—"
+
+"Tunggu."
+
+Dia mengubah frekuensinya sedikit.
+
+Ungu tidak perlu menjadi sama dengan cahaya jembatan. Ia hanya perlu berhenti menabraknya.
+
+Satu denyut.
+
+Dua.
+
+Tiga.
+
+Retakan berhenti.
+
+Cahaya biru di bawah tangannya berubah putih sesaat, kemudian tenang.
+
+Kael menarik napas yang baru dia sadari ditahannya.
+
+Dia berdiri.
+
+Satu langkah.
+
+Jembatan tetap utuh.
+
+Langkah kedua.
+
+Tetap utuh.
+
+"Sylvara. Sekarang."
+
+Sylvara melompat ke jembatan. Zireth menyusul.
+
+Agen Nexus akhirnya bergerak.
+
+"Teknik itu tidak tercatat."
+
+Kael menoleh sambil terus berjalan.
+
+"Tambahkan ke laporanmu."
+
+Void Wyvern mengaum dan mencoba naik ke udara.
+
+Jembatan bereaksi terhadap energi mesin yang jauh lebih besar. Cahaya di belakang Kael mulai retak lagi.
+
+Bukan di bawah mereka.
+
+Di belakang.
+
+Seolah struktur itu memilih memutus dirinya sendiri daripada membiarkan Wyvern melintas.
+
+Agen Nexus berhenti di ambang.
+
+Untuk pertama kalinya Kael merasakan sesuatu dalam nada suaranya selain ketenangan.
+
+Rasa ingin tahu.
+
+"Kau tidak memurnikan Void. Kau menyelaraskannya."
+
+Kael mencapai sisi lain.
+
+"Aku juga baru tahu."
+
+Bagian tengah jembatan runtuh menjadi serpihan cahaya.
+
+Jurang memisahkan mereka dari Agen Nexus.
+
+Namun tepat sebelum cahaya terakhir padam, sebuah suara lain muncul dari dinding di sisi Kael.
+
+Lembut. Perempuan. Sangat tua.
+
+*Jika kau dapat mendengar ini, pembawa tiga nada... jangan pergi ke puncak melalui pintu utama.*
+
+Kael membeku.
+
+Suara itu tidak datang dari kepalanya.
+
+Ia datang dari seluruh gunung.

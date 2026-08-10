@@ -1,55 +1,77 @@
 # Episode 072 — Langit Runtuh
 
-Kelompok Kael keluar dari Kuil Celestial sesaat sebelum struktur utama runtuh.
+Mereka keluar dari Aethelgard saat puncak gunung pecah.
 
-Gelombang debu kristal dan sisa energi menyapu lereng. Zireth menahan tubuh dengan lengan mekanis, lalu menoleh ke bangunan yang hilang di balik awan putih.
+Tidak ada ledakan tunggal. Seluruh struktur kristal runtuh lapis demi lapis, seperti kota yang kehilangan keputusan untuk tetap berada di tempatnya.
 
-“Kita keluar.”
+Kael, Sylvara, Zireth, Zevaron, dan Agen Nexus berlari di atas jalur foton yang berkedip. Di belakang mereka, Rowan tidak terlihat.
 
-“Bagaimana Rowan dan Zevaron?” tanya Sylvara.
+"Dia masih di dalam," kata Sylvara.
 
-Dua kilatan muncul dari reruntuhan. Satu ungu gelap, satu lagi dikelilingi badai elemen. Keduanya melesat ke arah berbeda dan menghilang.
+Kael tidak menoleh. "Kalau Rowan mati semudah itu, hidupku akan jauh lebih sederhana."
 
-“Mereka kabur,” kata Kael. “Terpisah.”
+Jalur cahaya berakhir pada pelataran luar.
 
-Sosok Berhelm mengamati kuil dengan tenang.
+Void Wyvern milik Agen Nexus mendarat dengan satu sayap rusak. Makhluk mesin itu mengeluarkan suara protes ketika mereka naik.
 
-“Inti Cahaya tersegel. Rowan Galt dan Anomali Zevaron dicatat sebagai ancaman sekunder.”
+Zevaron berhenti.
 
-Dia berbalik kepada Kael.
+"Aku tidak ikut Nexus."
 
-“Misi ekstraksi primer berhasil. Kau ikut denganku.”
+"Tidak ada yang mengundangmu," jawab Agen itu.
 
-Kael berdiri dengan tubuh yang masih lemah. “Ke mana? Dan siapa sebenarnya Nexus Command?”
+Zevaron tersenyum tipis kepada Kael. "Kita belum selesai."
 
-Void Wyvern mendarat di dekat mereka. Mesinnya kembali menyala tanpa suara.
+"Aku berharap kau belajar sesuatu sebelum kita bertemu lagi."
 
-“Kami menjaga keseimbangan antarrealitas,” jawab Sosok Berhelm. “Fragmen hidup dan integrasi Void dalam tubuhmu merupakan ancaman terbesar sejak Perang Primordial.”
+"Jangan berharap terlalu banyak."
 
-Sylvara berdiri di depan Kael. “Dia tidak ikut.”
+Dia melompat dari pelataran dan membentuk arus angin di bawah kakinya, menghilang ke balik badai.
 
-Zireth memandang zirah serta Wyvern. “Nama Nexus Command tidak ada dalam arsip Zerath. Kalian berasal dari luar dimensi ini.”
+Void Wyvern terangkat.
 
-“Informasi itu tidak relevan. Kael harus diamankan untuk evaluasi.”
+Beberapa detik kemudian Aethelgard runtuh sepenuhnya.
 
-Tombak energi terangkat sedikit.
+Cahaya keemasan menyembur dari retakan gunung. Bukan Aether.
 
-“Jangan melawan.”
+Merah.
 
-Kael merasakan Void pada Wyvern dan zirah lawannya. Energi tersebut terkendali sempurna, mirip dengan perubahan yang kini terjadi pada lengan kirinya.
+Panasnya terasa bahkan dari udara.
 
-“Kalian memakai Void sambil menyebutku ancaman. Rowan dan Arsitek jelas merusak dunia, tapi kalian membiarkan mereka.”
+Zireth menatap pembacaan sensor. "Sumbernya jauh di bawah kuil."
 
-“Tindakan mereka sedang dievaluasi.” Suara Sosok Berhelm tetap datar. “Potensimu lebih besar dan lebih sulit diprediksi. Kau adalah variabel liar.”
+"Hati Lykaros?"
 
-Tanah mendadak berguncang.
+"Bukan. Lebih tua. Jauh lebih besar."
 
-Retakan menyebar di atas salju. Getaran itu tidak berasal dari kuil, melainkan jauh di bawah gunung.
+Gunung berguncang lagi.
 
-Zireth mengaktifkan pemindai. “Sumbernya sangat dalam.”
+Dari retakan utama muncul bentuk logam raksasa—hanya sebagian, seperti jari atau puncak mahkota yang terkubur di dalam batu.
 
-Sylvara menatap tanah. “Apa lagi yang bangun sekarang?”
+Agen Nexus menegang.
 
-Sosok Berhelm menurunkan tombak dan mengalihkan perhatian kepada retakan yang terus membesar.
+"Primordial Earth Core."
 
-Ekstraksi Kael harus menunggu. Sesuatu di bawah Puncak Aethelgard mulai bergerak menuju permukaan.
+Kael menoleh. "Apa?"
+
+"Salah satu mekanisme dunia yang diduga dibangun pada era Zhorak. Nexus menganggapnya mitos karena tidak ada unit aktif yang pernah ditemukan."
+
+"Sekarang ada."
+
+"Sekarang ada."
+
+Bulu kristal Seraphis di tangan Kael berdenyut.
+
+Satu pesan tipis menyentuh pikirannya.
+
+*Runtuhnya langit membangunkan bumi.*
+
+Kael memandang cahaya merah dari gunung.
+
+Mereka berhasil menyelamatkan Hati Lykaros.
+
+Namun setiap kali satu ancaman ditutup, sesuatu lain seolah membuka mata.
+
+Dan kali ini getarannya menjalar bukan hanya melalui gunung.
+
+Kael merasakannya sampai jauh ke bawah tanah Zerath.

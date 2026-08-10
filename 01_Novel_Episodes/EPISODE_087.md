@@ -1,53 +1,93 @@
 # Episode 087 — Melintasi Perbatasan Gelap
 
-Perahu mendekati pantai Belzoth.
+Badai di sekitar Belzoth bukan cuaca.
 
-Awan badai menutup seluruh langit. Benteng-benteng obsidian di kejauhan tampak seperti gigi monster yang mencuat dari tanah.
+Kael mengetahuinya ketika hujan pertama jatuh ke dek dan meninggalkan bayangan yang bergerak sendiri.
 
-“Sampai di sini.” Tukang Perahu Arwah menghentikan dayung. “Kuil Pengorbanan berada di jantung pulau. Ikuti bisikan jiwa yang tersiksa.”
+"Jangan biarkan air menyentuh kulit," kata Sylvara.
 
-Dia membiarkan mereka turun, lalu kembali ke laut dan menghilang di balik badai.
+Zireth menatap tetesan pada lengan logamnya. "Terlambat untukku."
 
-Pantai Belzoth tidak memiliki pasir. Kerikil hitam setajam kaca menutupi permukaan.
+Bayangan di permukaan logam berubah menjadi tangan kecil yang mencoba masuk ke sambungan.
 
-Sylvara merapatkan jubah. “Tempat ini dipenuhi penderitaan.”
+Zireth menyetrumnya sampai lenyap.
 
-“Xyphus dibangun dari perjanjian dan pengorbanan gelap,” kata Zireth. “Jangan sentuh ward atau simbol apa pun.”
+"Menjijikkan."
 
-Lengan kiri Kael berdengung terus-menerus, merespons sihir Void yang memenuhi pulau.
+Perahu memasuki kabut hitam.
 
-Mereka bergerak ke daratan.
+Kompas Garn berhenti berfungsi. Bintang menghilang. Bahkan bunyi ombak terasa jauh.
 
-Pohon-pohon hitam berdiri tanpa daun, cabangnya menyerupai cakar. Tanah terasa membeku meski tidak ada salju. Desa-desa Warlock hampir kosong, dan penghuni bertopeng tulang mengawasi dari balik jendela.
+Mata Kesembilan justru memperlihatkan terlalu banyak jalur.
 
-Tidak ada kehidupan biasa di tempat itu. Hanya ritual dan bayangan.
+Puluhan garis energi melingkari pulau. Sebagian benar-benar arus. Sebagian ilusi yang dirancang membuat kapal bergerak berputar sampai persediaannya habis.
 
-Di sebuah alun-alun, beberapa Warlock berlutut di depan patung spiral pecah.
+Kael menutup mata kanan dan hanya melihat pola energi.
 
-“Demi Kehampaan Abadi,” gumam mereka. “Demi Sang Arsitek.”
+"Tiga derajat ke kiri."
 
-Kael berhenti. “Mereka menyembahnya.”
+Zireth mengubah kemudi.
 
-“Pengaruh Rowan telah menyebar,” kata Zireth.
+"Sekarang lurus. Jangan ikuti ombak."
 
-Salah seorang Warlock mengangkat kepala. Mata ungunya langsung menemukan mereka.
+Perahu naik pada gelombang yang tampak akan menabrak tebing.
 
-“Penyusup. Mereka tidak membawa Tanda Suci.”
+Tebing itu menghilang ketika mereka melewatinya.
 
-Kelompok ritual berbalik dan mengangkat tongkat tulang serta belati.
+Sylvara menghembuskan napas. "Aku membenci sihir ilusi."
 
-Sylvara menarik busur. “Penyamaran kita singkat sekali.”
+"Kau berasal dari wilayah Fae."
 
-Sihir bayangan, kutukan, dan proyektil Void lemah menyerang dari berbagai arah.
+"Itu alasan aku membencinya."
 
-Kael menahan bagian depan. Sylvara melumpuhkan pemegang tongkat, sementara gelombang sonik Zireth merusak formasi ritual. Para Warlock itu kuat terhadap penduduk biasa, tetapi bukan lawan bagi tiga orang yang telah melewati Puncak Beku.
+Semakin dekat ke pulau, suara-suara mulai datang dari kabut.
 
-Pertarungan berakhir tanpa kematian. Semua penyerang tergeletak tidak sadar.
+Kael mendengar ibunya.
 
-Kael memandang simbol spiral di alun-alun.
+Tidak seperti mimpi Sylphara. Suara ini tidak mencoba berbicara kepadanya.
 
-“Mereka benar-benar berada di bawah pengaruh Arsitek.”
+Hanya mengulang satu kalimat dari masa lalu.
 
-“Kuil pasti dijaga jauh lebih ketat,” kata Zireth.
+*Jangan sentuh batu itu.*
 
-Mereka meninggalkan desa sebelum bantuan datang dan bergerak menuju pusat Belzoth, tempat aura Void tumbuh semakin pekat pada setiap langkah.
+Dia menggenggam sisi perahu.
+
+"Kalian dengar suara?"
+
+Sylvara mengangguk tanpa menjelaskan miliknya.
+
+Zireth menatap kabut. "Ya."
+
+Tidak ada yang bertanya lebih jauh.
+
+Mereka mencapai pantai setelah tengah malam.
+
+Pasir hitam di Belzoth terasa hangat.
+
+Di atas bukit, ribuan tiang tipis berdiri seperti pohon mati. Kael baru menyadari itu bukan tiang ketika salah satu terkena cahaya petir.
+
+Tulang.
+
+Tulang makhluk besar ditanam tegak ke tanah dan diukir rune.
+
+Mata kirinya melihat seluruh pulau sebagai satu rangkaian.
+
+Setiap tulang adalah antena.
+
+Semua mengirim energi menuju pusat.
+
+Kuil Pengorbanan.
+
+Zerath's Fang bergetar di tangan Kael.
+
+Bukan takut.
+
+Mengenali.
+
+Frekuensi yang sama pernah dia rasakan dari Echo Vessel.
+
+Jaringan pengamatan Nexus dan jaringan ritual Vorthax mungkin dibangun dari prinsip yang sama.
+
+Pertanyaannya bukan lagi siapa meniru siapa.
+
+Pertanyaannya: siapa yang mengajari keduanya.

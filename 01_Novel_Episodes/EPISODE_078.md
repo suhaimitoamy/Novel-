@@ -1,81 +1,103 @@
 # Episode 078 — Utusan Kehampaan
 
-Ilusi terus menekan Kael.
+Mereka tidak sempat memutuskan apakah harus melanjutkan.
 
-Versi dirinya yang berdiri di antara mayat Sylvara dan Zireth membisikkan setiap kemungkinan buruk yang pernah dia bayangkan.
+Hutan memutuskan lebih dulu.
 
-Gema Nyxaria semakin dekat.
+Burung-burung berhenti bersuara.
 
-“Serahkan bebanmu. Kau akan menjadi ringan.”
+Kabut di antara pepohonan bergerak mundur, seolah ruang di depan mereka sedang menarik napas.
 
-Untuk sesaat, tawaran itu terasa seperti istirahat.
+Kael menghunus Zerath's Fang.
 
-Kemudian suara Sylvara menembus kabut.
+Retakan hitam terbuka setinggi manusia.
 
-“Kael, lawan. Itu bukan dirimu.”
+Seseorang keluar.
 
-Dia menembakkan panah meski tahu tubuh Gema tidak dapat disentuh. Serangan tersebut memecah kabut sesaat.
+Tubuhnya kurus, dibungkus kain abu-abu. Tidak ada mata pada wajahnya—hanya satu garis vertikal gelap dari dahi ke dagu. Tangannya membawa tongkat dari material yang tampak seperti tulang tetapi memantulkan bintang.
 
-Zireth mengaktifkan pemancar pada lengannya.
+Sylvara berbisik, "Bukan Fae."
 
-“Bentuk Gema bergantung pada frekuensi mental. Gelombang sonik mungkin mengganggunya.”
+Kael tahu.
 
-Dengungan tajam menghantam Nyxaria.
+Lengan kirinya merasakan kehampaan pada sosok itu dengan cara yang berbeda dari Void Rowan.
 
-Tubuh kabutnya bergetar. Ilusi di depan Kael goyah.
+Lebih dingin.
 
-“Mesin berisik,” desis Gema itu.
+Lebih jauh.
 
-Gangguan singkat memberi Kael ruang untuk bernapas.
+*Outer Void.*
 
-Dia tidak mencoba menghapus rasa takut. Tidak ada serangan yang dapat menghancurkan bagian dari dirinya sendiri tanpa meninggalkan luka lain.
+Kata itu muncul di pikirannya sebelum ada yang mengucapkannya.
 
-Kael berdiri dan menatap Nyxaria.
+Sosok tanpa mata berhenti beberapa langkah dari Kael.
 
-“Kau benar. Aku takut.”
+"Pembawa pintu."
 
-Api merah, es biru, dan Void ungu menyala di sekeliling tubuhnya, tetapi tetap terkendali.
+"Namaku Kael."
 
-“Aku takut kehilangan kendali. Takut menyakiti mereka. Takut menjadi monster.”
+"Nama lokal. Tidak relevan."
 
-Dia memandang ilusi mayat Sylvara dan Zireth.
+"Aku sudah bosan mendengar kalimat itu."
 
-“Dan aku takut sendirian.”
+Utusan mengangkat tongkat.
 
-Wajah jahat dalam ilusi mulai retak.
+Hutan di sekeliling mereka berubah.
 
-“Tapi ketakutan itu membuktikan aku masih peduli. Selama aku takut kehilangan mereka, aku belum menjadi monster yang kau tunjukkan.”
+Pohon menjadi hitam. Langit lenyap. Untuk sepersekian detik Kael melihat ruang tanpa bintang, dipenuhi bentuk-bentuk besar yang terlalu jauh untuk dikenali.
 
-Nyxaria berhenti.
+"Arsitek telah menyentuh jaringan sembilan mata. Simpul kedelapan berada di dalam dirimu. Bukalah."
 
-“Kau tidak dapat mengambil rasa takutku,” lanjut Kael. “Aku akan hidup bersamanya.”
+"Tidak."
 
-Energi tiga warna dilepaskan sebagai gelombang penolakan, bukan serangan penghancur.
+"Kau tidak memahami fungsi pintu."
 
-Kekuatan itu menghantam Gema Nyxaria dan merobek bentuk kabutnya. Dia terlempar, tubuhnya menipis dan berkedip.
+"Aku memahami bagian ketika sesuatu dari Void menyuruhku membukanya. Cukup."
 
-“Jiwa yang menerima lukanya tidak dapat disentuh?”
+Utusan bergerak.
 
-Untuk pertama kalinya, suaranya menyimpan rasa ingin tahu.
+Tidak cepat.
 
-“Arsitek akan tertarik mendengar ini.”
+Jarak di antara mereka yang memendek.
 
-Gema Nyxaria kembali masuk ke retakan Void. Celah tersebut menutup dan kabut di alun-alun menghilang.
+Kael menangkis tongkat tepat sebelum menyentuh dada.
 
-Penduduk mulai sadar satu demi satu, kebingungan dan lelah setelah mimpi buruk panjang.
+Zerath's Fang bergetar keras. Benda itu tidak memiliki frekuensi tetap.
 
-Sylvara menghampiri Kael. “Kau berhasil.”
+Setiap kali Kael mencoba membaca polanya, ritme berubah.
 
-“Dia menyebut Arsitek.” Kael memandang tempat retakan lenyap. “Nyxaria bekerja untuknya, atau setidaknya memberikan laporan.”
+Sylvara menyerang dari samping. Panahnya melewati tubuh Utusan dan muncul dari pohon di belakang Kael.
 
-Zireth memeriksa penduduk. “Mereka akan pulih. Kita harus bergerak sebelum Gema lain datang.”
+Ruang sedang dilipat.
 
-Kael melihat Hutan Mimpi Buruk di kejauhan.
+Zireth menembakkan pulsa sonik ke tanah, bukan lawan. Gelombang memantulkan bentuk ruang dan membuat posisi sebenarnya terlihat sesaat.
 
-“Kita membutuhkan seseorang yang memahami penglihatan dan tabir dimensi.”
+"Kiri!"
 
-Nama yang pernah disebut dalam catatan terlintas di pikirannya.
+Kael berputar dan menebas.
 
-“Nyara of the Nine Eyes.”
+Bilah mengenai bahu Utusan.
 
-Mereka meninggalkan desa dan berjalan menuju kedalaman Sylphara untuk mencari peramal buta tersebut.
+Untuk pertama kalinya kain abu-abu robek.
+
+Di bawahnya tidak ada daging.
+
+Ada permukaan seperti malam tanpa bintang.
+
+Utusan mundur.
+
+"Mata Kesembilan akan melihatmu mati sebelum kau melihatnya."
+
+"Suruh dia antre."
+
+Retakan terbuka kembali.
+
+Sebelum menghilang, Utusan menatap simbol delapan garis pada lengan Kael.
+
+"Simpul sudah berakar. Arsitek tidak lagi membutuhkan izinmu."
+
+Retakan menutup.
+
+Kael menatap lengannya.
+
+Untuk pertama kalinya sejak integrasi dimulai, dia benar-benar ingin memotongnya.

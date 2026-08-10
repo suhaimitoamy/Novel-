@@ -1,59 +1,93 @@
 # Episode 061 — Pertarungan Tiga Pewaris
 
-Ketegangan memenuhi aula Kuil Kristal.
+Fragmen keenam berdenyut sekali.
 
-Kael berdiri di antara Penjaga Celestial, Zevaron, dan Rowan yang mengamati dari pinggir ruangan.
+Seluruh aula menjawab.
 
-“Dua hibrida berada di tempat suci yang sama.” Zevaron menyeringai. Mata emasnya menyala bersama pusaran angin dan petir di telapak tangan. “Kosmos pasti sedang bercanda.”
+Api di dada Kael naik tanpa dipanggil. Kilat pada tubuh Zevaron pecah menjadi cabang-cabang kecil. Pecahan hitam yang ditanam Rowan pada pilar memancarkan Void seperti tinta di air.
 
-Dia mengarahkan serangan kepada Kael.
+Seraphis memandang ketiganya.
 
-“Hanya ada ruang untuk satu Pewaris sejati.”
+*Pewaris tiga jalur. Konflik terkonfirmasi.*
 
-Badai petir melesat melintasi aula.
+Zevaron tersenyum. "Bagus. Kalau kuilnya sendiri mengakui kita, mari kita lihat siapa yang paling pantas."
 
-Kael membentuk perisai api merah dan biru. Benturan mendorong kakinya beberapa langkah di atas lantai kristal.
+Dia menyerang Kael lebih dulu.
 
-“Aku tidak punya urusan denganmu.”
+Petir menghantam lantai tempat Kael berdiri. Kael melompat ke samping, tetapi angin yang mengikuti serangan itu memutar tubuhnya di udara. Zevaron sudah menunggu ketika dia mendarat.
 
-Penjaga bersayap enam menilai energi mereka berdua sebagai ancaman.
+Pukulan mereka bertemu.
 
-“Noda Kehampaan dan ambisi tanpa batas. Kalian akan memurnikan tempat ini dengan kehancuran jika dibiarkan.”
+Kael merasakan resonansi aneh dari tubuh lawannya—dua elemen berbeda, tetapi tidak saling menahan seperti milik Kael. Angin Zevaron memberi ruang kepada petir. Petir memberi bentuk kepada angin.
 
-Pedang kristalnya terangkat.
+Efisien.
 
-“Cahaya Surgawi akan menghapus kalian.”
+Dan rakus.
 
-Tebasan cahaya menyapu aula. Kael dan Zevaron melompat ke arah berlawanan. Pilar-pilar di belakang mereka terpotong bersih.
+"Kau merasakannya, kan?" kata Zevaron. "Kita tidak seharusnya hidup dengan batas yang dibuat ras murni."
 
-Pertarungan tiga arah dimulai.
+Kael mendorongnya menjauh. "Kau bicara terlalu banyak."
 
-Zevaron memakai angin untuk mengubah arah tubuh dan petir untuk menyerang dari sudut yang sulit dibaca. Kekuatan elemennya murni, tetapi dipakai tanpa sedikit pun penahanan.
+Pedang Seraphis turun di antara mereka.
 
-Kael menghindari pedang Penjaga dan menahan cambuk petir Zevaron dengan Zerath's Fang.
+Cahaya membelah lantai.
 
-Gaya mereka sangat berbeda. Kael membiarkan naluri menyesuaikan diri terhadap bahaya. Zevaron memaksa semua elemen tunduk pada keinginannya.
+Penjaga itu tidak memilih pihak.
 
-“Kau terlalu kaku, Malaikat tua,” ejek Zevaron sambil melepaskan ledakan angin. “Zaman Lykaros sudah mati.”
+Rowan pun belum ikut bertarung.
 
-Penjaga membalas dengan hujan bilah cahaya.
+Kael melihatnya bergerak di tepi aula, berpindah dari satu pilar ke pilar berikutnya sambil menanam pecahan hitam kecil.
 
-Di sisi aula, Rowan tidak bergerak. Matanya mengikuti setiap perubahan energi Kael, terutama ketika Fragmen dan rune Void bereaksi terhadap Aether murni kuil.
+"Dia sedang melakukan sesuatu."
 
-“Menarik,” gumamnya.
+Zevaron melirik Rowan, lalu kembali menyerang Kael. "Biarkan. Aku belum selesai denganmu."
 
-Kael mencoba memusatkan serangan pada Penjaga yang menghalangi jalan menuju Fragmen. Namun Zevaron terus menekan dari samping.
+"Itu sebabnya orang sepertimu mudah dipakai."
 
-“Jangan mengabaikanku, Anomali.”
+Zevaron berhenti sesaat.
 
-Cambuk petir menyambar.
+Kael memanfaatkan celah itu untuk memukul lantai dengan resonansi pendek. Gelombang merambat ke pilar yang baru disentuh Rowan.
 
-Kael menangkis, lalu memotong alirannya dengan api biru.
+Pecahan hitam di sana bergetar.
 
-“Fragmen ini bukan benda yang bisa kau rampas.”
+Kael akhirnya mengerti.
 
-Zevaron tertawa. “Semua kekuatan dapat dimiliki oleh orang yang cukup kuat.”
+Rowan tidak mencoba mencapai Fragmen langsung.
 
-Serangan cahaya kembali datang dari atas.
+Dia sedang mengubah ruang di sekelilingnya menjadi rangkaian resonansi.
 
-Kael terjebak di antara pedang suci dan badai elemen, sementara Rowan masih menunggu waktu yang tepat untuk bergerak.
+"Seraphis! Pilar-pilar itu!"
+
+Penjaga Celestial menoleh.
+
+Terlambat.
+
+Rowan menjentikkan jari.
+
+Empat pilar menyala ungu serempak.
+
+Fragmen keenam berdenyut kedua kali.
+
+Kali ini nadanya tidak murni.
+
+Kael merasakan sakit tajam di gigi dan tulang dada.
+
+Zevaron mundur satu langkah, kebingungan menggantikan senyumnya.
+
+"Apa yang kau lakukan, Rowan?"
+
+Rowan menatap mereka dari balik cahaya yang bergetar.
+
+"Membiarkan kalian bertiga melakukan bagian yang tidak bisa kulakukan sendiri."
+
+Fragmen berdenyut lagi.
+
+Aula mulai beresonansi dengan tiga energi pewaris.
+
+Kael tiba-tiba memahami arti peringatan Nyara.
+
+Jangan biarkan tiga pewaris menyentuh Hati Lykaros dalam keadaan konflik.
+
+Mereka bahkan tidak perlu menyentuhnya.
+
+Pertarungan mereka sendiri sudah cukup.

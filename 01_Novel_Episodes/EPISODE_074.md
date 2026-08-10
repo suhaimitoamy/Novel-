@@ -1,59 +1,77 @@
 # Episode 074 — Gema Pengorbanan
 
-Void Wyvern mendarat di dataran bersalju yang cukup jauh dari Aethelgard.
+Mereka bermalam di lereng yang masih cukup dingin untuk membekukan air, tetapi tidak lagi cukup tinggi untuk membuat napas terasa seperti pisau.
 
-Di belakang mereka, gunung terus runtuh dan memancarkan panas vulkanik di tengah wilayah es.
+Kael tidak tidur.
 
-Sosok Berhelm turun lebih dulu. “Kebangkitan Inti Bumi Primordial akan menarik Karag Thürm. Mungkin juga perhatian Zhorak, jika dia masih mengawasi Zerath.”
+Bulu kristal Seraphis tergeletak di telapak tangannya.
 
-Kael turun dengan pikiran tertahan pada ucapan Rowan.
+Cahayanya redup, berdenyut setiap beberapa detik.
 
-“Jadi aku memang dirancang menjadi pengorbanan untuk merobek dimensi?”
+Sylvara duduk di sampingnya. "Kau memikirkan Penjaga itu."
 
-Sosok Berhelm menghadap kepadanya.
+"Dia masih di sana."
 
-“Banyak kemungkinan waktu menunjukkan skenario itu. Jika energimu dilepaskan dalam kondisi kritis di dekat titik Nexus seperti Gerbang Es atau Inti Cahaya, keretakan permanen dapat terbentuk.”
+"Sebagian darinya ada di tanganmu."
 
-“Dia dipakai untuk menghancurkan dunia,” kata Sylvara.
+"Itu tidak membuat sisanya lebih ringan."
 
-“Entah itu tujuan utama Arsitek atau akibat yang ingin dia manfaatkan.”
+Kael menutup jari.
 
-Zireth menatap Kael. “Apa yang akan kau lakukan sekarang?”
+Sejak Aranyel, dia selalu bereaksi buruk terhadap kata *pengorbanan*. Terlalu sering orang menggunakannya setelah keputusan dibuat oleh orang lain.
 
-Kael membuka kain pada lengan kiri.
+Dagna hampir dikorbankan Rowan.
 
-Rune ungu tampak lebih stabil dan menyatu lebih dalam dengan kulit. Sensasi dingin yang dulu asing kini terasa seperti bagian tubuhnya sendiri.
+Seraphis siap mengorbankan diri karena sistem menyebutnya solusi paling efisien.
 
-“Aku belum tahu semua jawabannya.” Dia mengepalkan tangan. “Tapi aku tidak akan terus mengejar Fragmen sesuai jalur yang mereka siapkan.”
+Bahkan Kael berkali-kali menganggap menghancurkan tubuh sendiri sebagai harga wajar selama orang lain selamat.
 
-Tatapannya mengeras.
+Mungkin itu hanya bentuk lain dari masalah yang sama.
 
-“Aku akan menghentikan Rowan dan menemukan cara melawan Arsitek.”
+"Aku mulai berpikir Jalan Keempat bukan tentang memilih sesuatu yang belum pernah dipilih orang," katanya.
 
-“Tujuan besar.” Sosok Berhelm mendekat. “Arsitek bergerak di luar pemahaman waktu dan ruang linear.”
+Sylvara menatap api unggun.
 
-Dia berbalik menuju Wyvern.
+"Lalu?"
 
-“Nexus akan terus mengawasimu. Jangan memperburuk keseimbangan melalui tindakan gegabah—atau kegagalan.”
+"Tentang menolak anggapan bahwa setiap masalah harus dibayar dengan seseorang."
 
-“Kau tidak membantu kami?”
+Zireth, yang sedang memperbaiki sambungan lengan beberapa langkah jauhnya, mendengus.
 
-“Kami mengintervensi pada skala multiverse. Konflik internal Zerath merupakan ujian bagi kelayakan realitas ini sendiri.”
+"Filsafat bagus. Sayangnya dunia sangat menyukai tagihan."
 
-Sosok Berhelm menunjuk hutan lebat di kejauhan.
+"Aku tahu."
 
-“Jika mencari Arsitek, temukan tempat tabir antar dunia paling tipis. Mimpi buruk kadang menjadi cermin realitas yang ingin dia sembunyikan.”
+Kael membuka tangan.
 
-Dia menaiki Void Wyvern dan terbang meninggalkan mereka.
+Bulu Seraphis menyala lebih terang.
 
-Sylvara memandang hutan. “Tabir tipis dan mimpi buruk?”
+Sebuah potongan suara masuk ke pikirannya.
 
-Zireth membuka catatan terlarang Vorth Aereth. “Lokasi paling terkenal adalah Hutan Mimpi Buruk di perbatasan Sylphara. Tempat Nyxaria the Whisper pertama kali muncul.”
+*Nyara... Mata Kesembilan... jangan biarkan simpul kedelapan dibuka...*
 
-“Entitas Ketakutan Murni,” kata Kael.
+Cahaya padam lagi.
 
-Dia memandang arah baru tersebut.
+Kael berdiri.
 
-“Mungkin di sana kita menemukan cara memahami Arsitek—atau senjata untuk menghadapi Rowan.”
+"Ada pesan."
 
-Mereka meninggalkan dataran es dan memulai perjalanan menuju wilayah Fae yang dipenuhi ilusi.
+Zireth langsung mendekat.
+
+"Tentang apa?"
+
+"Nyara. Dan sesuatu bernama simpul kedelapan."
+
+Sylvara mengerutkan kening. "Kalau ada Mata Kesembilan, mungkin simpul itu bagian dari jaringan pengamatan Lykaros."
+
+Kael memandang ke selatan-barat, ke arah wilayah Fae yang disebut Agen Nexus.
+
+Di belakang mereka Aethelgard masih memancarkan cahaya merah dari perut gunung.
+
+Di depan menunggu tempat yang hidup dari mimpi, ilusi, dan kemungkinan.
+
+Tidak ada pilihan yang terasa aman.
+
+Bagus, pikir Kael.
+
+Dia mulai tidak percaya pada jalan yang terasa aman.

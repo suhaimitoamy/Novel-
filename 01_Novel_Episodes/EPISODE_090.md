@@ -1,85 +1,95 @@
 # Episode 090 — Di Hadapan Pengkhianat
 
-Kael menggenggam Zerath's Fang dan tongkat obsidian milik Rowan.
+Zevaron tidak bergerak seperti dirinya sendiri.
 
-“Ujian terakhir apa?”
+Kael hanya mengenalnya sebentar, tetapi kesombongan pria itu terlalu besar untuk disalahartikan. Zevaron selalu berdiri seolah ruangan adalah miliknya.
 
-“Sang Arsitek ingin melihat potensimu.” Rowan berdiri tenang di depan pusaran Void. “Apakah kau layak menjadi Kunci Agung bagi tatanan baru, atau hanya bagian rusak yang harus dibuang.”
+Sekarang bahunya turun.
 
-Dia memberi isyarat kepada Zevaron.
+Kepalanya sedikit miring.
 
-“Serang.”
+Kilat emas di tubuhnya bergerak mengikuti denyut ungu dari leher.
 
-Zevaron melesat maju.
+"Apa yang kau lakukan kepadanya?"
 
-Angin dan petir meledak dari tubuhnya, tetapi serangannya tidak lagi memiliki kecerdikan yang Kael lihat di Kuil Celestial. Dia bergerak liar berdasarkan satu perintah.
+Rowan turun dari balkon.
 
-“Zevaron, sadarlah.”
+"Memperlihatkan bahwa kehendak bebas terlalu dilebih-lebihkan."
+
+Zevaron menyerang.
+
+Petir memenuhi ruangan.
+
+Kael menangkis dengan medan resonansi, tetapi serangannya jauh lebih kuat daripada di Aethelgard. Void yang ditanam Rowan membuat energi Zevaron tidak lagi kehilangan daya ketika tubuhnya seharusnya lelah.
+
+Ia membakar dirinya sendiri untuk terus menyerang.
+
+"Zevaron!"
 
 Tidak ada jawaban.
 
-Kael menghindari cambuk petir dan menahan pusaran angin dengan energi tiga warna.
+Kael membuka Mata Kesembilan.
 
-Sylvara menembakkan panah penenang, tetapi Zevaron tidak bereaksi.
+Benang ungu terlihat dari tulang belakang Zevaron menuju lingkaran rune di belakang Rowan.
 
-“Dia dikendalikan sepenuhnya,” katanya.
+Bukan kendali pikiran biasa.
 
-“Serang Rowan,” seru Zireth. “Sumber perintahnya mungkin liontin itu.”
+Sistem sarafnya dipaksa mengikuti frekuensi eksternal.
 
-Rowan tertawa.
+"Kau mengubahnya jadi Echo Vessel."
 
-“Aku tidak perlu mengendalikannya setiap saat. Aku hanya menanamkan satu perintah pada pikirannya yang sudah lemah: hancurkan Kael Drayven.”
+"Tidak sepenuhnya. Salinan tidak menyenangkan jika aslinya masih bisa menderita."
 
-Pusaran di altar mulai berputar lebih cepat.
+Kael merasakan amarah naik.
 
-“Sementara kalian sibuk, aku mengambil energi Nexus Point ini.”
+Rowan tersenyum seolah melihatnya.
 
-Kael memahami pengalihan tersebut.
+"Ya. Itu. Aku merindukan Kael yang mudah diarahkan."
 
-“Aku tahan Zevaron. Kalian hentikan Rowan.”
+Kalimat itu bekerja lebih baik daripada ejekan.
 
-Sylvara dan Zireth menyerang bersama. Panah rune serta gelombang sonik menghantam perisai Void yang dibentuk Rowan tanpa kesulitan.
+Amarah Kael tidak hilang.
 
-“Terlambat.”
+Dia hanya berhenti membiarkannya menentukan serangan berikutnya.
 
-Energi murni dari pusaran mengalir deras ke liontin Vorthax.
+"Ujian terakhir apa?" tanyanya.
 
-Rowan mengangkat kepala ketika kekuatan memenuhi tubuhnya.
+"Apakah Jalan Keempatmu bertahan ketika satu-satunya cara menghentikan lawan adalah menghancurkannya."
 
-Lalu suara retakan tipis terdengar.
+Zevaron melesat lagi.
 
-Liontin itu pecah lebih lebar.
+Kael menghindar, bukan membalas.
 
-“Apa?”
+"Kau ingin aku membunuhnya."
 
-Energi yang dipaksa masuk kehilangan kestabilan. Ledakan Void menghancurkan perisai Rowan dan melemparkannya ke belakang.
+"Aku ingin melihat pilihanmu."
 
-Gelombang yang sama menghantam Zevaron.
+"Tidak."
 
-Cahaya ungu pada matanya padam sesaat. Tatapan emasnya kembali, penuh kebingungan dan rasa sakit.
+Kael memandang benang ungu.
 
-“Kael?”
+"Kau ingin datanya."
 
-Tubuhnya jatuh tidak sadar.
+Untuk pertama kalinya senyum Rowan menghilang sedikit.
 
-Kael menatap liontin yang retak parah. “Benda itu tidak mampu menahan energinya.”
+Kael mengerti.
 
-“Atau sejak awal dirancang untuk gagal,” kata Zireth. “Arsitek mungkin sedang menguji akibat kehancurannya.”
+Arsitek tidak hanya merencanakan bencana.
 
-Rowan bangkit perlahan.
+Ia mempelajari cara Kael memecahkan masalah.
 
-Wajahnya terluka dan dipenuhi amarah. Liontin rusak masih tergantung di leher, tetapi energi yang mengelilingi tubuhnya kini lebih pekat dan liar.
+Setiap ujian adalah rekaman.
 
-“Gagal?” Dia memandang tangannya sendiri. “Mungkin prosesnya justru dipercepat.”
+Setiap kemenangan memperbaiki model berikutnya.
 
-Tatapannya berubah menjadi niat membunuh.
+Kael menurunkan Zerath's Fang.
 
-“Masih ada cara lain menjadikanmu Kunci Pengorbanan yang sempurna.”
+Sylvara berteriak, "Kael!"
 
-Void berderak di sekeliling lengannya.
+"Jangan serang Zevaron."
 
-“Kali ini, kita akhiri semuanya.”
+Petir datang lagi.
 
-Kael mengambil posisi di depan Sylvara, Zireth, dan Zevaron yang pingsan.
+Kael membuka kedua tangan.
 
-Pertarungan sebenarnya baru akan dimulai.
+Jika Arsitek ingin mempelajari cara dia menang, Kael akan berhenti mencoba menang dengan cara yang dapat direkam.

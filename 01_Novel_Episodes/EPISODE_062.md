@@ -1,59 +1,103 @@
 # Episode 062 — Gema Fragmen Keenam
 
-Serangan cahaya, api, es, angin, dan petir mengguncang aula.
+Kael berhenti menyerang.
 
-Di tengah kekacauan itu, Kael merasakan tarikan kuat dari pusat ruangan.
+Zevaron tidak.
 
-Sebuah altar kristal melayang rendah di atas lantai. Di atasnya berputar bola cahaya putih keemasan, cair seperti bintang yang dilelehkan.
+Petir menyapu bahunya dan membakar jubah. Kael membiarkan rasa sakit lewat tanpa membalas.
 
-Fragmen keenam.
+"Kau menyerah?"
 
-Bentuknya berbeda dari Fragmen lain. Tidak ada batu atau permukaan padat, hanya cahaya hidup yang terus bergerak.
+"Dengar."
 
-Penjaga Celestial merasakan perubahan yang sama.
+"Apa?"
 
-“Inti Cahaya terbangun karena energi kalian yang rusak.”
+"Fragmennya."
 
-Dia terbang menuju altar untuk melindunginya.
+Zevaron mencibir—lalu ekspresinya berubah.
 
-Zevaron melihat cahaya tersebut dan seluruh perhatiannya berubah.
+Di bawah gemuruh kuil ada ritme lain.
 
-“Jadi itu wujud aslinya.” Keserakahan memenuhi mata emasnya. “Kekuatan bintang murni.”
+Denyut Hati Lykaros semakin cepat setiap kali energi mereka beradu.
 
-Dia meninggalkan pertarungan dan melesat ke altar.
+Seraphis mengangkat pedang ke arah Rowan.
 
-“Jangan!” Kael mengejarnya.
+*Hentikan rangkaian pengotor.*
 
-Sebelum Zevaron menyentuh Inti Cahaya, Fragmen itu berdenyut.
+Rowan melepaskan gelombang Void. Seraphis menangkis, tetapi benturannya justru membuat altar bergetar lebih keras.
 
-Gelombang Aether putih keemasan menyapu aula.
+"Jangan lawan di dekat inti!" teriak Kael.
 
-Penjaga Celestial berdiri semakin tegak ketika energinya dipulihkan. Bagi Kael dan Zevaron, gelombang tersebut terasa seperti api yang membakar dari dalam.
+Cahaya keemasan meledak dari altar.
 
-Zevaron terlempar dan menghantam lantai.
+Kael tidak sempat berlindung.
 
-“Cahaya terkutuk.”
+Gelombang itu menembus tubuh seperti air panas yang berubah menjadi es di dalam darah. Api merahnya padam. Energi biru membeku. Rune ungu pada lengan kiri menyala sampai kulit di sekitarnya memutih.
 
-Kael ikut terpukul mundur. Lengan kirinya menerima dampak paling keras. Rune Void menyala dan mengeluarkan asap tipis.
+Zevaron terlempar ke dinding.
 
-Namun di balik rasa sakit, Aether tersebut mencoba melakukan sesuatu yang lain. Energinya masuk ke dalam struktur Fragmen dan mendorong kekacauan di tubuh Kael menuju keseimbangan.
+Rowan mundur sambil membangun perisai gelap.
 
-Proses pembersihan itu terasa seperti kulitnya dikupas dari dalam.
+Seraphis justru berdiri tegak di dalam cahaya.
 
-Rowan berdiri paling jauh dari altar. Lapisan Void melindunginya dari sebagian gelombang.
+Kael jatuh satu lutut.
 
-“Pertahanan otomatis,” katanya. “Inti tersebut mampu menolak energi yang dianggap tidak murni.”
+Kemudian dia melihat sesuatu.
 
-Penjaga bersayap enam mendarat di depan altar. Pedang kristalnya diarahkan kepada mereka.
+Bukan dengan mata.
 
-“Pergi dari tempat ini.”
+Hati Lykaros menyentuh sistem energinya dan untuk sesaat memperlihatkan bentuk asli resonansi di dalam tubuh Kael.
 
-Cahaya dari keenam sayap mengisi ruangan.
+Merah tidak berdiri sendiri.
 
-“Kalian tidak pantas berdiri di hadapan Hati Lykaros.”
+Biru tidak berdiri sendiri.
 
-Inti Cahaya berputar di belakangnya. Zevaron bangkit dengan marah. Kael menahan lengan kiri yang masih terbakar, sementara Rowan kembali menunggu.
+Ungu juga tidak.
 
-Fragmen keenam telah memperlihatkan dirinya.
+Ketiganya terhubung oleh ruang kosong tipis—jeda, bukan energi. Selama ini Kael selalu mencoba menyeimbangkan kekuatan. Padahal yang membuatnya stabil justru jarak kecil di antara mereka.
 
-Kini seluruh pihak mengetahui apa yang harus mereka rebut—atau lindungi.
+Jangan biarkan semuanya menjadi satu.
+
+Biarkan mereka tetap berbeda tanpa saling menghancurkan.
+
+Cahaya menghilang.
+
+Kael terengah.
+
+Lengan kirinya masih dingin, tetapi rasa nyeri kronis yang selalu ada berkurang.
+
+Seraphis menatapnya.
+
+*Hati mengenali pola yang belum selesai.*
+
+"Apa maksudmu?"
+
+Tidak ada jawaban.
+
+Zevaron bangkit dengan darah di sudut bibir.
+
+Matanya tertuju pada Fragmen.
+
+Bukan takut.
+
+Lebih lapar daripada sebelumnya.
+
+"Kalau satu denyutnya bisa melakukan itu... bayangkan kalau seluruh intinya berada dalam tubuhku."
+
+Kael berdiri.
+
+"Kau tidak belajar apa-apa."
+
+Zevaron tersenyum.
+
+"Sebaliknya. Aku baru belajar berapa besar hadiahnya."
+
+Dia melesat menuju altar.
+
+Seraphis bergerak menghalangi.
+
+Kael bergerak juga—bukan untuk merebut Fragmen, tetapi karena dia sudah tahu apa yang akan terjadi jika Zevaron menyentuhnya saat rangkaian Rowan masih aktif.
+
+Dan Rowan, dari sisi aula, tidak mencoba menghentikan siapa pun.
+
+Dia sedang menunggu tepat momen itu.

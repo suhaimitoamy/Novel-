@@ -1,63 +1,95 @@
 # Episode 088 — Gema Kematian
 
-Perjalanan membawa mereka ke bekas medan perang yang dipenuhi tulang dan zirah berkarat.
+Jalan menuju kuil dipenuhi suara orang mati.
 
-“Tempat apa ini?” tanya Sylvara.
+Tidak ada hantu yang terlihat.
 
-Zireth mencari catatan lama. “Medan Pertempuran Jiwa. Para pendiri Xyphus pernah saling membunuh di sini demi entitas Void pertama yang mereka panggil.”
+Itu membuatnya lebih buruk.
 
-Udara dipenuhi gema kematian dan ambisi yang gagal.
+Setiap tulang yang mereka lewati menyimpan sepotong gema terakhir: teriakan, doa, nama seseorang, napas yang tidak selesai.
 
-*Sakit. Lepaskan aku.*
+Mata Kesembilan membuat Kael mendengar semuanya jika tidak sengaja dia fokus.
 
-*Kekuatan itu hampir menjadi milikku.*
+Setelah seratus langkah dia muntah di sisi jalan.
 
-*Jangan percaya kepadanya.*
+Sylvara menunggu tanpa komentar.
 
-Kael menekan kepala. Terlalu banyak suara masuk sekaligus.
+Zireth mematikan beberapa sensor pada lengannya sendiri.
 
-Lengan kirinya berubah lebih gelap. Rune ungu menyerap energi nekrotik di sekeliling tanpa perintah.
+"Kita bisa melewati tanpa melihat," kata Sylvara.
 
-“Lenganmu mengambil energi kematian,” kata Zireth.
+Kael menggeleng.
 
-“Aku tahu. Tapi rasanya akrab.”
+"Bukan semuanya."
 
-Tulang-tulang di tanah mulai bergerak.
+Dia menatap tulang-tulang itu.
 
-Potongannya merangkai diri menjadi puluhan prajurit kerangka bermata ungu. Senjata berkarat terangkat serentak.
+"Tapi aku bisa memilih mana yang perlu."
 
-“Bukan Necromancy biasa,” ujar Zireth. “Void memakai tulang sebagai wadah.”
+Kael menutup sebagian persepsinya.
 
-Kerangka menyerang.
+Bukan mudah. Rasanya seperti mencoba tidak mendengar satu suara di ruangan penuh orang berteriak. Namun perlahan dunia menjadi lebih sunyi.
 
-Api Kael memecahkan tubuh mereka, tetapi tulang-tulang kembali menyatu. Sylvara dan Zireth mulai terdesak oleh jumlahnya.
+Satu gema tetap dia biarkan terbuka.
 
-Kael memakai lengan kiri.
+Jejak energi terbaru.
 
-Ledakan Void membekukan satu kerangka menjadi debu, tetapi energi gelap dari tubuh yang hancur langsung tersedot kembali ke lengannya.
+Seseorang telah berjalan di jalan ini beberapa jam lalu.
 
-“Jangan terus gunakan itu,” peringat Zireth. “Kita tidak tahu batas penyerapanmu.”
+Dua orang.
 
-Kael dikepung.
+Yang pertama meninggalkan bekas Void yang sangat Kael kenal.
 
-Dia menyalurkan api merah, es biru, dan Void ungu ke Zerath's Fang. Ketiganya tidak dibiarkan saling melahap, melainkan diputar dalam satu pola.
+Rowan.
 
-Kael menebas melingkar.
+Yang kedua meninggalkan angin dan petir.
 
-“Tri-Elemental Purge.”
+"Zevaron."
 
-Gelombang tiga warna menyapu medan. Kerangka-kerangka hancur, dan kali ini energi nekrotik tidak diserap. Cahaya merah-biru menetralkan kegelapan sebelum Void mampu melahapnya.
+Sylvara menatapnya. "Dia bersama Rowan?"
 
-Keheningan kembali.
+"Atau dibawa Rowan. Jejaknya tidak stabil."
 
-Kael berdiri di antara debu tulang dengan napas berat.
+Mereka mempercepat langkah.
 
-“Keseimbangan,” gumamnya. “Itu cara mengendalikan Void.”
+Di dataran berikutnya, tanah bergerak.
 
-Zireth memeriksa sisa energi. “Kau tidak sekadar menghancurkannya. Kau menetralkan korupsi.”
+Tulang-tulang yang tertanam mulai keluar satu per satu dan menyusun tubuh baru. Bukan kerangka manusia, melainkan makhluk campuran dari berbagai spesies—tulang naga, Beastmen, Elf, dan sesuatu yang tidak Kael kenal.
 
-Sylvara menunjuk ke kejauhan.
+Tidak ada pusat sihir tunggal.
 
-Di balik kabut hitam, siluet Kuil Pengorbanan telah terlihat.
+Semua tulang di pulau menjadi jaringan saraf bersama.
 
-Jantung kegelapan Belzoth menunggu tepat di depan mereka.
+Kael menghunus Zerath's Fang.
+
+Dia hampir memanggil api besar.
+
+Kemudian teringat apa yang dilakukan pada Penjaga Kristal.
+
+Jaringan memiliki ritme.
+
+Kael menunggu sampai makhluk pertama mengangkat cakar.
+
+Dia menghantam tanah, mengirim tiga denyut berbeda melalui tulang.
+
+Merah mempercepat satu bagian.
+
+Biru memperlambat bagian lain.
+
+Ungu memutus komunikasi di antaranya.
+
+Tubuh kerangka berhenti di tengah gerakan.
+
+Kemudian runtuh karena tidak lagi sepakat tentang bentuk apa yang harus dipertahankan.
+
+Makhluk lain ikut jatuh.
+
+Zireth melihat pembacaan sensor. "Kau tidak menghancurkan tulangnya."
+
+"Aku menghancurkan kesepakatannya."
+
+Di depan, Kuil Pengorbanan akhirnya terlihat.
+
+Menara obsidian berbentuk spiral menembus awan.
+
+Dan di puncaknya, satu kilat emas menyambar dari dalam ke luar.

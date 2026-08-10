@@ -1,75 +1,89 @@
 # Episode 058 — Pesan dari Seberang
 
-Jembatan Foton retak di bawah kaki Kael.
+Dinding es di depan mereka menyala.
 
-Cahaya berkedip liar, sementara jurang gelap menunggu di bawahnya. Dia tidak bisa kembali. Namun jika bergerak dengan tergesa-gesa, jembatan akan runtuh sebelum mencapai sisi lain.
+Cahaya membentuk sosok perempuan bergaun panjang. Wajahnya tidak utuh—separuh hilang oleh gangguan, seperti rekaman yang telah diputar terlalu lama.
 
-Lengan kirinya terbakar akibat benturan antara Void dan Aether.
+Kael menahan diri untuk tidak mendekat.
 
-“Fokus pada energi murnimu,” teriak Sylvara dari seberang. “Jangan biarkan lengan itu mengambil kendali.”
+"Siapa kau?"
 
-Kael menarik napas.
+Rekaman tidak menjawab pertanyaan itu.
 
-Dia menahan kepanikan dan memusatkan pikiran pada keseimbangan api merah serta biru. Bukan kekuatan untuk menghancurkan, melainkan alasan dia terus berjalan.
+*Pintu utama telah jatuh ke dalam pengawasan luar.*
 
-Melindungi. Menemukan jawaban. Memilih jalannya sendiri.
+Gambar di belakang sosok perempuan berubah menjadi peta Aethelgard.
 
-Penyebaran retakan melambat.
+Satu jalur menuju puncak ditandai merah.
 
-Jembatan masih bergetar, tetapi cahaya di bawah kakinya menjadi lebih stabil.
+Jalur lain hampir tidak terlihat, berputar di sisi barat gunung.
 
-Sosok Berhelm memiringkan kepala. “Dia menstabilkannya?”
+*Jika Hati Lykaros terbangun, jangan biarkan tiga pewaris menyentuhnya dalam keadaan konflik.*
 
-Kael melangkah perlahan.
+Sylvara menatap Kael. "Tiga pewaris?"
 
-Satu langkah. Lalu satu lagi.
+Rekaman berkedip.
 
-Dia mencapai platform di sisi lain tepat ketika bagian tengah jembatan pecah menjadi debu cahaya dan jatuh ke jurang.
+Tiga siluet muncul: satu dikelilingi api dan es, satu disambar petir, satu diselimuti hitam.
 
-Kael terduduk, terengah-engah.
+Kael mengenali yang terakhir tanpa perlu wajah.
 
-“Dia berhasil,” seru Sylvara.
+"Rowan."
 
-“Tapi kami masih bersama Wyvern,” kata Zireth.
+Siluet kedua tidak dia kenal.
 
-Sosok Berhelm memandang Kael dengan cara berbeda. Tombaknya turun sedikit.
+*Ambisi, kehampaan, dan luka menghasilkan resonansi yang mampu memecahkan inti.*
 
-“Kau menyimpang dari parameter awal, Anomali. Protokol penahanan dapat ditunda.”
+Zireth mendekati peta. "Siapa yang membuat pesan ini?"
 
-“Siapa kalian sebenarnya?” Kael mencoba berdiri.
+Kali ini sosok perempuan seolah menoleh kepadanya.
 
-Sebelum jawaban datang, sinyal darurat berbunyi dari zirah hitam itu.
+*Nama pribadi tidak lagi berguna. Fungsi terakhir: Nyara, Pengamat Mata Kesembilan.*
 
-“Peringatan. Anomali energi dimensi tingkat tinggi terdeteksi. Lokasi: Puncak Aethelgard.”
+Kael mengingat judul pada salah satu arsip Dwarf yang pernah dibaca Zireth. Mata Kesembilan—konon observatorium Celestial yang dapat melihat jalur kemungkinan, bukan masa depan pasti.
 
-Sosok Berhelm menoleh ke arah puncak yang tersembunyi di kejauhan.
+"Kau masih hidup?"
 
-“Dia memulai lebih cepat dari perkiraan.”
+Wajah Nyara bergetar.
 
-Tatapannya kembali kepada Kael.
+*Pertanyaan salah.*
 
-“Takdirmu menunggu di sana. Berhati-hatilah dengan kunci yang kau bawa dalam tubuhmu.”
+Kael mengernyit.
 
-Dia melompat ke punggung Void Wyvern.
+*Yang perlu kau tanyakan adalah berapa banyak bagian diriku yang masih berada pada waktu yang sama denganmu.*
 
-“Misi berubah. Prioritas utama: Aethelgard.”
+Rekaman pecah menjadi bintik cahaya.
 
-Wyvern terbang meninggalkan reruntuhan dengan kecepatan tinggi.
+Sebelum hilang, satu kalimat tersisa.
 
-Sylvara menatap kepergiannya. “Dia pergi begitu saja?”
+*Jangan percaya Nexus ketika mereka menyebut keseimbangan. Mereka hanya mempercayai dunia yang bisa diukur.*
 
-“Anomali di puncak pasti berhubungan dengan Fragmen keenam atau Rowan,” kata Zireth.
+Dinding kembali menjadi es biasa.
 
-Kael memandang jurang yang memisahkan mereka. “Cari jalan memutar. Aku akan menunggu di sisi ini.”
+Zireth menghela napas. "Aku mulai merindukan ancaman yang hanya mencoba memakan kita."
 
-Buku rune dalam pakaiannya bergetar.
+Kael menatap jalur samping pada peta yang masih melekat dalam ingatannya.
 
-Kael membukanya. Sebuah simbol baru bersinar pada halaman yang sebelumnya kosong.
+Mereka bergerak sebelum Agen Nexus menemukan jalan memutar.
 
-*Aethelgard bukan puncak, melainkan gerbang. Dia menunggumu di dalam cermin.*
+Jalur barat lebih sempit, tetapi tidak dijaga. Beberapa kali mereka harus memanjat dengan tangan telanjang karena tangga kristal sudah patah.
 
-Kael membaca pesan itu sekali lagi.
+Menjelang senja, Kael melihat sesuatu di puncak berikutnya.
 
-Siapa yang menunggu? Gerbang apa yang disembunyikan puncak?
+Kilat.
 
-Di seberang jurang, Sylvara dan Zireth mulai mencari mekanisme lain. Kael menutup buku, tetapi kata-kata tersebut tetap menyala dalam pikirannya.
+Bukan petir dari awan.
+
+Satu garis emas menghantam lereng, disusul ledakan angin yang menyapu salju puluhan meter.
+
+Lalu cahaya putih membalas dari balik kabut.
+
+Seseorang sudah bertarung di atas sana.
+
+Tiga pewaris, kata Nyara.
+
+Kael mempercepat langkah.
+
+Lengan kirinya mulai berdenyut mengikuti kilat dari puncak.
+
+Dan untuk pertama kalinya, denyut itu terdengar seperti sesuatu yang mengenali saudara jauh.

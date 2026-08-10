@@ -1,57 +1,105 @@
 # Episode 065 — Ambisi Rowan
 
-Aula mendadak sunyi setelah ledakan.
+"Kenapa?"
 
-Kael, Zevaron, dan Penjaga Celestial bangkit dengan hati-hati. Masing-masing menjaga jarak sambil mengawasi pihak lain.
+Pertanyaan Kael keluar lebih pelan daripada yang dia inginkan.
 
-“Energi menjijikkan apa yang kau gunakan?” tanya Zevaron.
+Rowan berdiri di tengah jaringan rune yang menyala di lantai. Senyumnya tidak lagi seperti biasanya. Tidak mengejek. Tidak menikmati permainan.
 
-Pedang Penjaga mengarah kepada Kael. “Kau membawa racun Kehampaan ke tempat suci.”
+Terlalu tenang.
 
-Kael mencoba menggerakkan lengan kiri. Bagian itu masih dingin dan mati rasa.
+"Karena kalian semua salah mengira Fragmen sebagai hadiah," katanya.
 
-“Aku tidak sepenuhnya mengendalikannya.”
+Seraphis bergerak menuju altar.
 
-Tatapannya beralih kepada Rowan.
+Rowan menjentikkan tongkat. Dinding Void naik di antara mereka.
 
-“Ini bagian dari rencanamu sejak awal, bukan?”
+"Mereka bukan hadiah. Mereka pasak. Dua belas titik yang menahan bentuk Zerath agar tetap seperti sekarang."
 
-Rowan hanya tersenyum.
+Kael menatap Hati Lykaros.
 
-Saat seluruh perhatian tertuju kepada Kael, dia bergerak.
+"Kalau kau memecahnya..."
 
-Tubuhnya melesat menuju altar dalam kilatan Void.
+"Salah satu pasak lepas. Jalur yang ditutup Celestial terbuka."
 
-“Waktunya tepat.”
+Agen Nexus mengangkat tombak. "Pernyataan itu sesuai sebagian arsip terlarang Nexus."
 
-Penjaga Celestial menyadari niatnya dan terbang mencegat.
+Rowan tertawa kecil. "Kalian masih menyimpan arsipnya? Lucu. Kalian takut pada kebenaran tetapi terlalu takut juga untuk membakarnya."
 
-“Beraninya kau.”
+Zevaron memandang Rowan dengan marah. "Kau bilang inti ini bisa meningkatkan resonansiku."
 
-Rune gelap terbentuk di ujung tongkat Rowan. Udara di sekitarnya terasa menyesakkan.
+"Dan memang bisa. Kalau kau cukup cepat mengambil pecahannya sebelum semuanya runtuh."
 
-“Wahai Kehampaan, pinjamkan gemamu untuk merusak Cahaya Abadi.”
+Zevaron menyadari akhirnya.
 
-Tongkat diarahkan kepada Inti Cahaya.
+Dia tidak pernah menjadi partner.
 
-“Dia akan mengkorupsi Fragmen,” teriak Kael.
+Hanya sumber energi lain untuk memaksa Hati Lykaros melewati batas.
 
-Zevaron ikut bergerak. Dia menginginkan Inti tersebut tetap utuh agar dapat dimiliki, bukan dihancurkan oleh Rowan.
+"Bajingan."
 
-“Itu milikku.”
+"Kau baru sadar?"
 
-Penjaga mencapai altar lebih dulu dan membentuk perisai keemasan terakhir.
+Zevaron menyerang.
 
-“Tidak akan kubiarkan Hati Lykaros ternoda.”
+Petir dan Void bertabrakan di atas jaringan rune.
 
-Rowan tersenyum tipis. “Aku tidak perlu menghancurkanmu. Cukup membuatmu lengah.”
+Kael tidak ikut.
 
-Energi Void menghantam perisai dari depan.
+Dia berlari ke altar.
 
-Pada saat yang sama, badai Zevaron menyerang dari samping. Penjaga menahan dua kekuatan sekaligus, sementara Inti Cahaya berdenyut tidak stabil di belakangnya.
+Seraphis berada di sana, kedua tangannya menahan lapisan cahaya yang mulai pecah.
 
-Kael berdiri beberapa langkah dari mereka.
+*Kerusakan internal tiga puluh dua persen.*
 
-Rowan ingin merusak Fragmen. Zevaron ingin merebutnya. Keduanya akan menghancurkan kuil jika dibiarkan.
+"Bisa dihentikan?"
 
-Dia harus menentukan siapa yang dihentikan lebih dahulu—dan setiap detik membuat pertahanan Penjaga semakin dekat pada kehancuran.
+*Dengan mengakhiri seluruh sumber konflik.*
+
+Kael hampir mengumpat.
+
+"Ada cara lain."
+
+*Tidak tercatat.*
+
+"Aku juga tidak tercatat."
+
+Seraphis menatapnya.
+
+Di belakang mereka, Zevaron dan Rowan menghantam satu sama lain. Agen Nexus bergerak untuk memutus beberapa rune. Sylvara dan Zireth menghancurkan pecahan hitam pada pilar yang masih aktif.
+
+Hati Lykaros terus berkedip.
+
+Kael menempelkan tangan kanan pada altar.
+
+Tidak menyentuh Fragmen.
+
+Dia mendengarkan frekuensinya.
+
+Di balik kekacauan ada satu nada dasar yang masih utuh.
+
+Sangat lemah.
+
+Tetapi ada.
+
+"Aku bisa menahannya."
+
+Seraphis menggeleng.
+
+*Tubuh fana tidak mampu menampung resonansi Hati.*
+
+"Aku tidak mau menampungnya."
+
+Kael mengingat jembatan foton.
+
+"Aku cuma mau mengingatkan benda ini pada nadanya sendiri."
+
+Dia mengirim satu denyut balasan.
+
+Hati Lykaros berhenti berkedip selama satu detik.
+
+Rowan menoleh.
+
+Dan untuk pertama kalinya sejak Kael mengenalnya, ekspresi pria itu benar-benar berubah.
+
+Takut.

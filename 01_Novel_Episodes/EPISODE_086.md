@@ -1,59 +1,85 @@
 # Episode 086 — Tujuan Baru: Jantung Kegelapan
 
-Kael, Sylvara, dan Zireth berdiri di pantai berpasir hitam.
+Benteng Vorthax ternyata bukan satu bangunan.
 
-Di seberang laut, Pulau Belzoth menjulang di bawah badai sihir permanen. Awan ungu berputar di atas siluet benteng obsidian.
+Itu nama yang digunakan peta lama untuk seluruh jaringan ritual yang pusatnya berada di Pulau Belzoth—wilayah Xyphus, di tengah laut yang bahkan nelayan pesisir enggan sebut namanya setelah matahari tenggelam.
 
-“Auranya terasa sampai sini,” kata Sylvara. “Seperti seluruh pulau menolak kehidupan.”
+Kael berdiri di pantai pasir hitam dan memandang pulau di kejauhan.
 
-“Badai dan ilusi melindungi Belzoth,” ujar Zireth. “Kapal biasa tidak dapat melewatinya.”
+Awan di atas Belzoth bergerak berlawanan dengan angin.
 
-Kael menggenggam pesan Rowan. “Ini jebakan. Tapi mungkin satu-satunya kesempatan menghentikannya sebelum ritual berikutnya.”
+Mata Kesembilan di mata kirinya membuat pemandangan lebih buruk. Dia dapat melihat lapisan-lapisan energi yang membungkus pulau seperti benang kusut: ilusi, kutukan, jalur Void, dan sesuatu yang berdenyut jauh di pusat.
 
-“Lalu bagaimana kita menyeberang?”
+"Kalau terus menatap seperti itu, kau akan pingsan sebelum kita menyeberang," kata Sylvara.
 
-Zireth menunjuk dermaga reyot di kejauhan.
+Kael memejamkan mata kiri.
 
-Seorang tukang perahu kurus duduk di ujungnya. Kulitnya pucat, tubuhnya nyaris tidak bergerak.
+Dunia langsung terasa lebih sederhana.
 
-“Penyeberang Arwah. Mereka dapat membuka jalur di tengah badai, tetapi bayarannya tidak pernah berupa uang.”
+"Lebih baik?"
 
-Mereka mendekat.
+"Lebih bodoh. Tapi nyaman."
 
-Tukang perahu mengangkat wajah. Mata kosong menilai Kael.
+Zireth selesai memeriksa perahu kecil yang mereka beli dari penyelundup.
 
-“Mau ke Belzoth?” Suaranya seperti pasir digerus. “Hanya jiwa retak yang datang kemari.”
+"Kabar baik: perahu ini mengapung."
 
-“Berapa bayarannya?” tanya Kael.
+"Kabar buruk?"
 
-“Bukan emas atau darah.” Jari kurus menunjuk dadanya. “Satu gema harapan yang tulus, atau satu serpihan keputusasaan yang pekat.”
+"Aku belum menguji apakah ia tetap mengapung di laut yang mencoba membunuh kita."
 
-Sylvara langsung menoleh. “Jangan.”
+Mereka berangkat saat senja.
 
-Kael memikirkan akibatnya.
+Setengah perjalanan, Kael menemukan sesuatu tersangkut di tali layar.
 
-Menyerahkan harapan dapat membuat kekosongan dalam dirinya semakin luas. Memberikan keputusasaan mungkin memberi makan sifat gelap pulau dan Void pada lengannya.
+Gulungan kertas hitam.
 
-Namun mereka tidak memiliki jalur lain.
+Tidak ada yang melihat kapan benda itu muncul.
 
-“Aku membayar dengan keputusasaan.”
+Di dalamnya hanya satu kalimat.
 
-Kael memejamkan mata dan mengingat Aranyel yang terbakar, kehilangan ibunya, serta saat dia menyadari kekuatannya dapat menghancurkan orang yang ingin dilindungi.
+**KUIL PENGORBANAN. TENGAH MALAM. DATANGLAH JIKA MASIH INGIN TAHU MENGAPA ARANYEL HARUS TERBAKAR.**
 
-Gema emosi itu mengalir keluar.
+Kael membaca dua kali.
 
-Tukang perahu menyerapnya. Tubuhnya gemetar ringan, lalu senyum kaku muncul.
+Tangan kanannya mengepal.
 
-“Pembayaran diterima. Naik.”
+Sylvara mengambil gulungan dan segera merobeknya.
 
-Mereka memasuki perahu.
+"Dia sedang menarikmu."
 
-Ketika dayung menyentuh air, badai di depan membuka lorong sempit. Perahu reyot bergerak menembus kegelapan tanpa diterjang ombak.
+"Aku tahu."
 
-Zireth memandang Kael. “Kau yakin memilih dengan benar?”
+"Kalimatnya bekerja."
 
-Kael melihat telapak tangannya. Tubuhnya terasa sedikit lebih dingin dan kosong.
+Kael menatap pulau.
 
-“Harapan terlalu berharga untuk kubuang.”
+"Aku juga tahu."
 
-Perahu membawa mereka semakin dekat ke Pulau Belzoth dan siluet Kuil Pengorbanan yang menunggu di jantungnya.
+Itulah perbedaan dari sebelumnya.
+
+Dia tidak akan berpura-pura kebal terhadap umpan Rowan. Aranyel masih menjadi luka terbesar dalam dirinya. Mengetahui itu tidak membuat luka hilang.
+
+Namun sekarang Kael bisa memilih apa yang dilakukan setelah rasa sakit muncul.
+
+"Kita tetap ke kuil," katanya.
+
+Sylvara menghela napas.
+
+"Tapi bukan karena pesan itu."
+
+"Lalu?"
+
+Kael membuka mata kirinya.
+
+Di pusat Belzoth, benang hitam yang terhubung pada simpul kedelapan di lengannya berdenyut.
+
+"Karena Arsitek ada di jaringan itu. Dan aku mau memotong jalurnya sebelum jalur itu memotongku."
+
+Gelombang besar menghantam perahu.
+
+Di kejauhan, Pulau Belzoth seperti semakin tinggi.
+
+Bukan karena mereka mendekat.
+
+Karena sesuatu di bawah laut mulai mengangkatnya.

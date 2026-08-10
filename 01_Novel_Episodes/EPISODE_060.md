@@ -1,75 +1,115 @@
 # Episode 060 — Penjaga Terakhir Langit
 
-Kael berdiri di depan Kuil Kristal. Sosok Berhelm menghalangi pintu dengan tombak terangkat.
+Kael tidak sempat mengejar Rowan.
 
-“Minggir.”
+Penjaga Celestial bergerak lebih dulu.
 
-“Keras kepala. Sesuai data tentangmu.” Zirah hitam itu mengambil posisi. “Uji lapangan kedua dimulai.”
+Satu kepakan sayap memindahkan tubuhnya belasan meter. Pedang kristal menyapu horizontal. Kael menunduk; tebasan cahaya memotong tiga pilar di belakangnya tanpa suara.
 
-Pertarungan berlangsung cepat.
+Zevaron melompat sambil tertawa.
 
-Kael menggunakan dorongan api dua warna untuk mengubah arah serangan, sementara lawannya bergerak dengan teknik yang jauh lebih terukur. Tombak energi selalu menemukan celah terkecil dalam pertahanan.
+"Masih selambat kemarin, Seraphis!"
 
-Sylvara dan Zireth mencoba membantu, tetapi Void Wyvern terbang rendah dan menyemburkan api ungu di antara mereka.
+Nama itu membuat Penjaga berhenti sesaat.
 
-“Kami tidak bisa mendekat,” teriak Zireth.
+*Nama fungsi lama tidak berlaku.*
 
-Kael menahan tusukan tombak, lalu memutar tubuh untuk menebas sisi zirah. Sosok Berhelm menghindar tipis.
+"Berarti benar."
 
-Celah itu cukup.
+Zevaron melepaskan petir dari kedua tangan.
 
-Kael menyalurkan sedikit Void dari lengan kiri dan melepaskannya sebagai gelombang kejut, bukan ledakan penuh.
+Seraphis menangkis dengan satu sayap. Cahaya dan listrik bertabrakan, memenuhi aula dengan bau ozon.
 
-Serangan tersebut mendorong lawannya beberapa langkah.
+Kael memanfaatkan celah untuk bergerak menuju altar.
 
-Kael langsung berlari melewati penjaga dan menerobos pintu kuil.
+Seraphis muncul di depannya.
 
-Sosok Berhelm menstabilkan tubuhnya, tetapi tidak mengejar.
+Pedang mengarah ke tenggorokan.
 
-“Nekat.”
+*Pola pewaris campuran. Kontaminasi Void. Akses ditolak.*
 
-Dia menoleh kepada Void Wyvern. “Amankan perimeter. Jangan biarkan siapa pun keluar atau masuk.”
+"Aku tidak datang untuk mengambil apa pun."
 
-Kael terus berlari ke dalam.
+Zevaron mendengar dan tertawa dari belakang.
 
-Dinding kuil terbuat dari kristal bening yang memancarkan cahaya putih. Di balik permukaannya terlihat bintang dan nebula, seolah bangunan itu melayang di ruang angkasa meski masih berada di Puncak Aethelgard.
+"Jangan bohong di tempat suci, Drayven. Semua orang yang naik sejauh ini datang untuk sesuatu."
 
-Di aula utama berlangsung pertarungan tiga arah.
+Kael menoleh sebentar.
 
-Sosok pertama adalah makhluk bersayap enam yang terbentuk dari cahaya murni. Pedang kristalnya bergerak anggun dan mematikan. Penjaga terakhir Lykaros.
+Kesalahan.
 
-Lawan di depannya seorang pemuda bermata emas. Angin topan dan petir menyambar dari kedua tangannya. Cara bertarungnya liar, brutal, dan dipenuhi kesenangan.
+Seraphis menendangnya ke pilar.
 
-Zevaron.
+Napas Kael hilang.
 
-Di sudut aula berdiri Rowan. Dia tidak ikut menyerang. Tongkat obsidian berada di tangan, sementara matanya mengamati semua pihak seperti sedang menunggu hasil yang diinginkan.
+Dia bangkit sambil menahan nyeri di rusuk.
 
-Zevaron tertawa ketika menangkis pedang cahaya.
+Penjaga itu kuat, tetapi gerakannya bukan tanpa pola. Setiap serangan dimulai setelah sayap ketiga di sisi kanan berkedip. Bukan isyarat—transfer energi.
 
-“Menyerahlah. Fragmen keenam akan menjadi milikku.”
+Kael menunggu serangan berikutnya.
 
-Penjaga Celestial mengangkat keenam sayapnya.
+Kedipan.
 
-“Selama Aether Lykaros masih bernapas dalam tubuhku, inti suci tidak akan jatuh kepada makhluk yang diperbudak keserakahan.”
+Dia masuk ke jarak dekat sebelum pedang selesai terbentuk.
 
-Kehadiran Kael menarik perhatian mereka.
+Zerath's Fang menghantam gagang, bukan bilah.
 
-Zevaron menoleh dan tersenyum seperti pemangsa.
+Seraphis terpaksa memutar tubuh.
 
-“Kael Drayven. Pewaris Luka yang dirumorkan itu.”
+Kael mengirim denyut kecil ke lantai. Resonansi merambat melalui kristal dan kembali dari kaki Penjaga.
 
-Tatapannya turun ke dada Kael.
+Untuk sesaat, dia merasakan struktur tubuh Seraphis.
 
-“Bagus. Dua Fragmen lebih baik daripada satu.”
+Bukan makhluk hidup sepenuhnya.
 
-Rowan hanya tersenyum tipis. “Kau selalu datang tepat waktu.”
+Bukan mesin.
 
-Penjaga Lykaros mengarahkan pedang kristalnya kepada Kael.
+Sesuatu di antara keduanya—kesadaran yang ditambatkan pada Aether.
 
-“Darah campuran. Api, es, dan noda Void. Mengapa kau membawa kehampaan ke tempat suci ini?”
+"Kau menjaga inti karena diperintah?" tanya Kael sambil mundur.
 
-Kael berdiri di tengah aula dengan tiga ancaman di sekelilingnya.
+*Karena ketika inti terakhir jatuh, jalur langit terbuka.*
 
-Fragmen keenam berada dekat.
+Itu bukan jawaban yang dia harapkan.
 
-Namun sebelum dapat mencapainya, dia harus bertahan dari Zevaron, Rowan, dan Penjaga terakhir langit.
+Zevaron berhenti tertawa.
+
+"Jalur langit?"
+
+Cahaya keemasan di altar berdenyut lebih kuat.
+
+Dari sisi aula, bayangan Rowan bergerak.
+
+Kael melihatnya kali ini.
+
+"Rowan!"
+
+Semua kepala menoleh.
+
+Rowan tidak menyerang siapa pun.
+
+Dia hanya menempelkan sesuatu pada salah satu pilar pengatur energi.
+
+Sebuah pecahan hitam kecil.
+
+Pilar langsung berubah ungu.
+
+Seraphis berbalik.
+
+Untuk pertama kalinya, ketenangan pada suaranya pecah.
+
+*Jangan—*
+
+Seluruh kuil berguncang.
+
+Cahaya keemasan di altar membesar sampai Kael harus menutup mata.
+
+Ketika membukanya lagi, benda di atas altar akhirnya terlihat jelas.
+
+Bukan batu.
+
+Sebuah inti cahaya padat sebesar dua kepalan tangan, berdenyut seperti jantung bintang.
+
+Fragmen keenam telah terbangun.
+
+Dan tiga energi berbeda di dalam aula—Kael, Zevaron, dan Rowan—langsung menjawabnya.

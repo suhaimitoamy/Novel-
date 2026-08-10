@@ -1,69 +1,115 @@
 # Episode 059 — Puncak Aethelgard
 
-Zireth menemukan mekanisme darurat yang mengaktifkan jembatan cahaya kedua. Setelah menyeberang, dia dan Sylvara kembali bergabung dengan Kael.
+Medan berubah sebelum mereka mencapai puncak.
 
-Mereka melanjutkan pendakian menuju dataran terakhir sebelum Puncak Aethelgard.
+Salju di depan Kael membengkok ke samping tanpa angin. Batu tampak ganda. Sesekali langkah Sylvara terdengar dari tempat yang berbeda dengan posisi tubuhnya.
 
-Puncak yang sebelumnya tampak biasa kini berkilau dan beriak seperti fatamorgana. Ruang di sekelilingnya melengkung, membuat bentuk gunung berubah setiap kali dilihat dari sudut berbeda.
+"Distorsi ruang," kata Zireth. "Kuilnya disembunyikan di balik lipatan lokal."
 
-“Puncaknya tidak terlihat nyata,” kata Sylvara.
+Kael menutup satu mata.
 
-Zireth mengarahkan pemindai. Data kembali kacau. “Medan distorsi spasial. Ini bukan ilusi sederhana. Struktur fisiknya benar-benar disembunyikan.”
+Tidak membantu.
 
-Kael teringat pesan buku rune.
+Dia menutup keduanya.
 
-“Aethelgard bukan puncak.”
+Lengan kirinya justru melihat lebih jelas daripada matanya.
 
-Dia memandang riak energi di depan.
+Bukan gambar, melainkan jaringan tekanan. Batas distorsi terasa seperti permukaan tipis yang memiliki frekuensi sendiri.
 
-“Gunung itu hanya kamuflase.”
+Kael mengikuti bagian yang paling tenang.
 
-Rune pada lengan kirinya berdenyut semakin kuat. Sesuatu di pusat distorsi menarik Fragmen dalam dadanya.
+"Ke kiri."
 
-Mereka mendekat dengan hati-hati.
+"Di kiri ada dinding," kata Sylvara.
 
-Di balik riak ruang, bentuk sebuah kuil mulai terlihat. Bangunannya terbuat dari kristal putih dan melayang beberapa meter di atas tanah. Cahaya lembut mengelilinginya seperti lapisan kabut.
+"Tidak. Yang terlihat seperti dinding."
 
-“Kuil Celestial,” bisik Sylvara.
+Dia melangkah menembusnya.
 
-“Tersembunyi selama ribuan tahun,” ujar Zireth.
+Es berubah menjadi kabut dingin di kulit.
 
-Medan distorsi mendadak berguncang.
+Di sisi lain, langit terbuka.
 
-Void Wyvern menerobos keluar dari dalamnya. Zirah Sosok Berhelm di punggung makhluk itu rusak pada beberapa bagian, seolah baru melewati pertempuran berat.
+Kuil Aethelgard berdiri di atas puncak yang seharusnya tidak muat di dalam gunung. Menara-menara kristal menjulang ke langit, terhubung jembatan tipis dan cincin cahaya.
 
-Dia melihat Kael.
+Ledakan mengguncang pelataran.
 
-“Anomali. Kalian lagi.”
+Sosok berzirah dari Nexus terlempar keluar dari pintu kuil dan mendarat dengan satu lutut. Permukaan helmnya retak.
 
-“Apa yang ada di dalam?” tanya Kael. “Siapa yang kau lawan?”
+Dia mendongak melihat Kael.
 
-“Penjaga terakhir Lykaros.” Sosok Berhelm berhenti sebentar. “Dan Zevaron.”
+"Anomali."
 
-Nama itu tidak sepenuhnya asing. Kael pernah melihatnya dalam catatan yang dibuka Zireth.
+"Kau lagi."
 
-“Siapa Zevaron?”
+Agen itu berdiri. Void Wyvern tidak terlihat.
 
-“Hibrida lain.” Tombak energi diarahkan ke kuil. “Namun dia tidak mencari keseimbangan. Dia menginginkan dominasi atas seluruh Fragmen.”
+"Puncak ini memiliki pertahanan yang tidak tercatat."
 
-Sosok Berhelm memandang pintu kuil.
+"Syukurlah ada sesuatu yang membuat laporanmu tidak lengkap."
 
-“Dia masuk lebih dulu.”
+Ledakan kedua terdengar dari dalam.
 
-Ledakan teredam terdengar dari dalam. Tanah es bergetar, dan cahaya pada kuil berdenyut tidak stabil.
+Kali ini disertai tawa.
 
-“Energinya melonjak,” kata Zireth.
+Laki-laki.
 
-“Kita harus masuk,” ujar Sylvara.
+Muda.
 
-Sosok Berhelm turun dan menghalangi jalan Kael.
+Kael tidak mengenali suaranya.
 
-“Terlalu berbahaya. Nexus Command akan menangani Zevaron.”
+Agen Nexus menatap pintu.
 
-Kael menggenggam Zerath's Fang.
+"Zevaron."
 
-“Aku tidak mempercayaimu. Jika Fragmen keenam berada di sana, aku akan melihatnya sendiri.”
+Nama itu membuat rune ungu Kael berdenyut.
 
-Di balik pintu kuil, pertarungan kembali mengguncang udara.
+"Siapa?"
 
-Kael dan Sosok Berhelm saling berhadapan di bawah riak medan distorsi. Untuk mencapai Fragmen berikutnya, dia mungkin harus melewati penjaga Nexus itu sekali lagi.
+"Hibrida resonansi. Subjek yang menolak penahanan Nexus tiga tahun lalu." Helm retak itu beralih kepada Kael. "Ia mirip denganmu hanya dalam satu hal: keberadaannya tidak sesuai klasifikasi."
+
+Dari dalam kuil, angin menyembur begitu keras hingga pintu kristal pecah.
+
+Seorang pria berambut gelap berjalan keluar melalui serpihan yang masih melayang. Kilat emas bergerak di bawah kulit lehernya. Mata kanannya berwarna seperti langit badai.
+
+Dia melihat Agen Nexus lebih dulu.
+
+Lalu Kael.
+
+Senyumnya berubah.
+
+"Oh."
+
+Listrik menari di antara jari-jarinya.
+
+"Jadi rumor tentang bocah tiga warna itu benar."
+
+Kael menghunus Zerath's Fang.
+
+"Zevaron?"
+
+"Tergantung siapa yang bertanya."
+
+Dari dalam kuil, cahaya putih meledak.
+
+Makhluk bersayap enam muncul di ambang, membawa pedang kristal panjang. Aura Aether dari tubuhnya membuat udara bergetar.
+
+Suara harmonis memenuhi puncak.
+
+*Pelanggar kedua kembali. Pelanggar ketiga terdeteksi.*
+
+Zevaron tertawa.
+
+"Lihat? Bahkan malaikatnya bingung menghitung kita."
+
+Penjaga Celestial mengangkat pedang.
+
+Di belakangnya, jauh di aula, satu cahaya keemasan berdenyut.
+
+Fragmen keenam.
+
+Kael merasakannya sampai ke tulang.
+
+Dan di sisi paling gelap aula, dia melihat sekelebat rambut putih.
+
+Rowan sudah berada di dalam.

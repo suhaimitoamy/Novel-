@@ -1,85 +1,121 @@
 # Episode 070 — Pengorbanan atau Pelarian
 
-Kuil Celestial runtuh di sekeliling Kael.
+Seraphis membuka enam sayapnya.
 
-Bongkahan kristal sebesar rumah jatuh dari langit-langit. Inti Cahaya mulai meredup, tetapi energinya tetap liar dan tidak stabil.
+Kael langsung tahu keputusan yang telah dibuat Penjaga.
 
-Kesadaran Kael timbul tenggelam.
+"Tidak."
 
-Sebuah gema tipis Penjaga Celestial muncul di dekat altar.
+*Energi fungsi dapat menggantikan struktur Hati yang rusak.*
 
-*Inti retak. Energinya harus disegel kembali atau seluruh lembah akan hancur.*
+"Dan kau hilang."
 
-Suara itu melemah.
+*Fungsi penjaga berakhir ketika objek perlindungan selamat.*
 
-*Darahmu. Keseimbanganmu. Kau adalah kuncinya.*
+"Kau bukan fungsi."
 
-Kael mencoba bangkit. Tubuhnya menolak, terutama lengan kiri yang terasa terbakar dan membeku dalam waktu bersamaan.
+Seraphis diam.
 
-Bagaimana dia dapat menyegel kekuatan sebesar itu?
+Kael tidak tahu apakah kalimat itu masuk akal bagi makhluk yang mungkin sudah hidup ribuan tahun sebagai bagian sistem.
 
-Rowan muncul dari balik puing. Wajahnya terluka, tetapi tatapannya tetap dingin dan penuh perhitungan.
+Gunung berguncang lagi.
 
-“Jadi Arsitek benar. Kau adalah kunci pengorbanan.”
+Bongkahan kristal jatuh dari langit-langit.
 
-Dia mendekat sambil mengangkat tongkat.
+Zireth muncul di pintu ruang inti bersama Sylvara dan Agen Nexus. Zevaron berada beberapa langkah di belakang, wajahnya berdarah. Rowan tidak terlihat.
 
-“Bukan Fragmen yang harus pecah, Kael. Kau.”
+"Jalan keluar mulai tertutup," kata Zireth. "Kita punya menit, bukan jam."
 
-Kael menatapnya. “Aku pengorbanannya?”
+Agen Nexus mengangkat tombak. "Prioritas evakuasi. Hati tidak dapat dipertahankan tanpa korban yang tidak rasional."
 
-“Selalu begitu.” Rowan tersenyum. “Saat tubuhmu menyatu dan hancur bersama Inti yang tidak stabil, ledakan resonansinya akan merobek dimensi.”
+Kael menatapnya. "Tentu saja Nexus punya kalimat untuk itu."
 
-Sebelum dia menyerang, Zevaron keluar dari sisi lain reruntuhan. Tubuhnya penuh luka, tetapi badai masih bergerak di sekeliling tangan.
+"Kalimat yang benar."
 
-“Tidak secepat itu. Jika aku tidak mendapatkan Fragmen, kau juga tidak.”
+"Belum tentu."
 
-Zevaron menyerang Rowan. Keduanya kembali bertarung di antara bangunan yang runtuh.
+Kael melihat jaringan di dinding.
 
-Kael memandang Inti Cahaya.
+Hati Lykaros bukan satu benda yang berdiri sendiri. Seluruh kuil adalah sistem penyangga. Seraphis hanya ingin mengganti bagian rusak dengan dirinya karena itu solusi tercepat.
 
-Dia dapat melarikan diri dan membiarkannya meledak. Atau mencoba menyegel seluruh tenaga tersebut dan mungkin memenuhi rencana pengorbanan Rowan.
+Kael pernah melakukan hal serupa di Gerbang Es—memaksa satu tubuh menanggung beban yang seharusnya dibagi.
 
-Tak satu pun dapat diterima.
+Akibatnya masih hidup di lengan kirinya.
 
-Dinding luar kuil hancur oleh serangan dari luar.
+"Kita tidak perlu mengganti Hati," katanya. "Kita bagi bebannya."
 
-Sylvara dan Zireth menerobos masuk bersama Sosok Berhelm.
+Zireth mengerti lebih cepat daripada yang lain. "Ke struktur kuil?"
 
-“Kael!”
+"Ke semua cincin yang masih utuh."
 
-“Kuil akan runtuh,” teriak Zireth. “Kita harus pergi.”
+"Setengahnya rusak."
 
-Sosok Berhelm membaca keadaan dalam satu pandangan. “Prioritas: ekstraksi Anomali.”
+"Berarti kita pakai setengah yang ada."
 
-Kael mengangkat kedua tangan ke arah Inti.
+Seraphis memandang jaringan.
 
-“Aku tidak akan menjadi pengorbananmu, Rowan. Tapi aku juga tidak akan lari.”
+*Risiko kegagalan tinggi.*
 
-Sisa api merah dan es biru dialirkan bersama Void yang terkendali. Kael tidak mencoba menyegel Inti sepenuhnya. Dia hanya menstabilkan putarannya agar kekuatan tersebut berhenti berkembang.
+"Risiko mati karena mengorbankan diri seratus persen. Aku pilih yang tinggi."
 
-Cahaya tiga warna menyentuh Fragmen.
+Zevaron tertawa pendek meski terengah. "Kau benar-benar menyebalkan."
 
-Gerak liar Inti perlahan menjadi teratur, meski retakannya tetap ada.
+"Bisa bantu atau pergi."
 
-Sosok Berhelm mencapai Kael dan menarik lengannya.
+Zevaron melihat pintu keluar.
 
-“Cukup. Kita pergi.”
+Lalu Hati.
 
-“Intinya?”
+Untuk pertama kalinya sejak Kael bertemu dengannya, dia memilih tanpa melihat hadiah.
 
-“Stabil untuk sementara. Reruntuhan akan menyegelnya.”
+"Apa yang harus kulakukan?"
 
-Langit-langit runtuh di atas altar. Kael ditarik menjauh saat kristal dan batu mengubur Inti Cahaya.
+Kael menunjuk cincin timur. "Jaga alirannya tetap bergerak. Jangan ambil apa pun."
 
-Sylvara serta Zireth membantu membawanya keluar.
+"Kau masih harus menambahkan kalimat terakhir itu?"
 
-Rowan menghentikan pertarungan sesaat dan melihat Kael pergi.
+"Ya."
 
-“Dia menolak menjadi korban. Namun tetap akan menjadi kunci.”
+Mereka berpencar.
 
-Zevaron memandang dengan kebencian.
+Sylvara menstabilkan rune pemancar dengan panah cahaya. Zireth menyambungkan lengan mekanisnya ke panel. Agen Nexus, setelah ragu sesaat, menggunakan tombaknya sebagai penghantar. Zevaron menggerakkan Aether dengan angin. Seraphis membagi cahayanya ke enam jalur.
 
-“Suatu hari kekuatannya akan menjadi milikku.”
+Kael berdiri di tengah.
 
-Kael dan kelompoknya berlari keluar ketika Kuil Lykaros runtuh sepenuhnya di belakang mereka.
+Dia mencari jeda di antara semua energi.
+
+Lalu menyelaraskannya.
+
+Hati Lykaros berdenyut.
+
+Satu kali.
+
+Stabil.
+
+Dua kali.
+
+Retakan berhenti.
+
+Kemudian seluruh kuil mengeluarkan suara seperti napas panjang.
+
+Protokol penguburan berhenti.
+
+Kael hampir jatuh karena lega.
+
+Lalu Rowan muncul di ambang pintu.
+
+Dia tidak menyerang.
+
+Hanya tersenyum.
+
+"Bagus. Kau menolak menjadi pengorbanan."
+
+Tatapannya turun ke lengan kiri Kael.
+
+"Tapi kau tetap menjadi kunci."
+
+Ledakan dari tingkat atas mengguncang ruang inti.
+
+Kali ini bukan dari Hati.
+
+Seluruh langit-langit Aethelgard mulai runtuh.

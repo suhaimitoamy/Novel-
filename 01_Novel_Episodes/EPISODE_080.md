@@ -1,77 +1,99 @@
 # Episode 080 — Di Ambang Penglihatan
 
-Kael menatap Nyara.
+Nyara meminta Kael memilih satu kolam.
 
-“Anda tahu tentang Jalan Keempat dan pengorbanan itu?”
+Dia menolak.
 
-Nyara mengangguk. “Aku tidak melihat masa depan sebagai satu garis pasti. Aku mendengar gema dari berbagai kemungkinan. Gema hidupmu paling keras di antara semuanya.”
+"Bagus," kata bayangan pada kursi. "Kau belajar."
 
-Sylvara maju. “Kalau begitu Anda tahu Rowan dan Sang Arsitek. Apa rencana mereka?”
+"Kalian semua punya kebiasaan memberi pilihan palsu."
 
-“Rowan adalah anak yang tersesat dalam dendam dan janji palsu. Dia mengira dirinya pemain utama, padahal hanya menari mengikuti bisikan.”
+"Karena makhluk yang melihat kemungkinan mudah jatuh cinta pada angka."
 
-Nyara menghela napas.
+Delapan kolam berubah.
 
-“Arsitek bukan makhluk Void seperti Malgorath atau Nyxaria. Dia berasal dari Kekosongan Struktur di antara dimensi.”
+Kael melihat dirinya membunuh Rowan.
 
-Zireth memperhatikan setiap kata.
+Menyerahkan diri ke Nexus.
 
-“Tujuannya bukan kehancuran?”
+Mengambil seluruh Fragmen.
 
-“Bukan kehancuran murni. Penataan ulang.” Nyara mengangkat wajah ke langit taman. “Dia ingin membentuk realitas sesuai rancangan yang dingin, sempurna, dan tidak memiliki jiwa. Zerath dengan dua belas Fragmennya adalah kanvas percobaan.”
+Membiarkan Seraphis mati.
 
-“Gerbang Es dan Nyanyian Kehampaan hanya alat?”
+Memotong lengan kirinya.
 
-“Langkah awal untuk merusak keseimbangan lama. Setelah fondasi retak, Struktur baru dapat ditanam.”
+Meninggalkan Sylvara dan Zireth.
 
-Wajah Nyara kembali mengarah kepada Kael.
+Membuka simpul kedelapan.
 
-“Perpaduan Fragmen dan Void dalam dirimu adalah katalis. Resonansimu mampu meruntuhkan fondasi Zerath.”
+Dan terakhir—menolak semua jalan sampai Zerath runtuh karena dia tidak pernah mengambil keputusan.
 
-Kael menunduk. “Jadi Rowan benar. Aku dapat menjadi pengorbanan yang menghancurkan semuanya.”
+Kael merasa mual.
 
-“Atau kau dapat menjadi arsitek bagi takdirmu sendiri.”
+"Ini masa depan?"
 
-Nyara mengulurkan tangan.
+"Kemungkinan. Tidak ada yang lebih berbahaya daripada menyebut kemungkinan sebagai takdir."
 
-“Aku dapat menunjukkan beberapa kemungkinan jalan. Namun penglihatan selalu meminta harga.”
+Bayangan Nyara berdiri dari kursi.
 
-“Harga apa?”
+"Mata Kesembilan tidak melihat apa yang akan terjadi. Ia melihat harga dari setiap pola keputusan."
 
-“Sebagian ingatan. Mungkin emosi. Semakin jauh kau melihat, semakin banyak bagian dirimu yang tertinggal di aliran waktu.”
+"Lalu kenapa Arsitek menginginkannya?"
 
-Kael terdiam.
+"Karena ia tidak perlu mengendalikanmu jika ia tahu pilihan mana yang membuatmu mengendalikan dirimu sendiri ke arah yang dia mau."
 
-Dia telah berjuang keras untuk memahami identitasnya. Kehilangan ingatan lagi dapat menghapus alasan dia terus berjalan.
+Kael teringat Rowan.
 
-Namun tanpa pengetahuan, Arsitek akan selalu berada beberapa langkah di depan.
+Perebutan Fragmen.
 
-“Tunjukkan cara melawannya.” Kael meletakkan tangan di atas tangan Nyara. “Aku menerima harganya.”
+Gerbang Es.
 
-Cahaya menyelimuti mereka.
+Aethelgard.
 
-Penglihatan membanjiri Kael: perang di antara bintang, Fragmen terakhir yang berdetak seperti jantung mesin, Rowan di depan Gerbang Es terbuka, dan pola geometris Sang Arsitek merambat melintasi dimensi.
+Arsitek selalu menyediakan kondisi, bukan perintah.
 
-Dia melihat Zerath terbakar dan membeku.
+"Dia memprediksi reaksiku."
 
-Di antara kehancuran itu, Jalan Keempat bercabang menjadi beberapa kemungkinan.
+"Lebih buruk. Ia menanam situasi yang membuat satu reaksi terasa paling masuk akal."
 
-“Ingat,” kata Nyara dengan suara tegang. “Ini hanya gema. Pilihan tetap milikmu.”
+Kolam kedelapan menghitam.
 
-Dia mendadak batuk. Darah hitam merembes dari balik kain penutup matanya.
+Simbol pada lengan Kael menyala.
 
-“Dia merasakan kita.”
+Nyara menoleh kepadanya.
 
-Cahaya visi bergetar.
+"Dan sekarang ia telah menanam salah satu simpulnya di tubuhmu."
 
-“Arsitek sedang melihat melalui penglihatan ini.”
+Kael merasakan sesuatu bergerak di bawah kulit.
 
-Kehadiran dingin menyentuh pikiran Kael. Bukan suara atau wajah, melainkan keteraturan mutlak yang berusaha mengukur seluruh keberadaannya.
+"Bagaimana mengeluarkannya?"
 
-Koneksi terputus paksa.
+"Tidak bisa tanpa membuka pintu."
 
-Kael kembali ke taman dengan napas tersengal. Nyara tampak jauh lebih lemah.
+"Bagaimana menghentikannya?"
 
-Sang Arsitek tidak lagi terasa seperti ancaman jauh.
+"Dengan melihat lebih dulu daripada ia melihatmu."
 
-Untuk sesaat, dia telah menatap balik.
+Kursi batu pecah.
+
+Dari bawahnya muncul satu lingkaran kosong—kolam kesembilan, tetapi tanpa air.
+
+Permukaannya bukan cermin.
+
+Jendela.
+
+Di sisi lain Kael melihat benteng hitam berdiri di bawah langit ungu.
+
+Rowan berada di salah satu menaranya.
+
+Di belakang Rowan berdiri sosok tinggi tanpa wajah yang seluruh tubuhnya tersusun dari garis geometris.
+
+Sang Arsitek.
+
+Sosok itu menoleh.
+
+Langsung kepada Kael.
+
+Mata yang tidak ada seharusnya tidak bisa menatap.
+
+Namun Kael tahu dirinya telah terlihat.

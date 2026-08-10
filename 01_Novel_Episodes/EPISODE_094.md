@@ -1,53 +1,109 @@
 # Episode 094 — Bisikan Sang Arsitek
 
-Rowan mencengkeram liontin yang hampir hancur.
+Suara Sang Arsitek tidak keras.
 
-“Arsitek, beri aku kekuatan untuk menahannya.”
+Itu yang membuatnya lebih buruk.
 
-Sentuhan dingin menembus pikiran Kael.
+*Ia akan membuatmu percaya bahwa rantai adalah kesalahan orang lain.*
 
-Kehadiran itu sama dengan yang mengganggu penglihatan Nyara, tetapi kini jauh lebih jelas dan teratur.
+Rowan mencengkeram liontin.
 
-*Variabel Kael Drayven terdeteksi. Resonansi tiga energi fundamental. Pola keseimbangan baru.*
+Kael tidak menjawab suara itu.
 
-Suara tanpa emosi tersebut terdengar langsung di kepalanya.
+Dia memperhatikan Rowan.
 
-*Menarik. Belum efisien.*
+*Ingat siapa yang menemukanmu ketika para penyihir membuangmu.*
 
-Sisa energi pada liontin memancarkan suara itu ke seluruh aula.
+Wajah Rowan memucat.
 
-*Eksperimen melalui wadah Rowan Galt mendekati kesimpulan. Data Variabel Kael Drayven telah diterima.*
+*Ingat siapa yang memberimu bentuk saat Fragment rusak menggerogoti tubuhmu.*
 
-Rowan membeku.
+"Berhenti," kata Rowan.
 
-*Wadah Rowan Galt tidak lagi berguna.*
+Arsitek terus bicara.
 
-“Tidak.” Wajahnya berubah. “Aku pelayanmu. Aku melakukan semua ini karena janjimu.”
+*Ingat siapa yang memberimu tujuan.*
 
-*Janji adalah konsep fana yang tidak efisien. Struktur bersifat mutlak.*
+Kael memahami metode itu.
 
-Rune geometris muncul di bawah kaki Rowan.
+Bukan perintah.
 
-*Selamat tinggal, bagian yang rusak.*
+Narasi.
 
-Rowan melihat pola tersebut, lalu menatap Kael. Senyum pahit muncul di wajahnya.
+Arsitek menyusun masa lalu Rowan sehingga hanya satu kesimpulan terasa mungkin: tanpa dirinya, Rowan bukan siapa-siapa.
 
-“Arsitek tidak menyukai bidak yang gagal.”
+"Kau tidak memberinya tujuan," kata Kael.
 
-Cahaya rune terus membesar.
+Rune di dinding bergetar.
 
-“Pergilah. Hentikan Dia sebelum terlambat.”
+*Dan kau mengira dirimu berbeda? Semua yang kau lakukan lahir dari luka yang kuberikan bentuk.*
 
-Kael hendak bergerak, tetapi ledakan Void telah menelan Rowan.
+Kael merasakan Aranyel muncul di pikirannya.
 
-“Rowan!”
+Dia tidak melawan gambar itu.
 
-Ketika kegelapan mereda, tubuhnya tidak terlihat. Pecahan liontin jatuh ke lantai di tengah lingkaran obsidian yang hangus.
+"Mungkin."
 
-Sisa energi dari eksekusi itu berputar liar.
+Keheningan sesaat.
 
-Alih-alih lenyap, seluruh gelombang melesat menuju Kael.
+"Tapi luka bukan pemilikku."
 
-Sylvara berteriak memperingatkan, tetapi jaraknya terlalu dekat.
+Arsitek mengubah nada.
 
-Void menghantam tubuh Kael sebelum dia sempat menghindar.
+*Buka simpul kedelapan dan aku akan memperlihatkan malam Aranyel sepenuhnya.*
+
+Kael membeku.
+
+Bukan karena percaya.
+
+Karena dia ingin percaya.
+
+Sylvara berkata pelan, "Kael."
+
+Hanya namanya.
+
+Cukup.
+
+Kael mengalihkan perhatian ke liontin Rowan.
+
+"Zireth. Kalau liontin pecah, apa yang terjadi pada benangnya?"
+
+"Bisa putus. Bisa juga seluruh energi tersimpan lepas sekaligus."
+
+"Bagus. Pilihan yang menyenangkan."
+
+Rowan menatap liontin.
+
+Tangannya gemetar.
+
+"Jangan," bisiknya.
+
+Kael tidak tahu kepada siapa.
+
+Arsitek atau dirinya.
+
+Zevaron bergerak dari lantai.
+
+Dengan sisa tenaga, dia melepaskan satu petir tipis.
+
+Bukan ke Rowan.
+
+Ke liontin.
+
+Benda hitam itu retak.
+
+Suara Arsitek terpotong.
+
+Rowan menjerit.
+
+Void liar meledak dari dadanya dan memenuhi aula.
+
+Kael mengangkat perisai.
+
+Liontin pecah total.
+
+Energi hitam tidak menyebar ke dinding.
+
+Ia berbalik arah.
+
+Langsung menuju lengan kiri Kael.

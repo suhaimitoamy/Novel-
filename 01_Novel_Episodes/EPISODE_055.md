@@ -1,59 +1,117 @@
 # Episode 055 — Resonansi Bintang
 
-Kael berdiri di depan Orrey dengan tangan terulur.
+Di balik pintu utara, mereka menemukan ruang yang lebih kecil dan jauh lebih tua.
 
-“Jangan,” kata Sylvara. “Kita tidak tahu bagaimana Aether murni akan bereaksi terhadap Fragmen atau lenganmu.”
+Tidak ada Penjaga.
 
-“Risikonya tinggi,” ujar Zireth. “Tapi peta itu bisa menunjukkan Fragmen keenam dan jalur yang selama ini kita cari.”
+Tidak ada perabot.
 
-Kael memandang bola kristal.
+Hanya satu orrey berbentuk bola kristal, dikelilingi cincin-cincin logam tipis yang penuh retakan.
 
-Dia membutuhkan jawaban yang tidak berasal dari Rowan, Sang Arsitek, atau petunjuk yang sengaja ditinggalkan untuk menggiringnya. Rune ungu pada lengan kiri berdenyut mengikuti putaran cincin Orrey.
+Kael berhenti di ambang.
 
-Mungkin integrasi tersebut memang memungkinkannya menyentuh energi yang sebelumnya saling menolak.
+"Yang tadi modern," kata Zireth pelan. "Setidaknya menurut standar tempat ini. Yang ini mungkin berasal dari generasi pertama Lykaros."
 
-“Aku harus mencoba.”
+"Kau bisa membacanya?"
 
-Kael menempelkan telapak tangan kiri pada kristal.
+"Tidak. Aku hanya cukup sombong untuk menebak."
 
-Cahaya putih kebiruan memenuhi aula. Rune ungu di kulitnya menyala bersama simbol-simbol pada cincin perak.
+Kael mendekat.
 
-Kesadarannya terseret masuk ke dalam peta.
+Setiap langkah membuat lengan kirinya semakin dingin.
 
-Bukan rasa sakit yang pertama datang, melainkan arus informasi. Jalur bintang, simpul energi, sejarah perjalanan bangsa Celestial, dan koordinat yang tidak menggunakan ukuran Zerath membanjiri pikirannya sekaligus.
+Ketika jaraknya tinggal satu lengan, peta muncul sendiri.
 
-Kael mencengkeram kepala. “Terlalu banyak.”
+Bukan ribuan bintang seperti sebelumnya.
 
-Sylvara bergerak mendekat, tetapi Zireth menahannya. “Jangan putus resonansinya secara paksa.”
+Hanya beberapa titik.
 
-Peta holografik berubah.
+Zerath berada di tengah.
 
-Titik-titik baru muncul dan terhubung menjadi jaringan yang melintasi ruang serta lapisan dimensi. Beberapa konstelasi tidak pernah terlihat dari langit Zerath.
+Dari planet itu keluar dua belas garis cahaya menuju lokasi berbeda. Beberapa terang. Beberapa redup. Satu garis di utara berdenyut putih-keemasan.
 
-Zireth merekam setiap perubahan. “Ini bukan sekadar peta dunia. Bangsa Celestial memetakan jalur antardimensi.”
+Fragmen keenam.
 
-Di dalam arus tersebut, Kael menemukan lokasi Fragmen keenam.
+Kael tidak perlu diberi tahu.
 
-Bukan di Puncak Aethelgard yang terlihat dari luar, melainkan di kuil lebih tinggi yang tersembunyi di balik ilusi gunung.
+Dia bisa merasakannya.
 
-Jalur lain bercabang dari sana. Satu menuju wilayah Vorthax. Satu turun ke laut dalam Nyrathis. Jalur terakhir berwarna hitam dan berakhir langsung di Void.
+Namun ada hal lain.
 
-Di antara semuanya, sebuah rune merah berkedip sebagai peringatan.
+Di luar jaringan dua belas garis itu, terdapat sebuah jalur hitam yang tidak mengarah ke lokasi mana pun di Zerath. Ia menembus keluar peta, seperti seseorang menusukkan jarum dari sisi lain realitas.
 
-“Jebakan,” kata Kael terbata. “Rowan sudah—”
+Kael mengangkat tangan.
 
-Resonansi mencapai puncak sebelum dia menyelesaikan kalimat.
+Sylvara menangkap pergelangannya. "Kau yakin?"
 
-Pilar cahaya biru menembus langit-langit kristal dan melesat tinggi ke langit.
+"Tidak."
 
-Wajah Zireth berubah. “Kita menyalakan penanda yang dapat terlihat dari separuh benua.”
+"Jawaban yang bagus."
 
-“Kita harus pergi,” kata Sylvara.
+Dia tetap menyentuh bola kristal.
 
-Koneksi berhenti mendadak. Kael jatuh terduduk, tubuhnya lemas tetapi pikirannya dipenuhi koordinat baru.
+Dunia lenyap.
 
-“Aku tahu lokasi Fragmen keenam.” Dia mengatur napas. “Dan aku tahu ada jebakan Rowan di jalurnya.”
+Kael tidak merasa jatuh. Kesadarannya seperti ditarik melewati ribuan titik sekaligus.
 
-Pilar cahaya masih berdiri di atas reruntuhan.
+Dia melihat jalur energi melintasi langit. Kuil-kuil Celestial. Gerbang yang tidak berada di satu tempat. Kota-kota yang sudah menjadi debu.
 
-Jauh di langit, sebuah titik hitam berbelok dan terbang cepat menuju posisi mereka.
+Kemudian satu gambar menetap.
+
+Puncak Aethelgard.
+
+Sebuah kuil tersembunyi di balik lapisan distorsi.
+
+Di pusatnya, cahaya keemasan berdenyut.
+
+Lalu bayangan seseorang berdiri di depan altar.
+
+Rambut putih.
+
+Kael mencoba memfokuskan pandangan.
+
+Gambar pecah.
+
+Peringatan merah memenuhi kesadarannya.
+
+**JALUR TELAH DIPANTAU.**
+
+**JANGAN AKTIFKAN SUAR.**
+
+Kael menarik tangannya.
+
+Terlambat.
+
+Cincin-cincin orrey berputar liar. Cahaya biru meledak dari bola kristal, menembus langit-langit dan melesat ke angkasa.
+
+Seluruh gunung menjawab dengan dengungan panjang.
+
+Zireth memandang lubang cahaya di atas mereka.
+
+"Katakan padaku itu bukan suar."
+
+Kael masih terengah. "Itu suar."
+
+"Tentu saja."
+
+Dia memaksa diri berdiri.
+
+Di dalam kepalanya tersisa potongan peta: jalan menuju kuil tersembunyi, posisi Fragmen keenam, dan satu jalur hitam menuju sesuatu yang berada di luar Zerath.
+
+Juga satu fakta yang lebih buruk.
+
+Seseorang telah lebih dulu menemukan jaringan Lykaros.
+
+Suara dari luar membuat Sylvara menoleh.
+
+Bukan angin.
+
+Kepakan besar, berat, diselingi dengung mesin.
+
+Kael berjalan ke celah dinding.
+
+Sebuah titik hitam mendekat dari langit utara dengan kecepatan yang tidak mungkin dimiliki makhluk biasa.
+
+Suar mereka baru menyala beberapa detik.
+
+Apa pun yang datang, ia sudah berada dekat sebelum itu terjadi.

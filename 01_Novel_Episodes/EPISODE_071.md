@@ -1,55 +1,97 @@
 # Episode 071 — Pilihan Terakhir di Aethelgard
 
-Aula runtuh semakin cepat.
+Langit-langit ruang inti pecah.
 
-Kael berlutut di depan Inti Cahaya. Energinya masih berputar liar di balik sisa perlindungan Penjaga Celestial yang hampir lenyap.
+Kael tidak melihat bongkahan pertama jatuh. Dia mendengar perubahan nada pada jaringan Lykaros—satu frekuensi tinggi yang mendadak hilang—lalu Seraphis mendorongnya ke samping.
 
-*Pilih, Pewaris.*
+Kristal sebesar kereta menghantam tempat Kael berdiri.
 
-Suara Penjaga terdengar untuk terakhir kalinya.
+"Keluar!" teriak Sylvara.
 
-Kael menatap retakan pada Inti. Menyegelnya mungkin menuntut tubuhnya sebagai pengorbanan. Melarikan diri berarti membiarkan ledakan menghancurkan seluruh lembah.
+Jalan menuju tingkat atas sudah setengah tertutup.
 
-Dia tidak menerima kedua pilihan itu.
+Hati Lykaros stabil, tetapi kuilnya tidak.
 
-Rune pada lengan kirinya telah stabil setelah benturan Aether dan Void. Kael mengangkat kedua tangan.
+Kael memandang inti sekali lagi.
 
-“Aku tidak akan menjadi korban Rowan. Tapi aku juga tidak akan meninggalkan tanggung jawab ini.”
+Seraphis berdiri di sampingnya, cahaya tubuhnya jauh lebih redup.
 
-Api merah, es biru, dan Void ungu mengalir menuju Inti. Dia tidak memaksa Fragmen itu tertutup. Kael hanya menahan putarannya dan mengembalikan energi liar ke pola yang lebih teratur.
+*Struktur utama kehilangan penyangga. Evakuasi disarankan.*
 
-Cahaya tiga warna bertemu di permukaan Inti.
+"Kau ikut."
 
-Denyutnya perlahan tenang. Retakan masih ada, tetapi tekanan yang hendak meledak mulai mereda.
+*Penjaga tetap bersama Hati.*
 
-Seluruh sisa tenaga Kael terkuras.
+"Tidak."
 
-Sosok Berhelm mencapai altar dan menangkap lengannya.
+Seraphis menatap Kael.
 
-“Cukup. Kita keluar sekarang.”
+Kael sudah terlalu sering mendengar makhluk menyebut kematian sendiri sebagai fungsi, kewajiban, takdir, atau keseimbangan. Kata-katanya berbeda. Hasilnya sama.
 
-“Intinya?” tanya Kael dengan suara lemah.
+"Kalau Hati sudah stabil, tugasmu berubah."
 
-“Stabil untuk sementara. Reruntuhan kuil akan menyegelnya.”
+*Definisi fungsi tidak dapat diubah oleh subjek eksternal.*
 
-Dia menarik Kael menjauh tepat ketika langit-langit runtuh dan mengubur altar di bawah kristal serta es.
+"Bagus. Ubah sendiri."
 
-Sylvara dan Zireth datang membantu.
+Ledakan lain membuat lantai miring.
 
-“Kau masih sadar?” tanya Sylvara.
+Agen Nexus meraih bahu Kael. "Kita pergi sekarang."
 
-Kael mencoba berdiri. “Aku tidak yakin.”
+Kael menepis tangannya.
 
-Di antara puing, Rowan dan Zevaron menghentikan pertarungan mereka sesaat.
+Di ujung ruang, satu bagian jaringan cahaya masih aktif menuju terowongan kecil yang tidak tercatat pada peta.
 
-Rowan melihat Kael dibawa keluar dan tersenyum sinis.
+Dia merasakan sesuatu dari sana.
 
-“Dia menolak menjadi pengorbanan. Namun cepat atau lambat, dia tetap akan menjadi kunci.”
+Bukan ancaman.
 
-Zevaron memandang Kael dengan kemarahan yang belum padam.
+Panggilan.
 
-“Kekuatan itu akan menjadi milikku.”
+Hati Lykaros berdenyut mengikuti jalur itu.
 
-Kael, Sylvara, Zireth, dan Sosok Berhelm berlari menuju pintu kuil. Bangunan Lykaros runtuh sepenuhnya di belakang mereka.
+Kael akhirnya mengerti.
 
-Nasib Rowan serta Zevaron tertelan debu dan cahaya, tetapi Kael tahu keduanya terlalu keras kepala untuk mati semudah itu.
+"Seraphis. Intinya bisa dipindahkan?"
+
+*Tidak.*
+
+"Kesadarannya?"
+
+Penjaga diam.
+
+"Nyara memecah dirinya ke jaringan. Kau juga bagian jaringan ini."
+
+*...Ya.*
+
+Kael menunjuk jalur cahaya.
+
+"Kalau tubuhmu tidak bisa meninggalkan Hati, kirim bagian dirimu bersama jaringan cadangan."
+
+Seraphis menatap terowongan.
+
+Untuk pertama kalinya sejak mereka bertemu, Penjaga tampak tidak memiliki jawaban siap pakai.
+
+Kael tersenyum tipis. "Selamat datang di pilihan yang tidak tercatat."
+
+Seraphis menutup mata.
+
+Cahaya dari enam sayapnya mengalir ke dinding. Tubuhnya menjadi semakin transparan, tetapi tidak padam. Sebuah inti kecil berbentuk bulu kristal terlepas dari dadanya dan melayang ke tangan Kael.
+
+*Bawa simpul ini sampai jaringan langit berikutnya.*
+
+Kael menggenggamnya.
+
+"Kita bertemu lagi."
+
+*Pernyataan itu belum dapat diverifikasi.*
+
+"Belajar optimis."
+
+Mereka berlari.
+
+Di belakang Kael, tubuh Seraphis tetap berdiri menjaga Hati Lykaros.
+
+Namun denyut kecil dalam bulu kristal di tangannya membuktikan satu hal.
+
+Pengorbanan bukan lagi satu-satunya akhir yang tersedia.

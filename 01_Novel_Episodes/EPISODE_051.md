@@ -1,57 +1,115 @@
 # Episode 051 — Jejak Menuju Langit
 
-Angin dingin menyapu gerbang besi Pos Terdepan Kragmar.
+Kragmar menghilang lebih cepat daripada yang Kael perkirakan.
 
-Kapten Garn berdiri tegak bersama beberapa prajurit Dwarf, melepas kepergian Kael, Sylvara, dan Zireth.
+Satu tikungan di antara dinding es, lalu benteng Dwarf itu tinggal kepulan asap tungku di kejauhan. Kompas rune pemberian Garn terasa berat di saku jubahnya—sepotong kepastian terakhir sebelum wilayah yang bahkan peta Dwarf hanya berani gambarkan dengan garis putus-putus.
 
-Garn melemparkan sebuah kompas berukir rune kuno ke arah Kael. "Benda ini akan menunjuk kembali ke Kragmar jika kalian tersesat terlalu jauh."
+Sylvara berjalan di belakangnya. Zireth paling belakang, sesekali berhenti untuk membersihkan lapisan es dari sambungan lengan mekanisnya.
 
-Kael menangkap kompas itu. Besinya terasa dingin menggigit telapak tangannya.
+Tidak ada yang banyak bicara.
 
-"Tapi jangan harap kami akan menjemput jika badai menelan kalian," lanjut Garn tegas. "Hati-hati di Puncak Aethelgard, Bocah. Tempat itu bukan untuk makhluk fana biasa."
+Udara terlalu tipis untuk dibuang pada percakapan yang tidak perlu.
 
-Kael menganggukkan kepala lalu menyimpan kompas itu di balik jubahnya. "Terima kasih atas bantuannya, Kapten."
+Kael juga sedang mendengarkan sesuatu yang lain.
 
-Dagna, yang kini tampak jauh lebih sehat, memberikan anggukan pelan dari belakang Garn. "Semoga api leluhur menyertai perjalananmu."
+Lengan kirinya.
 
-Perjalanan ke utara segera dimulai. Ketiganya berbalik, meninggalkan dinding-dinding kokoh Kragmar demi menembus jalur pegunungan es yang semakin menanjak tajam.
+Sejak Gerbang Es ditutup, rasa sakit yang biasa menyertainya berubah. Dulu Void di bawah kulitnya terasa seperti duri yang terus mencari jalan menuju tulang. Sekarang rasa itu lebih menyerupai getaran halus—dingin, teratur, dan mengganggu karena justru terlalu rapi.
 
-Semakin tinggi mereka mendaki, udara semakin menipis. Badai membawa butiran es yang menghantam kulit terbuka layaknya ratusan jarum tajam.
+Dia berhenti.
 
-Sylvara menarik tudung jubahnya lebih rapat. "Udara di sini tipis, tapi anehnya sangat murni."
+Sylvara hampir menabrak punggungnya. "Apa?"
 
-Zireth melirik layar datapad di lengan mekanisnya.
+Kael tidak langsung menjawab. Dia menutup mata.
 
-"Konsentrasi elemen es memang meningkat drastis," analisis Zireth. "Tetapi aku menangkap jejak energi lain di dasar aliran ini. Sangat teratur. Sangat tenang."
+Angin datang dari utara. Di balik derunya ada denyut lain, terlalu lambat untuk disebut suara. Sekali setiap beberapa detik. Seperti seseorang mengetuk dinding yang sangat jauh.
 
-"Mungkin peninggalan bangsa Celestial," tebak Sylvara.
+"Ada sesuatu di depan."
 
-Kael tidak menanggapi. Dia terus berjalan di depan, pikirannya terpusat pada lengan kirinya yang tersembunyi. Sejak insiden di Gerbang Es, sesuatu telah berubah. Rune ungu yang menjalar di kulitnya tidak lagi terasa membakar seperti benalu asing.
+Zireth mendekat. "Makhluk?"
 
-Ada dengungan energi yang konstan, seolah kekuatan Void di dalam lengannya mulai menemukan jalurnya sendiri. Pola itu perlahan menyatu dengan aliran energi alaminya alih-alih merusak layaknya parasit.
+"Tidak tahu."
 
-Dia memperlambat langkahnya hingga Zireth berada di sampingnya.
+"Untuk sekali ini jawabanmu menenangkan."
 
-"Zireth, lengan ini," gumam Kael pelan agar suaranya tidak tenggelam oleh deru badai. "Aku bisa merasakan aliran energi di sekitar kita lebih tajam dari sebelumnya."
+Kael meliriknya. "Kenapa?"
 
-Mata mekanis Zireth berputar menyesuaikan fokus, menganalisis kondisi Kael.
+"Karena kalau kau mulai tahu semua hal yang dideteksi lengan itu, aku akan lebih khawatir."
 
-"Integrasi energi Void dengan Fragmenmu mungkin memperluas kepekaan sensorikmu secara tidak sengaja," kata Zireth. "Tetapi jangan lengah, Kael. Mencampur entropi murni dengan kekuatan singularitas tidak pernah ada dalam catatan mana pun. Kau bisa saja menjadi anomali evolusi, atau bom waktu yang siap meledakkan dirinya sendiri."
+Mereka meneruskan pendakian.
 
-Kael hanya terdiam. Tangannya kembali tenggelam ke dalam saku jubah.
+Pilar-pilar es muncul satu per satu dari kabut. Mula-mula Kael menganggapnya formasi alam. Setelah melewati yang ketujuh, dia berhenti lagi.
 
-Mereka melanjutkan pendakian melewati pilar-pilar es raksasa. Pilar-pilar itu menjulang megah, namun tampak terlalu simetris untuk disebut sebagai formasi alam murni.
+Tinggi setiap pilar sama.
 
-Langkah Kael mendadak terhenti.
+Jaraknya pun nyaris sama.
 
-"Ada apa?" tanya Sylvara. Tangannya langsung bersiap meraih gagang senjata.
+Tidak ada pahatan, tetapi permukaan es di sisi yang menghadap utara terlalu halus dibanding sisi lainnya.
 
-Kael menunjuk celah sempit di antara dua dinding es tinggi di depan mereka. Dengungan di lengan kirinya berubah menjadi rasa dingin yang menusuk peringatan.
+"Ini bukan bentukan alam," katanya.
 
-"Ada sesuatu di sana," kata Kael tegang. "Terasa seperti... peringatan."
+Sylvara menyapu salju pada salah satu pilar. Di bawahnya tampak garis perak tipis.
 
-Zireth mengarahkan pemindainya ke celah tersebut. Cahaya hijau pada layarnya berkedip tak menentu.
+"Jalan tua?"
 
-"Tidak ada anomali energi besar yang terdeteksi," lapor Zireth. "Tetapi ada fluktuasi energi minor yang luar biasa tidak stabil di dekat celah itu."
+Zireth menyentuhkan ujung jarinya ke logam itu. "Bisa jadi. Energinya hampir mati."
 
-Mereka bertiga memandang celah es yang gelap itu. Rasa dingin di lengan Kael perlahan menyebar, mengingatkannya bahwa ancaman terbesar terkadang tidak berbentuk monster, melainkan keheningan yang menanti untuk disela.
+Kael merasakan lengan kirinya kembali berdenyut.
+
+Bukan menuju pilar.
+
+Ke celah sempit di antara dua tebing di depan.
+
+Dia mendekat beberapa langkah. Dingin pada rune ungu di kulitnya meningkat sampai jari-jarinya kebas.
+
+Kemudian sebuah sensasi asing masuk ke pikirannya.
+
+Bukan kata.
+
+Bukan suara.
+
+Lebih mirip naluri yang bukan miliknya sendiri.
+
+**Jangan berjalan lurus.**
+
+Kael berhenti begitu cepat hingga sol sepatunya tergelincir.
+
+"Kalian mundur."
+
+Sylvara langsung menurut. Zireth butuh setengah detik lebih lama.
+
+Kael mengambil batu sebesar kepalan tangan dan melemparkannya ke celah.
+
+Batu itu melayang dua langkah melewati batas bayangan—lalu pecah menjadi debu tanpa suara.
+
+Tidak meledak.
+
+Tidak terbakar.
+
+Sekadar kehilangan bentuk.
+
+Untuk beberapa saat tidak ada seorang pun bicara.
+
+Zireth akhirnya mengangkat pemindainya. Layar hijau dipenuhi garis acak.
+
+"Tidak terbaca."
+
+"Lenganmu?" tanya Sylvara kepada Kael.
+
+Kael menatap retakan ungu yang samar di balik sarung tangannya.
+
+"Ia merasakannya sebelum alat Zireth."
+
+Ucapan itu tidak memberinya rasa bangga.
+
+Justru sebaliknya.
+
+Dari sisi kanan celah, tertutup salju, Kael menemukan deretan simbol kecil pada dinding: tiga garis vertikal dan satu lengkungan seperti sayap patah.
+
+Dia pernah melihat bentuk serupa pada proyeksi peta Lykaros di Kragmar.
+
+Jalan menuju Aethelgard memang ada.
+
+Namun seseorang telah membangun perangkap di jalur masuknya.
+
+Dan sesuatu di dalam tubuh Kael tahu cara mengenalinya.

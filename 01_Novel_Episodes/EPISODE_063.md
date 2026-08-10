@@ -1,59 +1,99 @@
 # Episode 063 — Aliansi Tak Terduga
 
-Kael dan Zevaron bangkit dari hantaman energi Inti Cahaya.
+Seraphis menebas Zevaron dari udara.
 
-Zevaron memandang Penjaga Celestial dengan amarah terbuka.
+Zevaron memutar tubuh dan menjadikan angin sebagai pijakan. Petir menghantam salah satu sayap Penjaga, memecahkan lapisan kristal.
 
-“Kau pikir cahaya itu dapat menghentikanku?”
+Kael tiba dari bawah.
 
-Angin dan petir berkumpul menjadi badai kecil di tangannya.
+Zerath's Fang menyapu kaki Zevaron.
 
-“Aku akan merobek sayapmu dan mengambil Inti itu sendiri.”
+Pria itu melompat mundur dan menatap Kael seolah baru saja dikhianati.
 
-Serangan elemen menghantam perisai keemasan Penjaga. Cahaya di permukaannya bergetar, menunjukkan bahwa tenaga liar Zevaron mampu menekan pertahanan Lykaros.
+"Kupikir kita sama-sama ingin melewati malaikat itu."
 
-“Kekuatanmu merusak fondasi keseimbangan,” kata Penjaga.
+"Aku ingin jawaban. Kau ingin memiliki semuanya. Itu berbeda."
 
-Kael melihat keduanya bertarung.
+Zevaron mengangkat kedua tangan.
 
-Penjaga masih menganggapnya ancaman karena Void dalam lengan kiri. Namun Zevaron akan menghancurkan seluruh kuil tanpa ragu jika itu memberinya kekuatan.
+Badai kecil terbentuk di aula.
 
-Jalan Keempat bukan alasan untuk berdiri diam ketika kehancuran berlangsung di depan mata.
+Kael dan Seraphis tidak pernah menyepakati kerja sama. Mereka bahkan tidak saling percaya. Namun setelah beberapa serangan, ritmenya mulai terbentuk sendiri.
 
-Kael bergerak.
+Seraphis memaksa Zevaron naik.
 
-Dia tidak menyerang Penjaga. Api biru ditembakkan ke sisi Zevaron, memaksanya memutus serangan.
+Kael memotong jalur turun.
 
-“Musuhmu bukan hanya dia.”
+Cahaya membatasi ruang.
 
-Zevaron menahan semburan tersebut dengan pusaran angin.
+Resonansi Kael mengacaukan pijakan angin.
 
-“Kau berani menggangguku?”
+Zevaron berhenti tertawa.
 
-Penjaga menatap Kael. “Kau membantuku?”
+"Dua lawan satu?"
 
-“Aku menghentikannya agar tidak menghancurkan tempat ini.”
+"Kau bisa berhenti," kata Kael.
 
-Kael menyerang lagi.
+"Aku tidak naik setinggi ini untuk berhenti."
 
-Terbentuk kerja sama yang tidak pernah disepakati. Penjaga Celestial menekan dari udara dengan bilah cahaya, sementara Kael memotong jalur pelarian Zevaron memakai api dan es.
+Zevaron menurunkan kedua telapak tangan.
 
-Keduanya masih saling curiga. Namun untuk saat ini, sasaran mereka sama.
+Udara di seluruh aula berputar.
 
-Rowan mengamati dari pinggir aula dengan senyum tipis.
+Pecahan kristal, debu es, dan listrik membentuk pusaran besar. Pilar-pilar Lykaros mulai bergetar.
 
-“Pembawa kekacauan memilih melindungi peninggalan suci.”
+Kael merasakan Hati Lykaros merespons lagi.
 
-Zevaron mulai terdesak. Setiap kali dia menahan serangan Penjaga, Kael datang dari sisi lain. Setiap kali berbalik kepada Kael, cahaya surgawi menghantam dari atas.
+"Jangan gunakan itu di sini!"
 
-“Dua lawan satu?” Napas Zevaron mulai berat, tetapi kegembiraan liar belum hilang dari wajahnya. “Kalian pikir itu cukup?”
+"Takut kuilmu rusak?"
 
-Energi elemen berkumpul dalam jumlah jauh lebih besar.
+"Takut kau cukup bodoh untuk melakukan pekerjaan Rowan!"
 
-Angin membentuk pusaran di sekeliling tubuhnya. Petir memenuhi langit-langit kristal, sementara serpihan es terangkat dari lantai.
+Untuk pertama kalinya Zevaron melirik pria berambut putih di sisi aula.
 
-“Aku masih punya satu kejutan.”
+Rowan sedang memindahkan pecahan hitam terakhir ke pilar dekat altar.
 
-Kael dan Penjaga mengambil posisi.
+Zevaron memahami setengah detik terlambat.
 
-Kekuatan yang dikumpulkan Zevaron cukup untuk merobek aula bersama semua orang di dalamnya.
+"Kau—"
+
+Pusaran sudah terbentuk.
+
+Seraphis membangun kubah cahaya di sekitar altar.
+
+Kael berdiri di sisi luarnya dan menahan gelombang angin dengan api merah, bukan untuk melawan tenaga, melainkan mengubah suhu hingga arus kehilangan kestabilan.
+
+Pusaran pecah menjadi beberapa aliran kecil.
+
+Zevaron mendarat kasar.
+
+Rowan tersenyum.
+
+"Terima kasih. Aku membutuhkan satu lonjakan lagi."
+
+Pecahan hitam pada pilar menyala.
+
+Kubah Seraphis retak.
+
+Kael melihat garis ungu merambat menuju Hati Lykaros.
+
+Tidak ada waktu untuk memilih sekutu.
+
+Dia melompat ke depan dan menahan garis itu dengan lengan kiri.
+
+Void bertemu Void.
+
+Dingin menembus tulang.
+
+Namun garis korupsi berhenti beberapa jari sebelum menyentuh Fragmen.
+
+Seraphis menatap Kael dari balik kubah retak.
+
+*Mengapa pembawa noda melindungi Hati?*
+
+Kael menggertakkan gigi.
+
+"Karena noda itu milikku untuk ditanggung. Bukan milik dunia ini."
+
+Untuk pertama kalinya, Seraphis menurunkan pedangnya saat memandang Kael.

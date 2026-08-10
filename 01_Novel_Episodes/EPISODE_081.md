@@ -1,51 +1,105 @@
 # Episode 081 — Gema Patah
 
-Cahaya penglihatan padam secara paksa.
+Sang Arsitek mengangkat satu tangan.
 
-Kael jatuh terduduk di taman Nyara dengan napas tersengal. Potongan masa depan dan masa lalu masih berputar dalam pikirannya, tetapi banyak bagian telah pecah sebelum sempat dipahami.
+Kolam kesembilan pecah.
 
-“Apa itu tadi?” Dia menekan pelipis. “Terlalu banyak.”
+Tidak seperti kaca. Ruang di antara Kael dan benteng hitam terbelah menjadi ratusan potongan kemungkinan.
 
-Nyara kembali batuk. Darah hitam merembes dari balik kain penutup matanya.
+Dalam satu, Kael sempat menutup mata.
 
-“Arsitek menyentuh aliran penglihatanku. Dia tahu kita mencoba melihat rencananya.”
+Dalam yang lain, dia menghunus pedang.
 
-Sylvara berlutut di samping sang peramal. “Anda terluka.”
+Dalam yang ketiga, dia tidak pernah datang ke Sylphara.
 
-“Hanya gema dari sentuhan dinginnya.” Suara Nyara melemah, tetapi tetap tenang. “Koneksi kita telah terputus.”
+Semua versi itu terjadi sekaligus selama sepersekian detik.
 
-Wajahnya mengarah kepada Kael.
+Kael jatuh berlutut.
 
-“Apa yang sempat kau lihat? Dan bagian apa dari dirimu yang diambil sebagai harga?”
+"Kael!"
 
-Kael berusaha menyusun kembali gambaran yang tersisa.
+Suara Sylvara terdengar dari delapan arah.
 
-Fragmen terakhir berdetak di dalam jantung mesin raksasa. Rowan diselimuti Void. Zevaron berdiri dalam pertarungan besar, tetapi gerakannya kaku. Jauh di balik bintang, pola geometris Sang Arsitek mengamati tanpa emosi.
+Nyara bergerak di antara kolam, tubuh bayangannya berkedip.
 
-“Aku melihat jantung mekanis di reruntuhan Dwarf kuno.” Kael menelan napas. “Ada pertarungan. Rowan, Zevaron, dan aku.”
+"Jangan ikuti gambar!"
 
-Dia mencoba mengingat lebih jauh.
+Terlambat.
 
-Wajah ibunya muncul sesaat, lalu berubah kabur.
+Kael melihat kematian dirinya sendiri tujuh kali.
 
-Nama, suara, dan bagian masa kecil sebelum Fragmen pertama kini memiliki lubang yang tidak pernah ada sebelumnya.
+Bukan sebagai ramalan.
 
-“Detail lokasi itu hilang. Sebagian ingatan tentang Aranyel juga kabur.”
+Sebagai kenangan yang belum pernah terjadi.
 
-Zireth mencatat cepat. “Kehilangan memori tertentu. Seberapa luas?”
+Otaknya mencoba memperlakukan semuanya sebagai pengalaman nyata. Rasa sakit, ketakutan, bahkan suhu setiap kematian menumpuk menjadi satu.
 
-“Aku tidak tahu.” Kekosongan tersebut membuat Kael merasa kehilangan pijakan. “Aku baru menyadarinya ketika mencoba mengingat.”
+Dia menjerit dan memukul tanah.
 
-“Itulah harga penglihatan,” kata Nyara. “Dan sekarang Arsitek mengetahui kau sedang mencari jalan untuk melawannya.”
+Rune kedelapan pada lengan kirinya terbuka seperti mata.
 
-Dia menunjuk jalan keluar taman.
+Sebuah garis hitam menyusup keluar.
 
-“Pergilah. Tempat ini tidak aman lagi.”
+Nyara menyambar pergelangan Kael.
 
-“Bagaimana dengan Anda?” tanya Sylvara.
+Sentuhannya tidak terasa seperti tangan. Lebih seperti listrik dingin.
 
-“Ilusi sanctuary masih dapat menahan serangannya untuk sementara.” Nyara memaksakan senyum. “Kalian harus terus bergerak.”
+"Pilih satu hal yang hanya ada di duniamu."
 
-Kael ingin menolak, tetapi tubuh Nyara yang semakin lemah menunjukkan bahwa waktu mereka habis.
+Kael tidak mengerti.
 
-Mereka meninggalkan taman dengan visi yang tidak lengkap, ingatan yang telah dibayar, dan kepastian bahwa musuh utama mereka kini mengetahui arah perlawanan tersebut.
+"Sekarang!"
+
+Dia mencari di antara ribuan gambar.
+
+Sylvara ada di banyak kemungkinan.
+
+Zireth juga.
+
+Zerath's Fang berubah bentuk di beberapa jalur.
+
+Lengan kirinya kadang hilang.
+
+Kemudian Kael menemukan sesuatu yang sederhana.
+
+Kompas rune Garn.
+
+Benda murah Dwarf itu berada di saku jubahnya. Dalam kemungkinan-kemungkinan palsu, detail kecil tersebut tidak selalu ada.
+
+Kael menggenggamnya.
+
+Dingin logam nyata menembus telapak.
+
+Satu dunia.
+
+Satu tubuh.
+
+Satu saat.
+
+Potongan kemungkinan runtuh.
+
+Kael kembali ke lingkaran delapan kolam sambil terengah.
+
+Kolam kesembilan menghitam.
+
+Nyara melepaskan tangannya.
+
+Bayangannya kini retak dari bahu sampai pinggang.
+
+"Apa yang terjadi padamu?"
+
+"Ia menggunakan jalur penglihatan untuk memukul balik."
+
+"Arsitek?"
+
+"Ia belajar bahwa kau dapat melihatnya. Sekarang ia akan berusaha memastikan kau tidak pernah melihat lebih jauh."
+
+Kael menatap rune kedelapan.
+
+Mata itu sudah tertutup lagi.
+
+Namun satu garis baru terbentuk dari simbol menuju siku.
+
+Gema yang tertinggal dari serangan Arsitek tidak menghilang.
+
+Ia masuk lebih dalam.

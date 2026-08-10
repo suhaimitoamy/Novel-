@@ -1,59 +1,95 @@
 # Episode 075 — Menempa Jalan Keempat
 
-Beberapa hari kemudian, Kael, Sylvara, dan Zireth berkemah di hutan pinus dekat wilayah Sylphara.
+Tiga hari setelah meninggalkan pegunungan, Kael pertama kali berhasil menahan tiga energi dalam tubuhnya selama satu menit penuh tanpa rasa sakit.
 
-Kael duduk di samping api unggun dengan mata tertutup. Dia memusatkan perhatian pada perubahan di lengan kiri.
+Dia hampir merusaknya karena terlalu senang.
 
-Void di sana tetap dingin dan kosong, tetapi kini memiliki pola. Energinya tidak lagi terus menolak api merah serta es biru dari Fragmen. Ketiganya bergerak dalam irama yang sama, seperti bayangan yang mengikuti cahaya tanpa berusaha menelannya.
+"Jangan tersenyum," kata Zireth dari seberang api unggun. "Biasanya setelah kau merasa berhasil, sesuatu meledak."
 
-Kael membuka telapak tangan.
+Kael membuka satu mata. "Dukunganmu luar biasa."
 
-Api ungu gelap muncul. Nyala itu stabil dan tidak berderak liar seperti sebelumnya.
+"Aku menjaga konsistensi kelompok."
 
-Sylvara mengamatinya. “Bagaimana rasanya?”
+Kael kembali memusatkan napas.
 
-“Dingin. Tapi dapat kukendalikan.” Kael memutar telapak tangan dan menjaga nyala tetap kecil. “Ledakan di kuil mungkin memaksa Void menyesuaikan diri dengan Fragmen.”
+Merah berada di sekitar jantung.
 
-Zireth membaca pola energinya.
+Biru mengikuti tulang belakang.
 
-“Tiga frekuensi primer bergerak dalam harmoni paksa. Merah berasal dari resonansi Zhorak atau darah nagamu. Biru dari sisi Elf dan sisa Aether Inti Cahaya. Ungu jelas Void.”
+Ungu tetap di lengan kiri.
 
-Dia mencatat hasilnya.
+Sebelumnya dia selalu mencoba membuat ketiganya bertemu di dada. Sekarang dia tidak melakukannya.
 
-“Kau mungkin mendapat kemampuan baru. Kita belum tahu harga jangka panjangnya.”
+Dia memberi mereka ruang.
 
-“Aku tidak bisa menunggu sampai Arsitek selesai dengan rencananya.” Kael memadamkan api. “Kalau sisi ini sudah menjadi bagian dariku, aku harus menguasainya.”
+Tiga nada.
 
-Dia menghunus Zerath's Fang.
+Tiga jalur.
 
-“Siapkan target.”
+Satu tubuh.
 
-Zireth melemparkan beberapa drone latihan dari kantungnya. Mesin-mesin kecil itu menyebar dan bergerak tidak beraturan.
+Yang menyatukan bukan campuran energinya, melainkan ritme napas Kael sendiri.
 
-Kael mencoba menggabungkan serangan api-es dengan perisai dan proyektil Void. Percobaan awal terasa kaku. Pertahanannya kuat tetapi cepat menguras tenaga. Serangan jarak jauh sulit diarahkan.
+Ketika napas berubah, seluruh sistem menyesuaikan.
 
-“Jangan memaksanya tunduk,” kata Sylvara. “Rasakan alirannya. Arahkan, bukan lawan.”
+Untuk pertama kalinya dia merasa kekuatannya benar-benar miliknya, bukan sekadar tiga makhluk liar yang kebetulan tinggal di tubuh sama.
 
-Kael berhenti dan mengatur napas.
+Sylvara memperhatikan dari sisi lain perkemahan.
 
-Merah. Biru. Ungu.
+"Apa rasanya?"
 
-Bukan tiga kekuatan terpisah, melainkan satu sistem yang belum dia pahami.
+Kael berpikir sebentar.
 
-Drone terakhir menyerang.
+"Seperti berhenti berteriak cukup lama untuk mendengar orang lain."
 
-Kael menebaskan Zerath's Fang. Aura tiga warna menyelimuti bilah dan bergerak tanpa benturan keras.
+"Kau baru saja menyebut Void sebagai orang lain?"
 
-Ketika tebasan menyentuh drone, mesin itu lenyap menjadi debu tanpa ledakan.
+"Jangan rusak momennya."
 
-Zireth melihat pemindainya dengan mata membesar.
+Zireth mengangkat pemindai.
 
-“Itu bukan penghancuran biasa. Polanya mendekati Reality Erasure tingkat rendah.”
+"Resonansi stabil. Tapi ada satu hal aneh."
 
-Kael memandang pedangnya. “Aku tidak merencanakannya.”
+"Tentu."
 
-“Justru itu masalahnya.”
+"Lengan kirimu mengirim pola kecil setiap kali kau menyelesaikan satu siklus."
 
-Nyala tiga warna masih berputar tipis di sepanjang bilah.
+Kael membuka mata.
 
-Kael baru menyentuh permukaan kekuatan Jalan Keempat—perpaduan yang mungkin menyelamatkan Zerath atau menghapusnya tanpa sisa.
+"Mengirim ke mana?"
+
+"Tidak tahu. Sinyalnya terlalu lemah."
+
+Rasa nyaman yang baru muncul langsung hilang.
+
+Integrasi primer.
+
+Pintu di dalam lengan.
+
+Jaringan Echo.
+
+Kael menutup energi.
+
+"Mulai sekarang kita latihan dengan perisai komunikasi."
+
+Zireth mengangguk. "Akhirnya kau paranoid pada tingkat yang sehat."
+
+Keesokan paginya, pepohonan pinus mulai berubah.
+
+Batangnya lebih pucat. Daunnya memantulkan warna yang tidak sesuai arah matahari. Bayangan bergerak sepersekian detik setelah pemiliknya.
+
+Sylphara.
+
+Kael berhenti di batas hutan.
+
+Di antara pepohonan, dia melihat seorang anak perempuan berdiri membelakangi mereka.
+
+Rambutnya putih.
+
+Gaunnya penuh simbol mata.
+
+Ketika Kael berkedip, anak itu sudah tidak ada.
+
+Di batang pohon terdekat muncul satu tulisan baru dalam bahasa Celestial yang entah bagaimana bisa dia pahami.
+
+**MATA KESEMBILAN SUDAH MELIHATMU.**

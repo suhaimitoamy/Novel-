@@ -1,57 +1,113 @@
 # Episode 099 — Jejak Terakhir Arsitek
 
-Setelah Zevaron pergi, mereka kembali ke aula untuk memeriksa sisa pertempuran.
+Mereka menemukan ruang bawah tanah setelah rune kuil padam.
 
-“Rowan lenyap dan kita hampir mati,” kata Kael. “Apa yang benar-benar kita dapatkan?”
+Tanpa jaringan Rowan, pintu-pintu yang sebelumnya tersembunyi menjadi terlihat oleh Mata Kesembilan.
 
-Zireth berlutut di dekat pecahan liontin Vorthax.
+Di bawah altar terdapat ruang sempit penuh kristal hitam.
 
-“Tunggu.”
+Bukan penyimpanan energi.
 
-Dia memindai salah satu fragmen logam terbesar. Di dalamnya terdapat rangkaian sangat kecil yang tidak menyerupai rune atau sirkuit Magitek Zerath.
+Penyimpanan data.
 
-“Teknologi dimensional. Ini buatan Sang Arsitek.”
+Zireth menghubungkan satu kabel ke kristal terbesar.
 
-Pecahan tersebut dihubungkan ke datapad. Data rusak muncul sebagai diagram Zerath dengan dua belas lokasi Fragmen.
+"Ini format yang sama dengan Echo Vessel."
 
-Beberapa titik telah ditandai dan dihubungkan: Aranyel, Thürdrak, Gurun Bisikan, Aethelgard, dan Belzoth. Garis ungu dari Gerbang Es mengarah menuju satu lokasi terakhir.
+Kael melihat pola di permukaan.
 
-Sylvara menunjuknya. “Jantung mekanis dari visi Nyara.”
+Ribuan catatan.
 
-Kael mencoba mengingat, tetapi detailnya tetap kabur.
+Namanya muncul berulang.
 
-Zireth memperbesar diagram.
+KAEL DRAYVEN.
 
-“Lokasinya jauh di bawah reruntuhan kota industri Dwarf kuno. Urdron.”
+KAEL DRAKELYN.
 
-“Tempat para Dwarf pertama menggabungkan rune dan mesin dalam skala besar,” kata Kael.
+PEWARIS LUKA.
 
-“Benar. Fragmen terakhir tersimpan di pusat industrinya.”
+VARIABEL KEEMPAT.
 
-Garis-garis pada peta menunjukkan rancangan yang lebih besar.
+Di bawah setiap nama ada simulasi keputusan.
 
-“Arsitek hendak menghubungkan Fragmen Urdron dengan energi yang bocor dari Gerbang Es,” lanjut Zireth. “Itulah titik awal penataan ulang Zerath.”
+Aranyel.
 
-“Kita harus ke sana,” kata Sylvara.
+Sylvara.
 
-Kael mengangguk. Semua petunjuk akhirnya mengarah ke tempat yang sama.
+Seraphis.
 
-“Urdron.”
+Dagna.
 
-Zireth menyimpan pecahan liontin agar dapat mengekstrak data lain selama perjalanan.
+Hati Lykaros.
 
-“Masalah berikutnya adalah keluar dari Belzoth. Tukang perahu kita sudah pergi.”
+Kael merasa mual.
 
-Kepakan sayap berat terdengar dari luar kuil.
+"Dia benar-benar merekam semuanya."
 
-Void Wyvern mendarat di depan gerbang. Sosok Berhelm turun dan menghalangi jalan mereka.
+Zireth menelusuri indeks. "Tidak semuanya. Ada blok data kosong sejak Aethelgard. Model prediksinya mulai gagal setelah kau menggunakan distribusi resonansi."
 
-“Transmisi terakhir artefak Sang Arsitek telah terputus,” katanya. “Misi Rowan Galt tercatat gagal.”
+Kael hampir merasa puas.
 
-Helm hitam mengarah kepada Kael.
+Lalu satu file terbuka sendiri.
 
-“Status Anomali Kael Drayven diperbarui menjadi Aset Kritis bagi Keseimbangan.”
+Tidak ada teks.
 
-Kael menggenggam Zerath's Fang.
+Hanya simbol geometris Arsitek.
 
-Belum jelas apakah perubahan status tersebut menjadikan Nexus Command sekutu—atau penjara baru dengan nama berbeda.
+Suara muncul melalui kristal.
+
+*Terima kasih atas koreksinya.*
+
+Kael menegang.
+
+*Model lama memang terlalu sederhana.*
+
+Kristal-kristal lain mulai padam satu per satu.
+
+"Dia menghapus data!" Zireth mencoba menghentikan proses.
+
+Terlambat.
+
+Sebelum kristal utama mati, satu koordinat muncul.
+
+URDRON.
+
+Di bawahnya:
+
+**MODEL GENERASI BERIKUTNYA MENUNGGU.**
+
+Semua cahaya padam.
+
+Kael menatap kegelapan.
+
+"Itu jebakan."
+
+"Jelas," kata Sylvara.
+
+"Kita tetap pergi?" tanya Zireth.
+
+Kael berpikir.
+
+Arsitek ingin dia datang.
+
+Tidak datang berarti membiarkan simpul Urdron bekerja tanpa gangguan.
+
+Pergi berarti masuk ke kondisi yang sudah disiapkan.
+
+Dulu Kael akan memilih salah satu lalu meyakinkan diri itu Jalan Keempat.
+
+Sekarang dia bertanya hal berbeda.
+
+"Apa yang bisa kita ubah sebelum sampai?"
+
+Zireth tersenyum tipis.
+
+"Nah. Itu pertanyaan yang lebih menyebalkan untuk musuh."
+
+Mereka meninggalkan ruang data dengan satu tujuan.
+
+Bukan Urdron.
+
+Belum.
+
+Pertama mereka akan mencari semua informasi tentang Urdron yang tidak berasal dari jaringan Arsitek.

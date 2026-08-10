@@ -1,51 +1,125 @@
 # Episode 083 — Sentuhan Arsitek
 
-Perjalanan menuju Xyphus membawa mereka melewati hutan yang semakin gelap.
+Benang hitam menembus kolam pertama.
 
-Pohon meranggas meski tanah masih subur. Udara menekan dada, dan keheningan terasa dibuat-buat.
+Airnya menjadi gelap.
 
-“Tempat ini salah,” kata Sylvara. “Lebih buruk daripada Ngarai Gema.”
+Lalu kolam kedua.
 
-Zireth mengarahkan pemindai. “Struktur ruang mengalami gangguan kecil tetapi terus-menerus.”
+Ketiga.
 
-Lengan kiri Kael berdengung. Bukan peringatan terhadap ancaman dekat, melainkan rasa sedang diamati oleh sesuatu yang sangat luas.
+Nyara mengangkat kedua tangan. Cahaya dari tubuhnya membentuk lingkaran di sekitar Kael, Sylvara, dan Zireth.
 
-“Arsitek tahu kita menuju Xyphus.”
+"Jangan menyentuh apa pun."
 
-Hutan berubah setelah ucapan itu.
+Kael berdiri. "Apa yang dia lakukan?"
 
-Pohon-pohon meliuk dan menyatu menjadi pola geometris. Tanah melipat ke dalam, membentuk jurang yang muncul lalu lenyap. Jalan di depan pecah menjadi susunan sudut yang mustahil.
+"Tidak datang ke sini. Menggunakan simpul di tubuhmu sebagai koordinat."
 
-“Manipulasi ruang,” kata Zireth. “Dia menjebak kita dalam labirin.”
+Rune kedelapan terbuka.
 
-Mereka mencoba berbelok, tetapi setiap arah kembali menuju tempat yang sama. Lanskap terus menyusun dirinya ulang.
+Kali ini Kael merasakan sesuatu dari sisi lain.
 
-Kael menahan kepanikan.
+Bukan suara.
 
-Arsitek tidak menyerang secara langsung. Dia mengubah aturan ruang sampai perjalanan tidak lagi memiliki arti.
+Tekanan kehendak.
 
-Namun distorsi itu tetap sebuah struktur.
+Sang Arsitek tidak berteriak. Tidak memaksa. Ia hanya membuat satu gagasan terasa masuk akal.
 
-Kael mengalirkan energi tiga warna ke Zerath's Fang. Dia mencari bagian udara yang terasa paling kaku, seperti jahitan pada kain realitas.
+**Bukalah. Lihat kebenaran tanpa perantara.**
 
-Pedangnya menebas ruang kosong.
+Kael tahu itu bukan pikirannya.
 
-Sebuah garis tipis muncul. Lipatan di depan goyah dan memperlihatkan jalan hutan yang sebenarnya.
+Namun bagian paling berbahaya adalah gagasan itu memang menggoda.
 
-Zireth menatapnya. “Kau memotong distorsi ruang.”
+Nyara memberi potongan.
 
-“Hanya sebentar. Cepat.”
+Nexus memberi potongan.
 
-Mereka berlari melewati celah sebelum realitas menutup kembali di belakang.
+Rowan memberi kebohongan yang bercampur kebenaran.
 
-Ketiganya keluar dari pusat labirin, tetapi rasa diawasi justru semakin kuat.
+Bagaimana jika pintu di lengannya benar-benar bisa menunjukkan semuanya?
 
-Kael menahan tubuh pada pohon. Tebasan tadi menguras energi jauh lebih besar daripada serangan biasa.
+Kael menyentuh simbol.
 
-Arsitek kini tahu dia mampu merusak sebagian Struktur.
+Sylvara menampar tangannya menjauh.
 
-Di depan mereka, wilayah Xyphus mulai terlihat. Tanah berubah hitam, benteng obsidian menjulang di bawah awan badai sihir, dan tidak ada cahaya matahari yang menyentuh cakrawala.
+"Hei!"
 
-Jalan menuju Rowan telah terbuka.
+"Wajahmu berubah."
 
-Namun sentuhan Arsitek mengikuti mereka sampai ke perbatasan.
+Kael menatapnya.
+
+"Bagaimana?"
+
+"Seperti kau baru saja menemukan alasan bagus untuk melakukan hal bodoh."
+
+Itu memutus daya tarik sesaat.
+
+Benang hitam bergetar.
+
+Sang Arsitek menyadari gangguannya.
+
+Tekanan meningkat.
+
+Kolam keempat pecah.
+
+Zireth mengangkat pemindai, tetapi layarnya hanya menampilkan satu pola geometris berulang.
+
+"Dia menulis langsung ke perangkatku."
+
+"Matikan!"
+
+Zireth mencabut inti daya.
+
+Layar tetap menyala.
+
+Kael merasakan marah.
+
+Bagus.
+
+Amarah lebih mudah dikenali sebagai miliknya sendiri daripada rasa ingin tahu yang ditanam.
+
+Dia membentuk tiga resonansi terpisah.
+
+Merah.
+
+Biru.
+
+Ungu.
+
+Tidak menyerang benang hitam.
+
+Dia memutus sinkronisasi simpul kedelapan dengan napasnya sendiri.
+
+Sang Arsitek mencoba mengikuti.
+
+Kael mengubah ritme.
+
+Bukan acak.
+
+Mengikuti detak jantung.
+
+Sesuatu yang tidak bisa dikendalikan sempurna dari luar tanpa membunuh tubuhnya.
+
+Benang hitam kehilangan kestabilan.
+
+Nyara mengangkat tangan.
+
+"Sekarang."
+
+Delapan kolam memantulkan satu cahaya bersama.
+
+Benang terputus.
+
+Tekanan menghilang.
+
+Kael jatuh terduduk.
+
+Pada lengan kirinya, simbol mata kedelapan retak.
+
+Namun dari retakan itu muncul garis tipis menuju telapak.
+
+Sang Arsitek gagal membuka pintu.
+
+Tetapi ia berhasil menyentuh gagangnya.

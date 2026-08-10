@@ -1,51 +1,107 @@
 # Episode 068 — Serangan Balik Zevaron
 
-Rowan dan Zevaron bertarung di depan kubah pelindung.
+Zevaron menahan Rowan cukup lama.
 
-“Kau hanya pion dalam permainan Arsitek,” kata Rowan sambil menahan badai dengan perisai Void. “Minggir.”
+Masalahnya, dia tidak tahu kapan berhenti.
 
-Zevaron tertawa. “Aku bukan pion siapa pun.”
+Setelah satu serangan petir memaksa Rowan mundur, Zevaron berputar ke arah altar.
 
-Dia membentuk golem kecil dari angin dan petir. Makhluk-makhluk itu menyerang Rowan dari berbagai arah, memaksanya bergerak menjauh dari altar.
+Kael melihat perubahan itu sebelum siapa pun.
 
-Di dalam kubah, Kael dan Penjaga Celestial mempertahankan aliran energi ke Inti Cahaya.
+"Jangan."
 
-“Void dalam tubuhmu menyakiti Hati Lykaros,” kata Penjaga melalui pikiran. “Namun energi yang sama mencegah korupsi Rowan menembus perlindungan. Keseimbanganmu berbahaya dan sulit dipahami.”
+Zevaron tersenyum.
 
-“Aku juga tidak memahami semuanya.” Keringat membasahi wajah Kael. “Aku hanya tahu kubah ini harus bertahan.”
+"Aku membantu menyelamatkannya. Artinya aku pantas mendapat bagian."
 
-Lengan kirinya semakin dingin dan mati rasa, tetapi rasa sakit telah menghilang. Perubahan itu justru membuatnya lebih khawatir.
+"Itu bukan cara kerja menyelamatkan sesuatu."
 
-Di luar, Rowan menghancurkan golem-golem dengan satu ledakan Void terkonsentrasi.
+"Bagi orang sepertimu mungkin."
 
-“Cukup.”
+Angin mengumpul di telapak Zevaron.
 
-Energi gelap berkumpul untuk serangan akhir.
+Bukan diarahkan kepada Hati Lykaros secara langsung.
 
-Zevaron mendadak menghentikan serangannya kepada Rowan.
+Kepada jaringan penyeimbang yang dibangun Kael.
 
-Senyum licik muncul di wajahnya.
+"Kalau kubuka pelindungnya sebentar saja, aku bisa mengambil inti sebelum Rowan."
 
-Dia mengarahkan seluruh badai berikutnya kepada kubah.
+Kael hampir tidak percaya pada apa yang didengarnya.
 
-“Jika aku tidak bisa memiliki Inti itu, kalian juga tidak akan mendapatkannya.”
+"Kau masih berpikir ini perlombaan."
 
-Kael melihat serangan datang saat seluruh fokusnya masih terikat pada keseimbangan Fragmen.
+Zevaron menyerang.
 
-“Tidak.”
+Gelombang angin menghantam cincin luar altar.
 
-“Lindungi Inti,” seru Penjaga.
+Kael menahan dengan api. Seraphis menambah cahaya. Dua energi tersebut cukup menolak sebagian besar dorongan.
 
-Badai elemen menghantam perlindungan gabungan mereka.
+Petir Zevaron datang setelahnya.
 
-Retakan besar menyebar pada kubah. Kael dan Penjaga terlempar ke belakang ketika pertahanan pecah.
+Bukan serangan terbesar.
 
-Inti Cahaya terbuka tanpa perlindungan.
+Serangan yang tepat.
 
-Rowan tidak menyia-nyiakan kesempatan.
+Satu titik sambungan jaringan terputus.
 
-Dia meninggalkan Zevaron dan melesat menuju altar.
+Seluruh keseimbangan miring.
 
-Kael masih berguling di lantai, Penjaga Celestial belum sempat bangkit, dan Zevaron tertawa melihat kekacauan yang dia ciptakan.
+Kael terlempar dari platform. Seraphis kehilangan dua jalur Aether sekaligus. Hati Lykaros terbuka tanpa pelindung selama kurang dari satu detik.
 
-Tangan Rowan tinggal beberapa langkah dari Hati Lykaros.
+Cukup bagi Rowan.
+
+Pria berambut putih muncul di depan altar seperti bayangan.
+
+Tangannya hampir menyentuh inti.
+
+Kael tidak bisa mencapai jaraknya.
+
+Zireth juga tidak.
+
+Sylvara menembak.
+
+Anak panahnya mengenai pergelangan Rowan dan mengubah lintasan tangan beberapa sentimeter.
+
+Jari Rowan tidak menyentuh Hati.
+
+Namun energi Void dari telapak tangannya tetap mengenai permukaan.
+
+Cahaya keemasan berubah ungu pada satu sisi.
+
+Hati Lykaros menjerit.
+
+Bukan metafora.
+
+Suara itu memenuhi kepala Kael begitu keras hingga dia jatuh berlutut.
+
+Di antara rasa sakit, satu gambar muncul di pikirannya.
+
+Langit Zerath.
+
+Sebuah retakan panjang dari utara ke selatan.
+
+Dan di baliknya, sesuatu berbentuk seperti tangan sedang mencoba masuk.
+
+Kael membuka mata.
+
+Zevaron pun sudah tidak tersenyum.
+
+"Apa yang baru saja kita lakukan?"
+
+Kael menatapnya.
+
+"Kita?"
+
+Zevaron tidak menjawab.
+
+Altar mulai tenggelam ke lantai.
+
+Seluruh kuil berguncang.
+
+Rowan mundur dengan darah menetes dari tangannya, tetapi wajahnya puas.
+
+Dia tidak berhasil mengambil Fragmen.
+
+Dia tidak perlu.
+
+Dia sudah membuatnya terluka.

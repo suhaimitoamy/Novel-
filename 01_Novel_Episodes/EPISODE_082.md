@@ -1,47 +1,107 @@
 # Episode 082 — Menafsir Benang Takdir
 
-Mereka meninggalkan sanctuary dan bergerak cepat melalui hutan ilusi.
+Nyara tidak menyebutnya takdir.
 
-“Ceritakan kembali visimu sebelum bagian lain hilang,” kata Zireth. “Jantung mekanis, Rowan, Zevaron, dan Arsitek.”
+"Benang kemungkinan," katanya. "Takdir adalah nama yang diberikan orang ketika mereka terlalu takut mengakui bahwa pola bisa berubah."
 
-Kael memijat pelipis.
+Delapan kolam menyala kembali.
 
-“Gambarnya tidak berurutan. Jantung mesin itu berada di wilayah Dwarf, mungkin reruntuhan dari masa Forge God pertama.”
+Kali ini tidak menampilkan masa depan lengkap. Hanya garis-garis cahaya tipis yang saling bercabang.
 
-Dia memaksa pikirannya kembali ke penglihatan.
+Kael duduk di tengah lingkaran. Sylvara dan Zireth tetap di tepi, tidak dapat melihat semua yang dia lihat.
 
-“Aku melawan Rowan dengan kekuatan tiga warna. Tubuhnya tertutup Void. Zevaron juga berada di sana, tapi gerakannya kaku.”
+"Jangan cari hasil," lanjut Nyara. "Cari penyebab yang berulang."
 
-“Seperti boneka yang dikendalikan?” tanya Sylvara.
+Kael memperhatikan.
 
-“Mungkin.”
+Di setiap jalur yang membawa Zerath mendekati kehancuran, ada pola yang sama.
 
-Kael kembali melihat pola raksasa di antara bintang.
+Sebuah ancaman muncul.
 
-“Arsitek tidak hadir secara fisik. Lebih seperti kesadaran kosmik dari susunan geometris. Dia hanya mengamati.”
+Kerajaan bereaksi berlebihan.
 
-Zireth mencatat semuanya.
+Fragmen dipakai.
 
-“Ini terdengar seperti pertarungan untuk Fragmen terakhir. Namun tanpa lokasi pasti, informasi itu belum cukup.”
+Resonansi dunia meningkat.
 
-“Apakah ada petunjuk lain?” tanya Sylvara.
+Lalu Arsitek hanya perlu mendorong sedikit.
 
-Kael menggali sisa ingatan yang semakin kabur.
+"Dia tidak menciptakan sebagian besar perang," kata Kael.
 
-Sebuah simbol spiral retak muncul.
+"Tidak."
 
-“Liontin Vorthax. Aku melihatnya di tempat gelap—sebuah kuil Warlock.”
+"Dia memastikan semua pihak percaya perang adalah satu-satunya jawaban."
 
-Zireth mendongak. “Wilayah Xyphus. Bisa jadi Rowan menuju ke sana untuk mengambil kembali liontin atau mengaktifkan fungsi lain.”
+Salah satu benang menunjukkan Rowan.
 
-“Xyphus tertutup bagi orang asing,” kata Sylvara. “Menyusup ke wilayah Warlock tidak akan mudah.”
+Benang itu bercabang sangat banyak.
 
-“Jika liontin itu bagian dari rencana Arsitek, kita tidak bisa mengabaikannya.” Kael menatap kedua temannya. “Kita harus menemukan fungsi benda itu sebelum Rowan memakainya.”
+Dalam beberapa jalur dia mati di tangan Kael.
 
-Dia mengubah arah langkah.
+Dalam beberapa dia mengkhianati Arsitek.
 
-“Tujuan berikutnya Xyphus.”
+Dalam satu, dia berdiri di samping Kael.
 
-Mereka meninggalkan jalur menuju pusat Sylphara dan bergerak ke wilayah yang terkenal dengan ritual, perjanjian gelap, serta benteng-benteng Warlock.
+Kael mengerutkan kening.
 
-Satu potongan visi yang nyaris hilang kini menjadi satu-satunya petunjuk yang mereka miliki.
+"Rowan belum sepenuhnya terkunci."
+
+"Tidak ada manusia yang sepenuhnya terkunci. Itu sebabnya Arsitek membutuhkan rasa takut, ambisi, rasa bersalah. Benda-benda yang membuat pilihan terasa otomatis."
+
+Kael memikirkan dirinya sendiri.
+
+Aranyel.
+
+Setiap kali seseorang menyentuh rasa bersalahnya, dia bergerak lebih cepat dan berpikir lebih sedikit.
+
+"Jadi aku mudah dibaca."
+
+"Dulu."
+
+Nyara menggerakkan tangan.
+
+Satu benang baru muncul.
+
+Tipis. Hampir transparan.
+
+Tidak berakhir di kemenangan atau kehancuran.
+
+Ia terus bercabang.
+
+"Apa itu?"
+
+"Jalur yang mulai terbentuk sejak kau menolak tiga pilihan di Vorth Aereth."
+
+"Jalan Keempat."
+
+"Aku tidak suka namanya."
+
+Kael menatap bayangannya.
+
+"Kenapa?"
+
+"Karena begitu kau memberi nama pada jalan, kau mulai mencoba setia pada nama itu, bukan pada alasan mengapa kau memilihnya."
+
+Kael terdiam.
+
+Itu terdengar seperti sesuatu yang perlu dia dengar.
+
+"Lalu apa yang harus kulakukan?"
+
+"Jangan menjadi tidak terduga demi membingungkan Arsitek. Itu hanya bentuk lain dari dikendalikan olehnya."
+
+Nyara menunjuk benang transparan.
+
+"Jadilah sadar mengapa kau memilih."
+
+Rune kedelapan di lengan Kael berdenyut.
+
+Satu benang hitam muncul di antara semua kemungkinan.
+
+Tidak bercabang.
+
+Langsung menuju benteng Vorthax.
+
+Nyara menegang.
+
+"Dia menemukan kita lagi."

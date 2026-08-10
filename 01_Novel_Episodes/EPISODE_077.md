@@ -1,63 +1,121 @@
 # Episode 077 — Bisikan Mimpi Buruk
 
-Kabut Void menyelimuti alun-alun.
+Kael tertidur menjelang fajar.
 
-Gema Nyxaria menatap Kael dengan mata hitam tanpa dasar.
+Dia bangun di Aranyel.
 
-“Aether dan Void beradu dalam tubuhmu.” Senyumnya tipis. “Aromanya indah dan menyakitkan.”
+Tidak ada api.
 
-Kael menjaga jarak. “Apa yang kau lakukan kepada penduduk desa?”
+Desanya utuh.
 
-“Menyiksa?” Gema itu memiringkan kepala. “Aku hanya membagikan ketakutan yang mereka sembunyikan.”
+Ibunya berdiri di depan rumah dengan keranjang di tangan.
 
-Kabut membentuk gambaran singkat: ladang gagal panen, keluarga yang mati, tetangga yang saling mengkhianati.
+"Kau terlambat," katanya.
 
-“Topeng kesopanan mereka akhirnya terbuka.”
+Kael tidak bergerak.
 
-“Hentikan.” Sylvara melepaskan panah cahaya.
+Bagian dirinya ingin berlari.
 
-Anak panah menembus tubuh kabut tanpa meninggalkan luka.
+Bagian lain sudah terlalu sering dipermainkan ilusi untuk percaya begitu saja.
 
-“Cahaya tidak menyentuh bayangan terdalam.” Tatapan Nyxaria berpindah kepada Sylvara. “Terutama warisan pengkhianatan keluargamu.”
+"Ini bukan nyata."
 
-Sylvara mundur setengah langkah. “Bagaimana kau tahu?”
+Ibunya menghela napas. "Kau selalu mengatakan itu ketika kenyataan menyakitkan."
 
-“Dia membaca rasa takut,” kata Zireth. “Jangan menerima kata-katanya sebagai kebenaran.”
+Kael melihat tangannya.
 
-Nyxaria tersenyum kepadanya.
+Tidak ada retakan Void.
 
-“Dan kau, Mekanik setengah hidup. Takut kehilangan kendali atas tubuh logammu? Atau takut menemukan bahwa pikiranmu sudah menjadi mesin?”
+Tidak ada rune.
 
-Zireth mencengkeram lengan mekanis. “Ucapan kosong.”
+Dadanya juga sunyi.
 
-Gema itu kembali kepada Kael.
+Untuk sesaat keinginan percaya terasa hampir menyakitkan.
 
-“Ketakutanmu jauh lebih kaya.”
+"Apa yang kau inginkan?"
 
-Kabut menebal di sekelilingnya.
+Wajah ibunya berubah.
 
-“Kau takut pada api, darah naga, dan masa depan ketika tubuhmu berubah menjadi monster. Kau takut mengulangi kesalahan ayahmu.”
+Bukan menjadi monster.
 
-Senyumnya melebar.
+Menjadi sedih.
 
-“Tapi yang paling kau takuti adalah kesendirian.”
+"Aku ingin kau berhenti mencari alasan mengapa semua orang yang mati harus berarti sesuatu."
 
-Dunia di sekitar Kael berubah.
+Kael menegang.
 
-Dia berdiri di antara mayat Sylvara dan Zireth. Versi dirinya yang bermata merah menatap dari atas tubuh mereka dengan wajah penuh kebencian.
+"Mereka tidak mati agar kau menjadi kuat. Mereka mati. Itu saja."
 
-*Pada akhirnya, kau menghancurkan semua orang yang dekat denganmu.*
+Kalimat itu lebih kejam daripada tuduhan apa pun.
 
-Kael menekan kepalanya. “Tidak nyata.”
+Tanah di bawah rumah retak.
 
-Namun bau darah, hawa dingin, dan wajah teman-temannya terasa terlalu jelas.
+Aranyel berubah menjadi kuil Aethelgard. Seraphis berdiri tanpa sayap. Dagna muncul dengan rantai Void. Penjaga Elf dari desa terbaring di salju.
 
-Gema Nyxaria mendekat.
+Semua menatap Kael.
 
-“Hatimu sudah mempercayainya.”
+"Berapa banyak orang lagi yang akan kau jadikan alasan untuk terus berjalan?"
 
-Tangannya yang terbentuk dari kabut terulur.
+Kael menutup mata.
 
-“Aku dapat mengambil semua ketakutan itu. Kau hanya perlu menyerahkannya dengan sukarela.”
+Dia mencoba bangun.
 
-Kael gemetar di depan ilusi terburuknya. Di dekatnya, Sylvara dan Zireth juga berjuang melawan bayangan yang dibangunkan Nyxaria dari bagian terdalam pikiran mereka.
+Tidak bisa.
+
+Kemudian suara lain muncul.
+
+Dingin dan datar.
+
+*Jangan melawan gambarnya. Cari frekuensi yang membentuk mimpi.*
+
+Lengan kiri Kael menyala dalam mimpi.
+
+Integrasi.
+
+Suara dari dalam pintu.
+
+Kael tidak tahu apakah harus mempercayainya, tetapi petunjuknya masuk akal.
+
+Dia berhenti menatap wajah-wajah.
+
+Mendengarkan.
+
+Mimpi memiliki ritme.
+
+Sangat lambat.
+
+Sama pada setiap suara palsu.
+
+Kael mengirim denyut kecil yang tidak selaras.
+
+Langit pecah seperti kaca.
+
+Dia terbangun sambil terengah.
+
+Sylvara menahannya agar tidak jatuh dari alas tidur.
+
+"Kau berteriak."
+
+Kael memegang lengan kiri.
+
+Rune ungunya menyala terang.
+
+Di kulit, satu simbol baru telah terbentuk.
+
+Mata dengan delapan garis mengelilinginya.
+
+Bukan sembilan.
+
+Zireth melihatnya dan wajahnya mengeras.
+
+"Simpul kedelapan."
+
+Pesan Seraphis kembali teringat.
+
+*Jangan biarkan simpul kedelapan dibuka.*
+
+Kael menatap simbol yang baru saja muncul dari tubuhnya sendiri.
+
+Mungkin mereka tidak sedang mencari Mata Kesembilan.
+
+Mungkin sesuatu sedang menggunakan mereka untuk membuka jalan menuju sana.

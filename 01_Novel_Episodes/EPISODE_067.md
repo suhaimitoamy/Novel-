@@ -1,63 +1,117 @@
 # Episode 067 — Jalan Keempat Kael
 
-Semua pilihan di depan Kael berakhir buruk.
+Retakan pada Hati Lykaros hanya setipis rambut.
 
-Menghancurkan Rowan tidak akan menghentikan Penjaga yang siap meledakkan diri. Menahan Penjaga memberi Zevaron kesempatan merebut Inti. Melindungi Fragmen secara langsung membuatnya terbuka terhadap serangan dari tiga arah.
+Namun Kael merasakannya seperti luka yang terbuka di dalam dadanya sendiri.
 
-Namun Jalan Keempat tidak pernah berarti memilih salah satu kehancuran yang telah disediakan orang lain.
+Seraphis mengangkat kedua sayap teratas.
 
-Kael bergerak.
+Cahaya berkumpul di seluruh tubuh Penjaga.
 
-Dia tidak menyerang Rowan atau Zevaron. Dia melesat melewati keduanya dan berdiri di antara Penjaga Celestial dengan Inti Cahaya.
+Kael langsung tahu apa yang akan dia lakukan.
 
-“Kael!” teriak Sylvara dari celah dinding kuil yang mulai runtuh.
+"Jangan."
 
-Kael membentangkan kedua tangan.
+*Pengorbanan fungsi terakhir akan mengembalikan kestabilan inti.*
 
-“Jangan korbankan dirimu.”
+"Aku bilang jangan."
 
-Dia menoleh kepada Rowan dan Zevaron.
+*Alternatif tidak tersedia.*
 
-“Dan kalian tidak akan menyentuh Fragmen ini.”
+"Kalian semua suka sekali kalimat itu."
 
-Api merah dan es biru berputar dari Fragmen di dadanya. Kael membuka aliran Void pada lengan kiri, tetapi kali ini energi tersebut tidak dilepaskan sebagai serangan.
+Kael berdiri di antara Seraphis dan altar.
 
-Ketiga warna membentuk kubah tipis di sekitar dirinya dan Inti Cahaya.
+Zevaron menatapnya seolah dia gila. Rowan justru sangat tenang.
 
-*Aku adalah wadah,* pikir Kael. *Tapi aku yang menentukan apa yang tinggal di dalamnya.*
+Kael memahami alasannya.
 
-Penjaga Celestial menghentikan pengorbanannya.
+Jika Seraphis meledakkan seluruh Aether untuk menutup inti, lonjakan energi yang dihasilkan mungkin justru menjadi celah baru bagi jaringan Rowan.
 
-“Kau melindungi Hati Lykaros dengan energi Kehampaan?”
+Dua pilihan yang tersedia sama-sama berada di papan permainan orang lain.
 
-“Void itu bagian dari tubuhku sekarang. Aku akan memakainya untuk melindungi, bukan membiarkannya memilih.”
+Biarkan inti pecah.
 
-Rowan menatap kubah dengan kemarahan yang jarang muncul di wajahnya.
+Atau korbankan Penjaga dan berharap segel bertahan.
 
-“Tidak mungkin. Energi yang saling menolak seharusnya merobekmu.”
+Kael sudah muak dengan pilihan seperti itu.
 
-Keterkejutan Rowan membuka celah.
+"Ada cara ketiga," kata Seraphis.
 
-Zevaron memanfaatkannya dan menghantamkan badai elemen ke arah sang pengkhianat.
+Penjaga tidak menjawab.
 
-“Sekarang kau lengah.”
+Kael menatap api merah di tangan kanan, dingin biru di dada, dan rune ungu di lengan kiri.
 
-Rowan berbalik untuk menangkis. Pertarungan mereka kembali pecah di luar kubah.
+"Tidak."
 
-Kael mempertahankan perlindungan dengan susah payah. Api, es, dan Void terus saling mendorong di dalam alirannya. Setiap denyut membuat tubuhnya terasa akan pecah.
+Dia menarik napas.
 
-“Berat...”
+"Ada cara keempat."
 
-Penjaga Celestial mengamati perjuangannya. Lalu makhluk bersayap itu mengubah arah energi yang telah dikumpulkan untuk bunuh diri.
+Kael tidak memasukkan energinya ke Hati Lykaros.
 
-Aether keemasan mengalir ke kubah.
+Dia menyebarkannya ke jaringan altar.
 
-“Biar kubantu menahan beban itu.”
+Merah masuk ke satu cincin.
 
-Cahaya Penjaga menyatu dengan tiga warna Kael. Kubah menjadi lebih padat dan stabil.
+Biru ke cincin lain.
 
-Kael mengembuskan napas yang sempat tertahan. “Terima kasih.”
+Void dibiarkan mengalir hanya di jalur yang telah tercemar Rowan.
 
-Di dalam perlindungan gabungan mereka, Inti Cahaya kembali berputar tenang.
+Alih-alih menyatukan tiga energi, Kael memberi masing-masing pekerjaan berbeda.
 
-Di luar, Rowan dan Zevaron terus menghancurkan bagian-bagian kuil saat keduanya bertarung untuk menentukan siapa yang akan mendapat kesempatan berikutnya.
+Panas mengangkat energi berlebih.
+
+Dingin memperlambat osilasi inti.
+
+Void menyerap gangguan yang telah berada di sistem.
+
+Seraphis menatap perubahan pola.
+
+*Distribusi beban...*
+
+"Bantu aku. Bukan dengan seluruh hidupmu. Cuma beri cahaya di bagian yang memang perlu cahaya."
+
+Penjaga ragu.
+
+Satu detik.
+
+Kemudian enam sayapnya menyebar.
+
+Aether masuk ke jaringan.
+
+Bukan ledakan.
+
+Aliran tipis.
+
+Hati Lykaros berdenyut.
+
+Retakan berhenti melebar.
+
+Rowan bergerak.
+
+Zevaron menghadangnya.
+
+"Kali ini aku tahu siapa pionnya."
+
+Petir memaksa Rowan menjauh dari altar.
+
+Agen Nexus memutus dua jalur rune di sisi lain. Sylvara dan Zireth menghancurkan sisa pecahan Vorthax.
+
+Untuk pertama kalinya sejak memasuki kuil, semua orang kecuali Rowan melakukan sesuatu yang mengarah pada tujuan sama.
+
+Kael tidak menyebutnya aliansi.
+
+Tidak perlu.
+
+Hati Lykaros mulai tenang.
+
+Lalu Kael mendengar suara sangat kecil dari dalam inti.
+
+*Pewaris keempat...*
+
+Bukan suara Seraphis.
+
+Bukan Nyara.
+
+Sesuatu yang jauh lebih tua baru saja menyadari dirinya.

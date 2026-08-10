@@ -1,51 +1,95 @@
 # Episode 096 — Memutus Benang Void
 
-Zireth membentuk tandu energi untuk membawa Zevaron.
+Peta di lengan Kael tidak menunjukkan tempat.
 
-“Beban ini memperlambat kita. Warlock lain akan segera mengetahui apa yang terjadi.”
+Ia menunjukkan hubungan.
 
-Sylvara memandang altar.
+Garis hitam keluar dari bekas liontin Rowan, melewati dinding kuil, menembus pulau, lalu bercabang ke jaringan yang terlalu besar untuk dipahami sekaligus.
 
-Pusaran Void yang semula berputar di atasnya telah menyusut dan menutup, menyisakan batu obsidian dingin.
+Kael melihat satu titik terdekat.
 
-“Tanpa liontin dan ritual aktif, Nexus Point kembali dorman,” kata Zireth. “Setidaknya sekarang.”
+Benang yang masih terhubung pada jantung Rowan.
 
-Kael menyentuh lengan kiri.
+"Kalau kupotong ini, apa yang terjadi?"
 
-Setelah menyerap sisa energi Rowan, dia dapat merasakan Void dengan cara berbeda. Bukan hanya kekuatannya, tetapi susunan halus yang membentuk hubungan antarbenda.
+Zireth menatap pembacaan. "Pada Rowan? Tidak tahu. Padamu? Lebih tidak tahu."
 
-Benang-benang tipis masih menempel pada tubuh Zevaron.
+"Konsisten."
 
-“Sisa kendali Arsitek,” gumam Kael.
+Rowan tertawa lemah dari lantai. "Jangan lakukan."
 
-Jika dibiarkan, hubungan itu mungkin dipakai untuk melacak atau mengambil alih dirinya lagi.
+"Karena akan membunuhmu?"
 
-“Tunggu.”
+"Karena ia akan tahu kau bisa."
 
-Kael mendekati tandu dan mengangkat lengan kiri di atas dada Zevaron.
+Kael menatapnya.
 
-“Apa yang akan kau lakukan?” tanya Sylvara.
+"Dia sudah tahu terlalu banyak."
 
-“Memutus sesuatu yang tidak seharusnya ada.”
+Rowan menggeleng. "Mengetahui aku gagal berbeda dari mengetahui ada seseorang yang dapat memutus struktur."
 
-Dia mengalirkan energi Tri-Elemental dalam jumlah kecil. Bukan serangan, melainkan gelombang halus yang mencari frekuensi asing.
+Kael memahami ketakutannya.
 
-Benang-benang Void bergetar.
+Kemampuan ini, jika nyata, mengubah posisi mereka.
 
-Kael mempertahankan keseimbangan merah, biru, dan ungu sampai ikatan tersebut putus satu demi satu.
+Arsitek tidak lagi menghadapi variabel yang sulit diprediksi.
 
-Pemindai Zireth menunjukkan perubahan.
+Ia menghadapi ancaman terhadap jaringan itu sendiri.
 
-“Sisa energinya tidak hilang, tetapi kehilangan struktur kendali. Frekuensi Arsitek telah dinetralkan.”
+"Bagaimana memutusnya?" tanya Sylvara.
 
-Kael menarik tangan. Rasa lelah datang, tetapi tidak ada ledakan atau korupsi tambahan.
+Kael melihat benang dengan Mata Kesembilan.
 
-“Bagaimana kau melakukannya?”
+Tidak bisa ditebas.
 
-“Aku mengikuti aliran yang terasa asing.” Kael melihat wajah Zevaron yang kini lebih tenang. “Saat dia bangun, pilihannya akan kembali menjadi miliknya.”
+Ia bukan benda.
 
-Mereka mengangkat tandu dan bergerak menuju pintu keluar.
+Benang itu bertahan karena dua sisi memiliki frekuensi yang terus diselaraskan.
 
-Untuk pertama kalinya, Kael tidak hanya memakai kekuatannya untuk menghancurkan atau melindungi.
+Maka Kael tidak perlu memotong.
 
-Dia memakainya untuk mengembalikan kebebasan seseorang.
+Dia perlu membuat kedua sisi berhenti mengenali satu sama lain.
+
+Kael meletakkan tangan pada dada Rowan.
+
+Pria itu menegang.
+
+"Kalau ini jebakan—"
+
+"Aku sedang menyelamatkanmu. Jangan rusak suasananya."
+
+Kael meniru ritme benang menggunakan Void di lengan kiri.
+
+Lalu perlahan menggeser fase.
+
+Sakit langsung muncul di dadanya sendiri.
+
+Jaringan Arsitek mencoba menganggap Kael sebagai pengganti simpul.
+
+"Kael!" Zireth melihat datanya melonjak.
+
+"Aku tahu."
+
+Dia terus menggeser.
+
+Benang Rowan mulai transparan.
+
+Satu denyut lagi.
+
+Putus.
+
+Tidak ada ledakan.
+
+Rowan hanya menarik napas tajam seperti seseorang yang baru muncul ke permukaan setelah terlalu lama tenggelam.
+
+Pada saat yang sama, seluruh rune di Kuil Pengorbanan padam.
+
+Kael jatuh berlutut.
+
+Di lengan kirinya, peta jaringan menyala jauh lebih terang.
+
+Satu simpul hilang.
+
+Ribuan lainnya menyadari kehilangan itu.
+
+Dan dari tempat yang sangat jauh, Kael merasakan perhatian Sang Arsitek beralih sepenuhnya kepadanya.

@@ -1,63 +1,125 @@
 # Episode 054 — Penjaga Kristal
 
-“Penyusup akan dimurnikan.”
+Gravitasi kembali normal tanpa peringatan.
 
-Para Penjaga Kristal melesat dari udara. Gerakan mereka senyap dan cepat, seperti tarian yang telah diulang selama ribuan tahun.
+Kael jatuh dari dinding dan menghantam lantai dengan bahu lebih dulu.
 
-Pedang cahaya menyapu ke arah Kael. Dia menangkis dengan Zerath's Fang, menghasilkan percikan putih yang memenuhi aula.
+Salah satu Penjaga Kristal sudah berada di atasnya.
 
-Sylvara menghindari proyektil energi dan membalas dengan panah rune. Anak panahnya menembus sebagian tubuh penjaga, tetapi cahaya di sekeliling luka segera menyatu kembali.
+Pedang cahaya terbentuk dari telapak tangannya.
 
-“Mereka bukan mesin dan bukan sihir biasa,” kata Zireth sambil membangun perisai. “Tubuhnya adalah Aether yang dipadatkan.”
+Kael berguling. Bilah itu menembus lantai hitam tanpa meninggalkan retakan—material di sekitarnya justru memudar, seperti sebagian kecil dunia telah dihapus.
 
-“Bagaimana cara menghancurkannya?” Kael menahan tebasan lain.
+"Jangan kena senjatanya!" teriak Zireth.
 
-Sinar putih ditembakkan langsung ke dadanya. Kael membentuk perisai api merah-biru, tetapi energi Celestial menembus lapisannya sedikit demi sedikit.
+"Nasihat yang luar biasa!"
 
-“Energinya menetralkan api.”
+Sylvara menembakkan tiga panah berturut-turut. Penjaga memutar tubuh. Dua anak panah dibelokkan bidang cahaya; yang ketiga menembus sambungan bahu dan memecahkan satu lapisan kristal.
 
-“Aether murni berlawanan dengan kekacauan Fragmenmu,” jawab Zireth. “Gunakan Void pada lengan kiri.”
+Tidak ada darah.
 
-Kael ragu.
+Hanya nada tinggi yang membuat gigi Kael ngilu.
 
-Setiap penggunaan energi itu memperdalam retakan pada tubuhnya. Namun sinar di depannya hampir menembus pertahanan.
+Kael menyerang dari samping.
 
-Dia mengangkat lengan kiri dan melepaskan ledakan ungu kecil.
+Zerath's Fang menghantam pedang cahaya. Getarannya menjalar ke tulang lengan, tetapi kali ini Kael tidak mencoba mengalahkan tenaga lawan.
 
-Energi Void menghantam Penjaga Kristal.
+Dia mendengarkan.
 
-Makhluk itu menjerit seperti kaca yang retak. Cahaya tubuhnya berkedip, lalu pecah menjadi debu kristal.
+Penjaga itu tersusun dari banyak lapisan energi yang bergerak pada irama berbeda. Kristal luar. Cahaya inti. Medan gravitasi. Semua sinkron seperti bagian sebuah alat musik yang terlalu sempurna.
 
-“Energi korup. Sistem gagal.”
+Kael mengubah sudut bilah.
 
-Sylvara menoleh. “Berhasil.”
+Benturan kedua sengaja dibuat sedikit terlambat.
 
-Rasa sakit menyengat lengan Kael. Dia menahan napas dan memandang penjaga lain yang mulai bergerak lebih agresif.
+Nada Penjaga berubah.
 
-“Void adalah kelemahan mereka.”
+Gerakannya tersendat.
 
-“Benar,” kata Zireth. “Tapi tubuhmu juga membayar setiap serangan.”
+Kael menghantam lagi pada interval yang sama.
 
-“Aku tahu. Buka celah saja.”
+Retakan tipis muncul di dada kristal.
 
-Mereka mengubah pola bertarung.
+"Dia mengacaukan sinkronisasinya," kata Zireth.
 
-Sylvara memakai panah pengikat untuk menahan gerakan. Zireth mengganggu struktur Aether dengan gelombang sonik. Ketika satu penjaga kehilangan keseimbangan, Kael menghancurkannya memakai ledakan Void yang kecil dan terarah.
+Kael tidak punya waktu menjawab.
 
-Satu demi satu, tubuh cahaya pecah.
+Tiga Penjaga lain mengangkat tangan bersamaan.
 
-Setelah penjaga terakhir lenyap, aula kembali sunyi. Kael berdiri dengan napas berat, sementara rasa dingin menjalar dari lengan kiri sampai bahu.
+Gravitasi berubah lagi.
 
-“Pertahanan yang berlebihan untuk reruntuhan kosong,” ujar Sylvara.
+Kali ini Kael sudah menunggu. Dia menancapkan Zerath's Fang ke lantai dan memegang gagangnya. Sylvara mengaitkan tali busur ke salah satu cincin platform. Zireth mengunci kaki mekanisnya.
 
-“Mungkin tempat ini tidak kosong.” Zireth kembali mendekati Orrey. “Mekanisme tersebut membutuhkan masukan energi khusus untuk membuka fungsi penuh. Simbolnya mengarah pada resonansi Fragmen atau energi Celestial asli.”
+Mereka tidak terlempar.
 
-Kael berdiri di depan bola kristal.
+Penjaga di depan Kael berhenti.
 
-Lengan kirinya masih sakit, tetapi rune ungu di kulit berdenyut menuju cahaya Orrey seolah ingin menyentuhnya.
+Mata merahnya kembali putih sesaat.
 
-“Apa yang terjadi jika aku mengaktifkannya?”
+Nada baru terdengar.
 
-Tak seorang pun dapat menjawab.
+*Adaptasi terdeteksi.*
 
-Kael mengulurkan tangan ke arah bola kristal yang memancarkan peta bintang.
+Lalu:
+
+*Uji kedua dimulai.*
+
+"Uji?" Kael membeku.
+
+Serangan berhenti.
+
+Keempat Penjaga mundur dan membentuk lingkaran di sekeliling bola kristal.
+
+Peta bintang padam. Sebagai gantinya, tiga sosok cahaya muncul di udara.
+
+Sosok pertama menyerupai Kael, tetapi seluruh tubuhnya terbakar.
+
+Sosok kedua berupa manusia berzirah putih dengan mahkota cahaya.
+
+Sosok ketiga hanya bayangan hitam tanpa wajah.
+
+*Pilih sumber ancaman.*
+
+Kael menatap ketiganya.
+
+Dia hampir tertawa karena marah.
+
+"Kalian ingin tahu siapa yang paling berbahaya?"
+
+Tidak ada jawaban.
+
+Kael menunjuk dirinya sendiri.
+
+"Yang pertama bisa jadi aku. Yang kedua bisa jadi pahlawan. Yang ketiga bisa jadi Void. Kalian memberi bentuk tanpa konteks."
+
+Nada Penjaga bergetar.
+
+*Pilih.*
+
+"Tidak."
+
+Sylvara menatapnya. Zireth juga.
+
+Kael melangkah ke tengah proyeksi.
+
+"Kalau sistem kalian cuma bisa menentukan benar dan salah dari bentuk energi, berarti sistem kalian yang rusak."
+
+Rune ungu pada lengan kirinya menyala. Api merah-biru di dadanya ikut menjawab.
+
+Tiga proyeksi mendadak saling tumpang tindih.
+
+Kemudian pecah.
+
+Seluruh Penjaga Kristal menurunkan senjata.
+
+Untuk pertama kalinya, suara yang muncul tidak terdengar seperti perintah.
+
+*Variabel keempat dikonfirmasi.*
+
+Pintu di sisi utara aula terbuka.
+
+Di baliknya, sebuah jalur cahaya menanjak menuju bagian reruntuhan yang lebih tinggi.
+
+Kael tidak merasa telah menang.
+
+Dia merasa baru saja dikenali oleh sesuatu yang telah menunggu sangat lama.

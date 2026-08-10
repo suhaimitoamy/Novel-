@@ -1,53 +1,105 @@
 # Episode 066 — Pengkhianat Sejati
 
-Energi Void Rowan menekan perisai keemasan. Retakan tipis muncul pada cahaya pelindung.
+Rowan menghentikan pertarungannya dengan Zevaron.
 
-Dari sisi lain, Zevaron menghantam dengan angin dan petir tanpa memberi jeda.
+Bukan karena kehabisan tenaga.
 
-“Minggir, Malaikat tua. Fragmen itu akan menjadi milikku.”
+Karena Hati Lykaros baru saja menjawab Kael.
 
-Penjaga Celestial menahan dua serangan sekaligus. Cahayanya mulai meredup, sementara Inti di belakangnya berputar semakin liar.
+"Jauhkan tanganmu dari altar."
 
-Jika Fragmen tersebut pecah atau terkorupsi, dampaknya tidak akan berhenti di kuil.
+Kael hampir tersenyum meski seluruh tubuhnya gemetar. "Jadi ini yang sebenarnya kau takutkan. Bukan aku menjadi lebih kuat. Aku memahami cara kerjanya."
 
-“Rowan, hentikan!” Kael berteriak. “Apa yang sebenarnya kau inginkan?”
+Rowan mengangkat tongkat.
 
-Rowan menoleh sedikit tanpa mengurangi tekanan tongkatnya.
+Zevaron menembakkan petir dari samping. Rowan menangkis, tetapi serangan itu memaksanya mundur.
 
-“Keseimbangan baru untuk Zerath.”
+"Kita belum selesai," geram Zevaron.
 
-Senyumnya tenang, terlalu tenang untuk seseorang yang sedang menghancurkan peninggalan suci.
+"Kita tidak pernah memulai sesuatu yang penting."
 
-“Sang Arsitek tidak membutuhkan Fragmen Celestial dalam keadaan utuh. Dia membutuhkan energi yang dilepaskan saat benda itu pecah.”
+Kalimat itu menghantam harga diri Zevaron lebih keras daripada serangan.
 
-Kael membeku sesaat.
+Rowan menatap Kael kembali.
 
-“Ledakannya akan menghasilkan gelombang kejut dimensi,” lanjut Rowan. “Cukup kuat untuk merobek segel Gerbang Es dan membebaskan Nyanyian Kehampaan ke seluruh Zerath.”
+"Sang Arsitek tidak membutuhkan Hati ini utuh. Ia membutuhkan celah yang dihasilkan ketika satu penyangga gagal."
 
-“Jadi pengorbanan yang kau maksud adalah Fragmen ini?”
+Nama itu membuat udara seolah lebih dingin.
 
-“Sebagian.” Tatapan Rowan beralih kepada Kael. “Kau adalah bagian berikutnya.”
+Agen Nexus akhirnya bergerak mendekat. "Konfirmasi identitas pengendali luar. Arsitek terlibat."
 
-Energi Void pada tongkat meningkat.
+"Kau tahu dia?" tanya Kael.
 
-“Resonansi unikmu mampu menyatukan Fragmen dan kehampaan. Saat Inti ini hancur, tubuhmu akan menjadi penyalur sempurna untuk menyebarkan gelombangnya ke seluruh dunia.”
+"Nexus mengenal jejaknya. Bukan bentuknya."
 
-Penjaga Celestial mendengar rencana tersebut. Cahaya di keenam sayapnya menyala semakin terang.
+Rowan tertawa. "Karena kalian hanya melihat bekas kaki setelah rumah terbakar."
 
-“Tidak akan kubiarkan Hati Lykaros dan Zerath dihancurkan.”
+Seraphis mengeluarkan suara tajam.
 
-Dia mulai mengumpulkan seluruh sisa Aether. Energi yang muncul terlalu besar untuk sekadar serangan biasa.
+*Retakan inti meningkat.*
 
-Penjaga itu berniat mengorbankan diri.
+Kael kembali fokus pada nada dasar Hati Lykaros.
 
-Zevaron ikut memahami bahwa kehancuran Inti akan merampas kekuatan yang diinginkannya dan mungkin membunuh semua orang di aula.
+Satu denyut.
 
-Serangannya melambat.
+Dia membalas dengan frekuensi yang sama.
 
-“Membuka Gerbang Es sepenuhnya?” Dia menatap Rowan. “Kau sudah gila.”
+Hati berhenti bergetar sesaat.
 
-“Bukan kegilaan. Evolusi.”
+Namun setiap kali Rowan dan Zevaron bertarung, ketidakstabilannya kembali naik.
 
-Perisai Penjaga hampir runtuh. Cahaya bunuh dirinya terus membesar. Rowan menunggu ledakan yang dia butuhkan, sedangkan Zevaron ragu antara keserakahan dan keselamatan sendiri.
+"Berhenti berkelahi!" bentak Kael.
 
-Kael hanya memiliki beberapa detik sebelum salah satu dari mereka memicu bencana.
+Zevaron menoleh. "Dia menipuku."
+
+"Dan kau mau membalas dengan melakukan persis yang dia butuhkan?"
+
+Zevaron mengepalkan tangan.
+
+Petir di sekelilingnya meredup sedikit.
+
+Rowan memanfaatkan momen itu.
+
+Dia melempar sesuatu ke arah altar.
+
+Bukan serangan.
+
+Sebuah pecahan kecil berwarna hitam.
+
+Kael mengenali pola spiral retak pada permukaannya.
+
+Vorthax.
+
+Dia menghantam pecahan itu di udara dengan Zerath's Fang.
+
+Benda tersebut pecah menjadi debu.
+
+Namun debu itu tidak jatuh.
+
+Ia menyebar seperti serbuk besi tertarik magnet dan menempel pada jaringan rune di lantai.
+
+Seraphis menegang.
+
+*Kode pengkhianat dikenali.*
+
+Kael menoleh kepada Sylvara.
+
+Wajah gadis Elf itu memucat.
+
+"Lambang keluargaku..."
+
+Rowan memandangnya sambil tersenyum tipis.
+
+"Bukan keluargamu yang mengkhianati Lykaros, Sylvara. Mereka hanya mewarisi nama dari orang-orang yang mencoba menghentikannya. Sejarah sangat mudah dibalik jika pemenangnya cukup sabar."
+
+Sylvara membeku.
+
+Kael ingin bertanya.
+
+Tidak ada waktu.
+
+Jaringan rune berubah arah.
+
+Hati Lykaros berdenyut terlalu keras.
+
+Retakan pertama muncul di permukaannya.

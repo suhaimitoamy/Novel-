@@ -1,63 +1,91 @@
 # Episode 079 — Mencari Mata Kesembilan
 
-Beberapa hari kemudian, mereka memasuki hutan tua di wilayah Sylphara.
+"Jangan."
 
-Batang pohon meliuk seperti tubuh penari. Cahaya Fae bergerak di antara daun, sementara udara dipenuhi lapisan realitas yang bertumpuk tipis.
+Sylvara mengatakan itu sebelum Kael menyentuh gagang belati.
 
-“Legenda Elf mengatakan Nyara melindungi tempat tinggalnya dengan ilusi dan teka-teki alam,” kata Sylvara. “Jangan percaya pada arah yang terlihat.”
+Mereka berdiri di tepi kolam kecil berair bening. Kael bermaksud membuka kulit di sekitar rune kedelapan, mencari apakah simbol itu hanya permukaan.
 
-Pemindai Zireth menampilkan data yang saling menimpa. “Ruang di sini berlapis. Beberapa versi tempat yang sama mungkin berada sangat dekat.”
+"Kalau sesuatu tumbuh dari dalam, memotong kulit tidak menyelesaikannya," lanjut Sylvara.
 
-Lengan kiri Kael berdengung. “Batas mimpi dan kenyataan memang tipis.”
+"Bisa memberi Zireth sampel."
 
-Jalan setapak berubah setiap kali mereka kehilangan fokus. Mereka melewati air terjun yang mengalir ke atas, pohon yang berbisik dalam bahasa lama, dan hewan kecil bermata seperti bintang.
+"Bisa juga membuka apa pun yang sedang berusaha terbuka."
 
-Tempat itu terasa damai, tetapi kedamaian tersebut terus mengarahkan mereka menjauh dari tujuan.
+Zireth, untuk sekali ini, setuju dengannya.
 
-Akhirnya, mereka tiba di depan gerbang batu berbentuk lingkaran. Kabut perak memenuhi bagian tengahnya.
+Kael menyimpan belati.
 
-Zireth memeriksa sekeliling. “Tidak ada jalan lain.”
+Mereka mengikuti petunjuk dari mimpi Nyara: bukan mencari bangunan, melainkan tempat di mana delapan pantulan bertemu tetapi bayangan kesembilan tidak terlihat.
 
-Sylvara menyentuh ukiran pada batu. Sembilan simbol mata mengelilingi lengkungan.
+Petunjuk itu terdengar seperti teka-teki Fae karena memang begitu.
 
-“Ujian Nyara. Konon dia hanya menemui orang yang mampu melihat tanpa mata.”
+Tiga jam kemudian Kael ingin membakar seluruh hutan.
 
-Kael menutup matanya.
+Setiap kolam memantulkan jumlah pohon berbeda. Setiap jalan bercabang kembali ke tempat semula. Kompas Garn berputar seperti mabuk.
 
-Dia berhenti mencari pintu dan merasakan aliran energi gerbang. Polanya tidak mengancam. Ia seperti pertanyaan yang tidak disusun dalam kata.
+Akhirnya Sylvara berhenti.
 
-Keseimbangan tertentu tersembunyi di antara sembilan simbol.
+"Kita mencari dengan mata. Itu mungkin kesalahannya."
 
-Kael membuka mata.
+Kael menatapnya.
 
-Tangan kanannya menyentuh mata ketiga. Lengan kirinya menyentuh mata ketujuh.
+"Mata Kesembilan. Tentu saja. Sangat lucu."
 
-Rune pada seluruh gerbang menyala.
+Mereka menutup mata.
 
-Kabut perak menipis dan memperlihatkan jalan bercahaya di baliknya.
+Kael mendengarkan.
 
-“Bagaimana kau memilihnya?” tanya Zireth.
+Ada delapan suara air di sekeliling mereka.
 
-“Aku merasakan dua titik yang saling menyeimbangkan.”
+Delapan aliran kecil yang tidak pernah mereka lihat.
 
-Mereka melewati gerbang.
+Di tengah semua itu ada satu tempat tanpa gema.
 
-Taman tersembunyi terbentang di depan. Bunga-bunga bercahaya tumbuh di antara rumput, dan aroma lembut membuat napas terasa ringan.
+Kael berjalan ke arah keheningan.
 
-Di bawah pohon willow berdaun perak, seorang wanita tua duduk dengan punggung tegak. Kain sutra putih menutup kedua matanya.
+Setelah dua puluh langkah, tanah menghilang dari bawah kakinya.
 
-“Tiga jiwa berjalan di antara gema masa lalu dan retakan masa depan,” katanya langsung ke dalam pikiran mereka. “Akhirnya kalian datang.”
+Dia jatuh—lalu mendarat di rumput lembut.
 
-Sylvara menundukkan kepala. “Anda Nyara of the Nine Eyes?”
+Ketika membuka mata, hutan sudah berubah.
 
-Wanita tua itu tersenyum.
+Malam.
 
-“Nama hanyalah gema. Namun ya, akulah yang kalian cari.”
+Bintang memenuhi langit meski tadi masih siang.
 
-Wajahnya mengarah tepat kepada Kael.
+Delapan kolam mengelilingi mereka seperti cermin bundar.
 
-“Terutama kau, Pewaris Luka. Pemilih Jalan Keempat.”
+Di pusat lingkaran berdiri kursi batu kosong.
 
-Senyumnya memudar.
+Tidak ada kolam kesembilan.
 
-“Dan mungkin kunci pengorbanan terakhir Zerath.”
+Kael mendekat.
+
+Bulu Seraphis menyala.
+
+Simbol delapan garis pada lengan Kael ikut menyala.
+
+Kemudian bayangan kursi batu bergerak sendiri.
+
+Bayangan itu membuka mata.
+
+"Kau lama sekali," kata suara Nyara.
+
+Kael menatap kursi kosong.
+
+"Kau di mana?"
+
+"Pertanyaan itu masih salah."
+
+Bayangan tersenyum meski tidak punya wajah.
+
+"Aku berada di delapan tempat yang mati dan satu kemungkinan yang belum terjadi. Kalau ingin bertemu Mata Kesembilan, kau harus masuk ke kemungkinan itu."
+
+Kolam-kolam di sekeliling mereka mulai menunjukkan delapan versi masa depan.
+
+Dalam semuanya, Kael melihat dirinya sendiri.
+
+Dalam tujuh, dia mati.
+
+Dalam satu, Zerath yang mati lebih dulu.

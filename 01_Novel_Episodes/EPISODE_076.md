@@ -1,55 +1,93 @@
 # Episode 076 — Benih Kekacauan
 
-Hutan semakin rapat ketika mereka mendekati wilayah Sylphara. Udara dipenuhi lapisan sihir Fae dan bisikan yang tidak memiliki sumber.
+Sylphara tidak menyambut mereka dengan gerbang.
 
-Zireth berhenti sambil memeriksa datapad. Sisa teknologi Nexus pada gelang Kael memberinya sambungan singkat ke jaringan informasi bawah tanah.
+Hutan hanya berubah sedikit demi sedikit sampai Kael sadar aturan tempat itu tidak sama dengan wilayah yang baru mereka tinggalkan.
 
-“Ada laporan baru dari berbagai wilayah.”
+Bayangan jatuh ke arah yang salah.
 
-“Apa yang terjadi?” tanya Kael.
+Embun naik dari daun menuju udara.
 
-Zireth menampilkan ringkasan data.
+Sesekali Kael melihat jejak kaki mereka sendiri di depan, seolah mereka sudah melewati jalan yang belum ditempuh.
 
-“Forge tua di Karag Thürm berubah terlalu panas atau membeku tanpa sebab. Pasang laut Nyrathis bergerak tidak wajar dan membawa makhluk palung ke permukaan. Memory Trees Aelarion menampilkan masa lalu yang saling bertentangan.”
+Zireth menatap datapad. "Aku dapat sinyal dari jaringan dagang bawah tanah."
 
-Sylvara mengerutkan kening. “Semua setelah gangguan Gerbang Es, Urdron, dan Inti Cahaya?”
+"Di sini?"
 
-“Tepat. Energi Void dan Celestial yang terlepas mulai mengacaukan keseimbangan Leyline di seluruh Zerath.”
+"Sangat lemah. Tapi cukup untuk berita buruk."
 
-Kael menatap hutan di depan.
+Kael menghela napas. "Silakan."
 
-Benih kekacauan telah tersebar sebelum mereka memahami cara mencabutnya.
+Kabar datang terpotong-potong.
 
-Menjelang sore, mereka tiba di desa kecil di tepi wilayah Fae. Tidak ada suara pekerjaan, anak-anak, atau hewan.
+Aktivitas Fragmen meningkat di tiga kekaisaran.
 
-Penduduk berkumpul di alun-alun. Mereka duduk atau berdiri tanpa bergerak, menatap satu titik dengan ketakutan membeku di wajah.
+Kapal Nyrathis hilang setelah laut memancarkan cahaya ungu.
 
-“Mimpi itu datang lagi,” gumam seorang pria.
+Drakonar menutup dua perbatasan.
 
-“Bayangan tanpa wajah terus berbisik,” kata wanita di dekatnya.
+Arcanum Wardens mengeluarkan perintah baru: semua anomali resonansi harus dilaporkan.
 
-“Mimpi buruk massal?” Sylvara mendekati salah satu penduduk.
+Dan di wilayah yang jauh, orang-orang mulai bermimpi tentang langit yang terbelah.
 
-Zireth menunjuk pusat alun-alun. “Ada sumber eksternal.”
+Sylvara memandang hutan. "Setelah Aethelgard?"
 
-Retakan kecil terbuka di antara batu jalan. Kabut ungu kehitaman merembes dari dalamnya.
+"Waktunya cocok," kata Zireth.
 
-“Retakan Void,” kata Kael. Energinya dingin dan terasa akrab. “Ini sama seperti—”
+Kael merasa tidak nyaman.
 
-“Seperti mimpi terburukmu?”
+Hati Lykaros tidak pecah. Gerbang Es sudah ditutup. Namun dunia tetap bereaksi seperti sesuatu telah dilempar ke dalam danau tenang.
 
-Suara perempuan memotong ucapannya.
+"Benih kekacauan," gumamnya.
 
-Sosok wanita muncul dari kabut. Wajahnya indah tetapi pucat seperti mayat. Kedua mata hitam tanpa pupil, sementara gaunnya tersusun dari asap yang terus bergerak.
+"Apa?"
 
-Dia tersenyum kepada Kael.
+"Rowan tidak harus memenangkan satu pertarungan. Cukup membuat semua pihak bereaksi terlalu keras."
 
-“Akhirnya kau datang, Pewaris Luka.”
+Malam datang cepat di Sylphara.
 
-Sylvara mengarahkan panah. “Siapa kau?”
+Mereka mendirikan kemah di lingkaran pohon berkulit putih. Kael memasang perisai resonansi sederhana agar lengan kirinya tidak mengirim sinyal tanpa sengaja.
 
-Tawa wanita itu terdengar seperti kaca pecah.
+Saat api mulai kecil, dia mendengar anak tertawa di antara pepohonan.
 
-“Aku hanya Gema dari Nyxaria the Whisper.” Kabut menebal di sekelilingnya. “Atau mimpi buruk pertama yang akan kalian hadapi dengan mata terbuka.”
+Sylvara langsung bangun.
 
-Penduduk desa tetap membeku dalam ketakutan saat Gema Nyxaria berdiri di antara mereka dan jalan menuju Hutan Mimpi Buruk.
+"Kau dengar?"
+
+Kael mengangguk.
+
+Zireth tidak.
+
+Suara itu datang lagi.
+
+Kali ini dari belakang Kael.
+
+Dia berbalik.
+
+Anak perempuan bergaun mata berdiri di luar lingkaran cahaya api.
+
+"Nyara?"
+
+Anak itu menggeleng.
+
+"Bukan."
+
+Suaranya terlalu dalam untuk tubuh sekecil itu.
+
+"Aku mimpi yang ditinggalkan Nyara agar kau mengikuti jalan benar."
+
+"Ke Mata Kesembilan?"
+
+Anak itu tersenyum.
+
+"Kalau kau masih mengira Mata Kesembilan adalah tempat, kau belum siap menemukannya."
+
+Api unggun padam.
+
+Ketika Zireth menyalakannya kembali, anak itu sudah hilang.
+
+Namun di tanah tempat dia berdiri tumbuh satu bunga hitam.
+
+Kelopaknya membuka perlahan.
+
+Di tengahnya terdapat simbol spiral retak Vorthax.

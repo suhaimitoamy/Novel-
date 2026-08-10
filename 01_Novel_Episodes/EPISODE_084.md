@@ -1,57 +1,109 @@
 # Episode 084 — Pertahanan Terakhir Nyara
 
-Jauh di belakang mereka, sanctuary Nyara tidak lagi damai.
+Nyara mulai menghilang dari kaki.
 
-Kabut Void memenuhi taman. Daun-daun perak pada pohon willow raksasa layu dan jatuh seperti air mata beku.
+Kael menyadarinya setelah semuanya tenang.
 
-Nyara duduk bersila di bawahnya. Darah hitam membasahi kain penutup mata.
+"Apa yang terjadi?"
 
-*Dia datang.*
+"Delapan simpul pengamatan kehilangan terlalu banyak energi."
 
-Kesadaran Arsitek menekan lapisan ilusi, mencari sisa penglihatan tentang Kael.
+"Bisa dipulihkan?"
 
-Kabut menggumpal menjadi puluhan sosok tanpa wajah. Bentuk mereka menyerupai Gema Nyxaria, tetapi jauh lebih agresif.
+"Tidak dengan cara yang relevan bagimu."
+
+Kael membenci jawaban itu.
+
+Lingkaran hutan di sekitar mereka mulai bergetar. Sang Arsitek memang telah diputus, tetapi serangannya meninggalkan lubang pada pertahanan Mata Kesembilan.
+
+Dari celah di antara kolam, bayangan-bayangan tipis merayap masuk.
+
+Bukan makhluk.
+
+Kemungkinan yang ditolak.
+
+Kael melihat versi dirinya tanpa wajah. Sylvara dengan mata kosong. Zireth yang seluruh tubuhnya telah menjadi mesin.
 
 Nyara mengangkat tangan.
 
-Sembilan mata astral muncul di sekelilingnya dan memancarkan cahaya lembut.
+"Jangan lawan mereka. Mereka tidak hidup."
 
-“Tempat ini adalah simpul gema waktu. Kau tidak akan mengambilnya.”
+"Mereka bisa menyentuh?"
 
-Cahaya menghantam bayangan. Beberapa lenyap, tetapi kabut terus melahirkan pengganti.
+Salah satu bayangan mencakar batu dan meninggalkan goresan.
 
-Arsitek belum menyerang dengan seluruh kekuatan. Dia menguji pertahanan dan mencari celah melalui koneksi yang sempat terbentuk antara Nyara dan Kael.
+"Cukup hidup untuk menjadi masalah."
 
-Salah satu mata astral retak.
+Nyara hampir tersenyum.
 
-Nyara tersentak. Rasa sakit menembus pikirannya.
+Kael, Sylvara, dan Zireth berdiri membentuk lingkaran.
 
-“Dia menemukannya.”
+Mereka tidak menyerang bayangan satu per satu.
 
-Bayangan terbesar muncul dari kabut. Tubuhnya tersusun dari pola geometris yang terus berubah.
+Kael mencari frekuensi ruang yang membuat kemungkinan-kemungkinan itu bisa bertahan.
 
-Tangan hitam terulur.
+Sylvara menembakkan panah pada titik-titik tempat pantulan kolam bertemu.
 
-*Informasi. Gema kemungkinan. Masa depan Kael Drayven. Serahkan.*
+Zireth mengatur pulsa sonik agar delapan kolam bergetar sinkron.
 
-Nyara tersenyum meski napasnya melemah.
+Nyara menjadi pusatnya.
 
-“Masa depan tidak pernah dipahat pada batu. Yang ada hanya pilihan.”
+"Lebih cepat," katanya.
 
-Dia tidak menyerang balik.
+Bayangan semakin banyak.
 
-Seluruh energi yang tersisa dilepaskan sebagai gelombang ketenangan. Cahaya damai menyapu taman dan mengganggu bentuk-bentuk Void yang dibangun dari ketakutan serta paksaan.
+Kael menemukan nada dasar.
 
-Satu demi satu bayangan memudar. Kabut menipis hingga pola Arsitek ikut menghilang.
+Dia mengirim resonansi.
 
-Namun harga pertahanan itu terlalu besar.
+Seluruh ruang bergetar.
 
-Delapan mata astral yang tersisa padam. Pohon willow melepaskan daun terakhirnya dan menjadi kerangka kayu sunyi.
+Kemungkinan-kemungkinan palsu mulai transparan.
 
-Nyara jatuh bersandar pada batang.
+Namun celah utama tetap terbuka.
 
-“Pergilah, Kael.” Suaranya tinggal bisikan. “Temukan Jalan Keempatmu.”
+Nyara menatapnya.
 
-Kegelapan menelan kesadarannya.
+Kael tahu sebelum dia bicara.
 
-Sanctuary bertahan untuk sementara, tetapi peramal legendaris itu tidak lagi memiliki kekuatan untuk menghadapi serangan berikutnya.
+"Tidak."
+
+"Ini bukan pengorbanan."
+
+"Semua orang mengatakan itu sebelum menghilang."
+
+"Aku sudah menghilang ratusan tahun lalu, Kael. Yang kau lihat hanyalah tugas yang menolak selesai."
+
+Nyara menempatkan kedua tangan di atas kolam kesembilan.
+
+"Aku tidak mati sekarang. Aku berhenti menunda sesuatu yang sudah terjadi."
+
+Cahaya dari delapan kolam masuk ke tubuhnya.
+
+Kael ingin menghentikan.
+
+Dia tidak melakukannya.
+
+Karena kali ini keputusan memang milik Nyara.
+
+Itulah perbedaannya.
+
+Nyara memandangnya untuk terakhir kali.
+
+"Jangan selamatkan orang dengan mencuri hak mereka untuk memilih."
+
+Tubuhnya berubah menjadi cahaya.
+
+Celah tertutup.
+
+Bayangan lenyap.
+
+Delapan kolam menjadi gelap.
+
+Hanya kolam kesembilan yang tersisa.
+
+Di permukaannya muncul satu koordinat.
+
+Benteng Vorthax.
+
+Jantung Kegelapan.

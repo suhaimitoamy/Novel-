@@ -1,57 +1,107 @@
 # Episode 073 — Nexus Command
 
-Getaran terus mengguncang Puncak Beku. Retakan baru menjalar di sekitar kaki mereka.
+Void Wyvern mendarat di dataran tinggi yang cukup jauh dari Aethelgard untuk tidak tertelan longsoran.
 
-Sosok Berhelm membaca data pada zirahnya, lalu menurunkan tombak.
+Agen Nexus turun lebih dulu.
 
-“Aktivitas dari bawah tidak sesuai skenario Nexus. Ekstraksi ditunda.”
+Kael tidak.
 
-“Apa yang bangun di sana?” tanya Kael.
+"Kita belum selesai bicara."
 
-“Kemungkinan dipicu ledakan Inti Cahaya.” Helm hitam itu mengarah kepadanya. “Nexus Command memantau ancaman terhadap keseimbangan multiverse: Fragmen Zerath, Void, entitas primordial, dan anomali sepertimu.”
+"Benar," jawab Agen itu. "Protokol penahanan masih aktif."
 
-Zireth menatapnya. “Multiverse. Jadi kalian benar-benar penjaga dari luar dunia ini.”
+Sylvara mengangkat busur. Zireth mendesah panjang.
 
-“Kami tidak berpihak pada Cahaya atau Kegelapan. Kami menjaga struktur dasar realitas dan baru turun tangan ketika satu kekuatan mengancam banyak dunia.”
+"Kita baru menyelamatkan kuil bersama."
 
-Dia kembali memindai Kael.
+"Kerja sama lokal tidak menghapus risiko sistemik."
 
-“Fragmen dalam tubuhmu mampu beresonansi dengan Void tanpa langsung menghancurkan wadah. Itu membuatmu berbahaya.”
+Kael turun dari Wyvern.
 
-Sosok Berhelm berhenti sejenak.
+"Siapa Nexus Command?"
 
-“Dan mungkin berguna.”
+Agen itu diam.
 
-“Untuk apa?” tanya Sylvara.
+Kael mengangkat bulu kristal Seraphis. "Nyara bilang jangan percaya kalian ketika kalian bicara tentang keseimbangan. Echo Vessel memakai data Zireth. Kalian tahu Arsitek. Dan sekarang kau membawaku naik mesin Void seolah semua itu hal biasa. Jadi pilih: jawab, atau kita mulai bertarung lagi."
 
-“Sebagai penyeimbang aktif. Atau senjata terakhir jika struktur tidak dapat diperbaiki.”
+Helm hitam menatapnya lama.
 
-Gunung bergetar lebih keras. Bagian puncak mulai melesak ke dalam.
+Akhirnya permukaan wajahnya terbuka beberapa sentimeter.
 
-“Kita pergi sekarang,” kata Sosok Berhelm. “Apa pun yang berada di bawah sana sedang naik.”
+Bukan cukup untuk menunjukkan seluruh wajah—hanya mata abu-abu yang sangat manusia.
 
-“Kau akan membantu?”
+"Nexus dibentuk setelah perang dimensi pertama Lykaros," katanya. "Tujuannya menjaga agar retakan antarrealitas tidak berkembang menjadi peristiwa pemusnahan."
 
-“Untuk saat ini, keselamatanmu sejalan dengan kepentingan Nexus. Data tentang potensimu tidak berguna jika kau mati di sini.”
+"Dengan menyalin orang?"
 
-Void Wyvern merendahkan tubuh.
+"Dengan mengamati variabel yang tidak dapat diprediksi."
 
-“Naik.”
+"Namaku Kael. Bukan variabel."
 
-Kael, Sylvara, dan Zireth bertukar pandang, lalu menaiki punggung konstruksi tersebut bersama pemiliknya.
+Agen itu menutup helm kembali.
 
-Wyvern terbang menjauh ketika Puncak Aethelgard mulai runtuh ke dalam. Dari ketinggian, mereka melihat kawah besar terbentuk di pusat gunung.
+"Nexus telah kehilangan banyak prinsip sejak didirikan. Aku tidak menyangkalnya."
 
-Cahaya merah membara muncul dari kedalaman.
+Jawaban itu justru membuat Kael berhenti.
 
-“Apa yang dipenjara di sana?” tanya Sylvara.
+Dia mengira akan mendapat pembenaran.
 
-Zireth mengingat arsip Karag Thürm. “Legenda Dwarf menyebut inti Gunung Gromdar sebagai makam atau penjara salah satu Forge God sebelum Zhorak.”
+"Kau tidak setuju dengan mereka?"
 
-“Volundr?”
+"Persetujuan bukan syarat untuk menjalankan perintah."
 
-Kael merasakan panas dari kawah. Energinya mengingatkan pada Urdron dan Jantung Mekanis Thürdrak.
+"Itu jawaban pengecut."
 
-“Forge God sedang bangkit.”
+Agen itu menerima kalimat tersebut tanpa reaksi.
 
-Di bawah mereka, siluet logam raksasa mulai terbentuk di dalam cahaya merah.
+Getaran dari Aethelgard kembali datang. Tanah di bawah kaki mereka retak sedikit.
+
+Agen Nexus melihat sensor pada tombaknya.
+
+"Aktivitas Primordial Earth Core meningkat. Penahananmu ditunda."
+
+"Baik sekali."
+
+"Jangan anggap itu kebebasan."
+
+"Aku juga tidak meminta izin."
+
+Kael hendak pergi ketika Agen itu memanggilnya.
+
+"Kael."
+
+Pertama kalinya tanpa kata *subjek* atau *anomali*.
+
+Kael menoleh.
+
+"Arsitek tidak mencoba menghancurkan Zerath secara langsung. Ia sedang membuat dunia mengambil keputusan yang salah sampai struktur realitas merusak dirinya sendiri."
+
+"Kenapa memberitahuku?"
+
+"Karena di Aethelgard kau melakukan sesuatu yang tidak ada dalam simulasi Nexus."
+
+Agen itu menunjuk lengan kiri Kael.
+
+"Kau menciptakan stabilitas tanpa menghapus perbedaan. Nexus tidak tahu caranya."
+
+Void Wyvern menggeram pelan.
+
+Agen kembali naik.
+
+"Cari Mata Kesembilan jika ingin memahami Arsitek. Nexus kehilangan akses ke sana berabad-abad lalu."
+
+"Di mana?"
+
+"Sylphara. Wilayah mimpi Fae."
+
+Wyvern terangkat.
+
+Kael melihatnya menghilang ke awan.
+
+Penahanan ditunda.
+
+Untuk saat ini.
+
+Namun untuk pertama kalinya, Nexus tidak hanya terasa seperti pemburu.
+
+Ia terasa seperti organisasi yang juga sedang takut.
