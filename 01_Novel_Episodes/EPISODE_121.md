@@ -1,31 +1,39 @@
 # Episode 121 — Perjanjian dengan Gema
 
-Jalur tambang di bawah Urdron dipenuhi kristal Void yang tumbuh dari dinding.
+Volundr tidak menawarkan penyembuhan.
 
-Kael mengirim resonansi rendah melalui batu untuk mengikuti sinyal Hati Dunia. Getarannya kembali membawa pola penghuni yang bergerak tanpa nama dan tanpa ingatan.
+"Penempaan," suara Forge God bergema dari patung logam. "Tubuh yang rusak tidak selalu kembali ke bentuk lama. Kadang harus dibuat ulang agar tetap dapat membawa fungsi barunya."
 
-“Jangan hancurkan semuanya,” kata Sylvara. Gema Pengetahuan menyala di tangannya. “Mungkin masih ada orang hidup di dalam terowongan.”
+Kael menatap Zireth yang terbaring tidak sadar.
 
-Kael menggeser fase Pulse dan membuka celah pada ruang yang terlipat. Mereka menerobos sebelum jebakan kembali menutup.
+"Apa harganya?"
 
-Di baliknya, garis geometris memenuhi dinding. Kehendak Sang Arsitek telah memaksa tambang melupakan bentuk alaminya.
+"Serpihan Gema Bumi. Tersimpan di tambang bawah Urdron."
 
-Tekanan berubah.
+Zireth membutuhkan struktur baru untuk mengganti bagian lengan dan rusuk yang rusak. Serpihan itu dapat bertindak sebagai inti resonansi, tetapi penggabungannya tidak dapat dibatalkan.
 
-Kristal-kristal terangkat dan membentuk sosok humanoid tanpa wajah. Beberapa masih mengenakan sisa pakaian penambang Dwarf.
+Kael membenci keputusan yang menyangkut tubuh orang lain.
 
-“Mereka penghuni terowongan,” gumam Sylvara. “Namanya telah dihapus.”
+"Dia harus setuju."
 
-Kael menahan serangan pertama dengan perisai tipis. Dia dapat menghancurkan seluruh kristal, tetapi tubuh di dalamnya mungkin ikut lenyap.
+Mereka menunggu sampai Zireth sadar.
 
-“Aku akan memisahkan kendali dari mereka.”
+Penjelasan diberikan tanpa menyembunyikan risiko.
 
-Sylvara mengangkat Gema Pengetahuan.
+Zireth mendengarkan, lalu berkata, "Kalau pilihannya mati perlahan atau jadi lebih aneh, aku sudah hidup cukup lama untuk tahu jawabannya."
 
-“Kalau begitu, aku membantumu menjaga ingatan mereka.”
+"Kau yakin?"
 
-Cahaya keemasan dan Pulse Kael bertemu pada kristal pertama. Di balik lapisan Void, suara lemah seorang penambang terdengar meminta agar namanya dikembalikan.
+"Ya. Dan kalau hasilnya buruk, aku akan menghantuimu lewat perangkat dapur."
 
-Pertarungan di Terowongan Korup bukan lagi perburuan terhadap musuh.
+Kael menoleh pada Volundr.
 
-Ia menjadi perjanjian untuk menyelamatkan orang-orang yang telah dilupakan.
+"Kami cari serpihannya."
+
+"Maka dengarkan tanah. Serpihan tidak dijaga oleh monster. Ia dijaga oleh alasan mengapa Dwarf pertama menyembunyikannya."
+
+Pintu tambang bawah terbuka.
+
+Bau logam tua keluar bersama udara panas.
+
+Kael membawa keputusan Zireth bersamanya—bukan sebagai beban untuk diperbaiki, melainkan janji untuk dihormati.

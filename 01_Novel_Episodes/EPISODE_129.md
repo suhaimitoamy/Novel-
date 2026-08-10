@@ -1,51 +1,59 @@
 # Episode 129 — Harga Sebuah Jalan
 
-Penjaga menyesuaikan frekuensi dan memantulkan Pulse Kael kembali ke dadanya.
+Zireth menunggu mereka dalam keadaan sadar.
 
-Dia jatuh pada satu lutut.
+"Lama," katanya.
 
-Zireth berdiri di depan, tetapi lengan mekanis lamanya sudah retak hampir sampai bahu.
+Kael menaruh cincin Gema di meja. "Kami berhenti untuk liburan di sungai magma."
 
-“Kita mundur,” katanya. “Logam Bintang tidak sepadan dengan nyawamu.”
+Zireth melihat pecahan di dalam cincin, lalu wajah Kael.
 
-Jalan belakang telah hilang.
+"Sebelum mulai, aku ingin satu kesepakatan."
 
-Kael mendengarkan nada kecil di balik medan gravitasi. Sesuatu dalam Penjaga masih berusaha melawan kendali Sang Arsitek.
+Kael duduk.
 
-Dia memakai penggeseran fase untuk memisahkan benang asing dari wadah.
+"Katakan."
 
-Tekanan meningkat. Zireth menahan satu serangan yang mengarah kepada Kael.
+"Kalau ritual gagal dan sistem baru mulai mengambil alih pikiranku, kau putuskan. Jangan pertahankan tubuhku hanya karena takut kehilangan."
 
-Sisa lengan mekanisnya hancur.
+Kael hampir menolak secara refleks.
 
-“Zireth!”
+Dia berhenti.
 
-“Lakukan.” Dia menahan rasa sakit. “Ini harga yang sudah kupilih.”
+Nyara.
 
-Kael menemukan benang kendali dan mengubah fase sekali, dua kali, lalu ketiga.
+Hak memilih.
 
-Makam menjerit.
+"Apa tanda bahwa itu benar-benar terjadi?"
 
-*Gunakan entropi penuh,* tawar Sang Arsitek.
+Zireth memberikan protokol: tiga pertanyaan memori pribadi dan satu kode pemutus yang hanya Kael dan Sylvara tahu.
 
-Kael menurunkan amplitudo.
+"Kalau aku tidak bisa menjawab, gunakan."
 
-“Tidak.”
+"Baik."
 
-Benang tersebut retak. Zireth menempelkan Logam Bintang pada celah yang sama.
+Kata itu terasa berat.
 
-Gelombang balik menyapu mereka. Kael menangkap tubuhnya sebelum terhempas ke tungku.
+Zireth menatapnya heran. "Tidak debat?"
 
-Ketika debu turun, lengan mekanis lama Zireth telah lenyap dari bahu ke bawah.
+"Aku belajar. Sedikit."
 
-Serpihan Bintang tetap berada di tangannya.
+Volundr mengaktifkan ruang tempa.
 
-Jalur terakhir menuju tungku pusat terbuka.
+Harga ritual tidak hanya serpihan.
 
-Zireth memandang kehilangan tersebut tanpa berusaha menyembunyikan rasa sakit.
+Seseorang harus menjaga frekuensi jiwa Zireth tetap dikenali saat tubuh mekanis dan biologis disusun ulang.
 
-“Ayo. Kita belum selesai.”
+Kael akan menjadi jangkar.
 
-Kael membantunya berdiri.
+Jika resonansinya goyah, sebagian pola Zireth bisa hilang.
 
-Setiap langkah menuju penempaan ulang kini membawa harga yang tidak dapat dibatalkan.
+"Jadi hidupmu bergantung pada kemampuanku fokus."
+
+Zireth memejamkan mata. "Ternyata aku memilih mati."
+
+Sylvara tertawa pendek.
+
+Kael tidak.
+
+Untuk pertama kalinya dia benar-benar memahami harga sebuah jalan: bukan selalu kehilangan sesuatu, tetapi menerima tanggung jawab jika pilihan yang disepakati bersama berakhir buruk.

@@ -1,49 +1,65 @@
 # Episode 147 — Pertemuan Tak Terduga
 
-Kael memusatkan Ragnarok Pulse pada simpul kendali Rift.
+Veyr terlihat lebih manusia tanpa kabel Urdron.
 
-Sebelum dia menyentuhnya, seseorang muncul dari arus.
+Itu bukan berarti lebih sehat.
 
-Zevaron terlempar keluar dari celah cahaya dan menghantam jalur di depan mereka. Tubuhnya penuh luka, sementara badai kecil berputar tidak stabil di sekeliling tangan.
+Kristal di dadanya retak. Satu tangan dibalut kain. Tidak ada cahaya ungu pada matanya.
 
-“Kau?” Sylvara langsung mengangkat busur.
+Kael tetap mengarahkan pedang.
 
-Zevaron mencoba berdiri. “Aku bisa mengatakan hal yang sama.”
+"Kau mengikutiku?"
 
-Dia melihat Rift utama dan wajahnya berubah.
+"Tidak. Kalau aku bisa memilih tempat mendarat setelah leyline melemparkanku, tempat bersalju ini tidak masuk sepuluh besar."
 
-“Jadi kalian juga terjebak dalam jalur waktu ini.”
+"Kenapa kau di sini?"
 
-“Kau datang dari mana?” tanya Kael.
+Veyr melihat langit.
 
-“Gerbang Es.” Zevaron menahan sisi tubuhnya. “Aku kembali untuk memperingatkan Iskali, tetapi arus melemparkanku ke tempat ini. Dunia di permukaan sudah bergerak jauh lebih cepat.”
+"Karena setelah meninggalkan Urdron aku mencoba hidup tanpa jaringan. Ternyata dunia sangat bising."
 
-Zireth memeriksa pembacaan waktu. “Berapa lama?”
+Kael tidak menurunkan pedang.
 
-“Entah. Beberapa bulan, mungkin lebih. Di sini aku kehilangan hitungan.”
+"Kau masih percaya Arsitek benar?"
 
-Informasi itu menekan dada Kael lebih keras daripada Rift.
+"Sebagian."
 
-Bagi mereka, perjalanan di Hati Dunia hanya berlangsung beberapa hari. Di permukaan, keadaan mungkin sudah berubah sepenuhnya.
+Jawaban itu lebih jujur daripada perubahan hati mendadak.
 
-Rift menyerang sebelum pertanyaan lain muncul.
+"Aku masih percaya makhluk hidup membuat keputusan bodoh dalam skala mengerikan. Aku hanya tidak lagi yakin satu kesadaran pusat lebih baik."
 
-Gelombang ruang menyapu jalur dan hampir memisahkan Zevaron dari mereka. Kael menangkap lengannya.
+Veyr menunjuk lengan Kael.
 
-“Kenapa menolongku?” tanya Zevaron.
+"Dan sekarang Arsitek memburuku juga. Ia tidak menyukai simpul yang meninggalkan sistem."
 
-“Karena aku tidak akan membiarkan arus memutuskan siapa yang pantas pulang.”
+Mata Kesembilan melihat bekas benang pada tubuh Veyr—putus, bukan tersembunyi.
 
-Zevaron mendengus, tetapi tidak melepaskan pegangan.
+Kael menurunkan pedang sedikit.
 
-Mereka membentuk formasi baru. Zireth menjaga jangkar, Sylvara menahan tali rune, Zevaron memakai angin untuk menstabilkan arah, dan Kael mencari simpul kendali Rift.
+"Sylvara dan Zireth terpisah dariku."
 
-Empat orang yang pernah saling menyerang kini berdiri pada satu jalur sempit.
+"Aku merasakan dua jejak keluar dari leyline beberapa puluh kilometer selatan."
 
-Di balik celah hitam, Kael menangkap pesan yang terus berulang:
+"Bagaimana kau tahu?"
 
-*Permukaan telah bergerak. Kekaisaran sedang mempersiapkan perang baru.*
+Veyr mengetuk kristal dadanya.
 
-Pertemuan tersebut bukan kebetulan.
+"Aku kehilangan jaringan. Tidak semua sensornya."
 
-Seseorang telah mendorong mereka semua menuju titik yang sama.
+Kael masih tidak percaya penuh.
+
+Tidak perlu.
+
+Mereka berjalan bersama untuk sementara.
+
+Dua mantan target Arsitek, satu karena menolak sistem, satu karena pernah menjadi sistem.
+
+Percakapan paling canggung yang bisa dibayangkan.
+
+Namun saat badai meningkat, Veyr memberi satu informasi penting.
+
+"Sinyal bebas yang kalian tangkap di persimpangan leyline berasal dari pecahan Nexus lama. Mereka menyebut diri Free Node. Markas bergeraknya berada di rawa selatan."
+
+Kael memandang arah jejak Sylvara dan Zireth.
+
+Keduanya mengarah ke tempat sama.

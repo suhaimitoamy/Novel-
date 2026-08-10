@@ -1,45 +1,63 @@
 # Episode 110 — Pengaruh Rift
 
-Jalan menuju pusat terbuka selebar satu orang.
+Rift tidak menolak mereka.
 
-Penjaga Arsip menunggu di ujungnya, dikelilingi lapisan energi dan gelombang Rift yang melipat ruang.
+Ia menawarkan jalan yang terlalu mudah.
 
-“Kita selesaikan bersama,” kata Zireth. “Jangan ambil seluruh beban.”
+Saat Kael membentuk medan resonansi, celah dimensi berubah menjadi jembatan hitam yang tampak kokoh.
 
-Kael mengangguk.
+"Jangan injak," katanya.
 
-Zireth meretas lapisan luar, sementara Kael menyisipkan interferensi fase ke celah yang terbuka. Tekanan datang dalam banyak irama, seolah puluhan hukum menolak keberadaan mereka.
+Sylvara berhenti tepat sebelum kaki menyentuh permukaan.
 
-Kael memilih satu denyut dasar dan menyelaraskan tubuh dengannya.
+"Kenapa?"
 
-Nyeri bergerak dari dada ke tengkuk. Untuk sesaat, struktur pusat terlihat sebagai jaring cahaya.
+Mata Kesembilan menunjukkan jalur jembatan itu tidak berakhir di sisi lain poros.
 
-Benang kendali Sang Arsitek berada tepat di tengah.
+Ia berakhir di tempat lain.
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing. Kael menjaga ketiganya tetap terhubung tanpa membiarkan salah satu memerintah.
+Kael melihat sekilas dunia tanpa langit, kota-kota geometris, dan makhluk berjalan serempak.
 
-Peretasan Zireth tiba pada waktu yang tepat. Satu demi satu simpul padam.
+Model dunia Arsitek.
 
-Penjaga mengerahkan bentuk terakhir.
+"Rift mencoba memberi kita jalan pintas."
 
-Ruang melengkung ke dalam. Cahaya lenyap. Kael hanya mendengar detak jantung dan suara Zireth yang memanggil dari kegelapan.
+Zireth mengerutkan kening. "Ke mana?"
 
-Dia mengikuti suara itu dan melepaskan satu Pulse pendek tepat pada frekuensi inti.
+"Ke tempat yang membuat kita tidak kembali."
 
-Penjaga retak tanpa ledakan.
+Mereka menjalankan rencana awal.
 
-Benang asing terlepas seperti serat yang terbakar. Energi asli Urdron tetap hidup di dalam wadahnya.
+Zireth memancarkan frekuensi referensi melalui rel logam. Sylvara menembakkan dua panah rune ke dinding seberang sebagai jangkar. Kael membuat medan tiga nada yang menekan perbedaan fase ruang.
 
-Kael terjatuh, tetapi Zireth menangkapnya sebelum kepala membentur lantai.
+Selama empat detik, dua sisi poros terasa berada di tempat sama.
 
-Rekaman terakhir muncul di pusat kendali:
+Mereka berlari.
 
-*Fragmen kedua belas telah dijadikan benih penataan ulang realitas.*
+Pada detik ketiga, Rift menyentuh Kael.
 
-Kebenaran tersebut bukan kemenangan. Ia hanya memperjelas ukuran ancaman.
+Satu pikiran masuk ke kepala.
 
-Denyut berat datang dari kedalaman.
+**Dunia tanpa konflik adalah mungkin.**
 
-Jantung Mekanis memanggil Kael.
+Bukan kebohongan.
 
-Jalan berikutnya terbuka, sementara gelombang Rift bergerak semakin dekat ke pusat Zerath.
+Itulah yang membuatnya berbahaya.
+
+Kael hampir memperlambat langkah.
+
+Sylvara menarik kerahnya dan mereka jatuh ke sisi seberang tepat saat medan runtuh.
+
+Rift kembali terbuka.
+
+Kael berbaring di batu panas, memikirkan kalimat itu.
+
+Arsitek tidak hanya menawarkan kekuasaan.
+
+Ia menawarkan sesuatu yang bahkan Kael inginkan: dunia di mana tidak ada lagi Aranyel.
+
+Harga yang tidak disebutkan adalah dunia di mana tidak ada seorang pun bebas memilih apa pun.
+
+Di depan mereka, Pintu Hati mulai terlihat.
+
+Dan satu sosok manusia berdiri menunggu di ambangnya.

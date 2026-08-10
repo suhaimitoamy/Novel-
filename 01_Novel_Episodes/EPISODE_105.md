@@ -1,53 +1,65 @@
 # Episode 105 — Suara dari Kedalaman
 
-Jalan terakhir membawa mereka ke ruang pusat Urdron.
+Suara itu datang melalui pipa komunikasi tua.
 
-Automaton utama menunggu di tengah jaring energi yang saling mengunci. Setiap lapisan berdenyut dengan hukum berbeda, seolah banyak sistem dipaksa hidup dalam satu tubuh.
+Kael menempelkan telinga pada corong logam.
 
-“Kita masuk bersama,” kata Sylvara. “Jangan menahan seluruh beban hanya karena kau mendengar frekuensinya.”
+"Siapa kau?"
 
-Kael menatap Sylvara dan Zireth, lalu mengangguk.
+Hanya napas statik beberapa detik.
 
-Mereka bergerak serentak.
+"Nama... Kharad. Arsiparis Urdron."
 
-Panah cahaya Sylvara dan peretasan Zireth memecah lapisan luar. Kael menyisipkan resonansi ke celah yang terbuka.
+Zireth memeriksa sistem. "Transmisi ini bisa berusia berabad-abad."
 
-Tekanan berlapis membalas. Kael tidak mencoba menahan semuanya. Dia memilih satu denyut dasar dan menyelaraskan tubuh dengan iramanya.
+"Aku belum... mati. Sayangnya."
 
-Nyeri menyambar dari dada ke tengkuk.
+Kael tidak yakin itu lelucon.
 
-Untuk beberapa detik, struktur musuh terlihat sebagai jaring cahaya. Di pusatnya terdapat benang kendali yang terhubung ke Sang Arsitek.
+Kharad menjelaskan terputus-putus. Setelah Urdron jatuh, beberapa arsiparis mengunci diri di pusat data untuk mencegah Struktur mengambil catatan tentang Hati Dunia. Sistem penopang hidup mempertahankan tubuh mereka—terlalu lama.
 
-Kael mengangkat tangan.
+"Berapa lama kau di sana?"
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing. Ketiganya hampir saling memusnahkan sampai dia berhenti memperlakukan Keseimbangan sebagai perintah.
+"Aku berhenti menghitung setelah seratus dua puluh tahun."
 
-Ia adalah hubungan.
+Sylvara menutup mata sesaat.
 
-Sylvara menyerang tepat ketika Kael tidak mampu menahan bagian berikutnya. Zireth menutup simpul yang terbuka. Satu demi satu cahaya musuh padam.
+"Kenapa Arsitek belum mengambil datanya?"
 
-Automaton mengerahkan bentuk terakhir.
+"Karena... arsip dikunci dengan gema hidup. Selama satu penjaga tetap sadar, Struktur tidak bisa menyalin semuanya."
 
-Ruang melipat ke dalam. Seluruh cahaya hilang.
+Kael memandang lorong ke bawah.
 
-Kael hanya mendengar detak jantungnya dan suara dua orang yang masih berada di sisinya.
+"Kau sengaja menjaga diri tetap hidup?"
 
-Dia mengikuti keduanya kembali, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+"Awalnya. Setelah puluhan tahun... aku tidak tahu apakah ini keberanian atau ketakutan."
 
-Tidak ada ledakan.
+Tidak ada romantisasi dalam suaranya.
 
-Tubuh automaton retak dalam keheningan. Benang kendali terbakar, sementara energi asli wadahnya tetap hidup.
+Kael menghargai itu.
 
-Kael jatuh, tetapi Sylvara menangkap bahunya.
+"Kami datang."
 
-Di dalam pusat yang pecah, sebuah rekaman terbuka:
+"Jangan."
 
-*Logam Urdron masih menyimpan gema Forge God.*
+Kael mengerutkan kening.
 
-Tak seorang pun bersorak.
+"Seseorang baru saja membuka akses sekunder."
 
-Pengetahuan itu membuat lawan mereka lebih besar daripada sebelumnya.
+Alarm berbunyi.
 
-Pintu menuju Pusat Data Urdron menyala dari bawah tanah.
+Lampu berubah ungu.
 
-Kael berdiri dengan tubuh penuh luka. Dia tidak merasa lebih kuat—hanya lebih bertanggung jawab terhadap apa yang akan mereka temukan berikutnya.
+Kharad berbisik melalui statik.
+
+"Ia sudah masuk lebih dulu."
+
+Kael membuka Mata Kesembilan.
+
+Satu benang hitam bergerak cepat di bawah mereka.
+
+Bukan Arsitek langsung.
+
+Simpul manusia.
+
+Seseorang sedang turun menuju Pusat Data Urdron.

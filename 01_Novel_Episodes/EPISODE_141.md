@@ -1,45 +1,75 @@
 # Episode 141 — Di Sisi Lain Pintu
 
-Pintu tanpa engsel terbuka perlahan.
+Kael tidak mendarat.
 
-Di baliknya tidak ada lorong, hanya ruang luas yang dipenuhi cahaya cair. Bintang, gunung, laut, dan kota muncul lalu menghilang di udara seperti ingatan yang belum memilih bentuk.
+Dia jatuh ke arah yang tidak memiliki bawah.
 
-Kael melangkah masuk bersama Sylvara dan Zireth.
+Cahaya keemasan memenuhi segala sisi. Sylvara dan Zireth sempat terlihat di dekatnya, lalu arus energi memisahkan tubuh mereka seperti tiga daun di sungai yang terlalu besar.
 
-“Ini Hati Dunia?” tanya Sylvara.
+"Sylvara!"
 
-“Lebih tua dari semua Leyline yang pernah kupindai,” jawab Zireth. Lengan bintangnya berdenyut mengikuti cahaya sekitar. “Tempat ini menyimpan kemungkinan, bukan hanya energi.”
+Tangannya meraih kosong.
 
-Kael merasakan Ragnarok Pulse berubah. Setiap denyut memunculkan beberapa versi gerakannya sekaligus: dirinya yang maju, berhenti, atau tidak pernah memasuki pintu.
+"Zireth!"
 
-Sylvara menggenggam pergelangan tangannya.
+Tidak ada jawaban.
 
-“Kael. Ingat namamu.”
+Kael mencoba membuka Mata Kesembilan.
 
-Sentuhan itu menyatukan bayangan-bayangan dirinya kembali.
+Tidak ada benang kemungkinan.
 
-Mereka bergerak lebih dalam. Gelombang penciptaan muncul dari lantai dan berusaha mengurai tubuh menjadi kemungkinan yang terpisah.
+Tidak ada masa depan yang bisa dibaca.
 
-Kael tidak melawannya dengan ledakan. Dia mengunci fase tubuh pada satu pilihan—pilihan untuk tetap berjalan bersama kedua temannya.
+Tempat ini tidak berada di luar waktu. Ia berada terlalu dekat dengan sumber perubahan sehingga kemungkinan belum sempat menjadi jalur.
 
-Ruang bergetar.
+Kael mematikan penglihatan dan berhenti melawan arus.
 
-Dari cahaya terbentuk sosok-sosok Kael yang tidak pernah ada: Kael sebagai raja, monster, pahlawan, dan mayat tanpa nama.
+Baru saat itu dia merasakan apa yang sebenarnya mengelilinginya.
 
-Semuanya menatapnya.
+Bukan air.
 
-*Pilih satu bentuk dan tinggalkan sisanya.*
+Leyline.
 
-Kael mengepalkan tangan.
+Semua aliran energi Zerath bertemu di sini sebelum kembali menyebar ke dunia. Panas gunung, arus laut, sihir hutan, denyut Fragmen—semuanya datang sebagai nada berbeda di dalam satu ruang.
 
-“Aku tidak dibentuk oleh satu kemungkinan.”
+Tubuh Kael bereaksi.
 
-Pulse tiga warna menyebar tipis dan menyatukan jalur di depan tanpa menghancurkan yang lain.
+Merah ingin mengikuti aliran panas.
 
-Sosok-sosok itu retak menjadi cahaya.
+Biru tertarik ke jalur dingin.
 
-Di kejauhan, sebuah altar muncul. Di atasnya berputar gambaran Zerath sebelum perang, sebelum kekaisaran, bahkan sebelum para dewa memiliki nama.
+Void di lengan kiri justru mencoba mencari celah di antara semuanya.
 
-Mereka telah mencapai Ruang Penciptaan.
+Kael menahan ketiganya.
 
-Dan sesuatu di sana telah menunggu seorang pewaris yang mampu menolak takdir tunggal.
+Tidak memilih satu arus.
+
+Dia menjaga ritme dirinya sendiri.
+
+Perlahan gerak jatuhnya berhenti.
+
+Di bawah—atau mungkin di depan—muncul permukaan kristal luas. Kael menyentuhnya dengan kaki.
+
+Cahaya berubah menjadi dataran.
+
+Jauh di cakrawala berdiri tiga bayangan raksasa.
+
+Satu terbuat dari cahaya.
+
+Satu dari batu membara.
+
+Satu dari kegelapan tanpa bentuk.
+
+Aelarion. Zhorak. Malgorath.
+
+Atau gema mereka.
+
+Kael tidak tahu.
+
+Di antara ketiganya terdapat satu luka panjang pada ruang.
+
+Dari luka itu dua belas serpihan cahaya sedang lahir.
+
+Kael berdiri sendirian di sisi lain Pintu Hati.
+
+Dan Zerath mulai memperlihatkan bagaimana dirinya diciptakan.

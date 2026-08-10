@@ -1,49 +1,65 @@
 # Episode 120 — Di Ambang Jantung
 
-Mereka mencapai ruang terdalam Gema Hati Bintang.
+Zireth masih hidup.
 
-Badai bilah dan inti Urdron yang kelebihan beban menyatu menjadi satu pertahanan terakhir. Lapisan energinya saling mengunci, sementara hitungan mundur mendekati akhir.
+Untuk beberapa jam, itu satu-satunya fakta yang penting.
 
-“Kita selesaikan bersama,” kata Zireth. Sisa lengannya mengeluarkan percikan, tetapi dia tetap menghubungkannya ke terminal.
+Mereka memindahkannya ke ruang dekat Pintu Hati. Sylvara menghentikan pendarahan. Kael menggunakan dingin biru hanya untuk menurunkan kerusakan jaringan di sekitar luka—tidak lebih.
 
-Kael mengangguk.
+Zireth sadar sebentar.
 
-Zireth memecah lapisan luar. Kael memasukkan Ragnarok Pulse tiga fase ke celah yang terbuka.
+"Datapad."
 
-Dia memilih satu denyut dasar dan menyelaraskan tubuh dengannya. Struktur pusat terlihat sebagai jaring cahaya dengan benang kendali pada bagian terdalam.
+"Kau baru hampir mati."
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola Sang Arsitek.
+"Dan masih harus melakukan pekerjaanmu. Menyedihkan."
 
-Ketiganya nyaris saling menghancurkan sampai Kael berhenti memaksa keseimbangan.
+Kael mengambil perangkat yang retak.
 
-Dia membiarkan setiap kutub hidup dan menjaga hubungan di antara mereka.
+Satu file terbuka otomatis setelah kekalahan Veyr.
 
-Zireth menutup simpul yang tidak mampu Kael tahan sendiri. Satu demi satu lapisan padam.
+Diagram Arsitek memenuhi layar.
 
-Pertahanan terakhir melipat ruang dan memadamkan cahaya.
+Bukan rencana menghancurkan Zerath.
 
-Kael hanya mendengar detak jantung serta suara Zireth dari kegelapan.
+Rencana menghubungkan setiap pikiran hidup ke Struktur Penyelaras, mengubah konflik menjadi satu kesadaran kolektif yang dapat diatur.
 
-Dia mengikuti keduanya, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Assimilation layer.
 
-Tidak ada ledakan.
+Kael merasa dingin.
 
-Badai bilah retak dalam keheningan. Benang kendali terbakar dan terlepas, sementara energi alami Jantung Mekanis tetap hidup.
+"Dia tidak mau membunuh dunia."
 
-Kael jatuh. Zireth menahannya dengan bahu sebelum kepalanya membentur lantai.
+Sylvara membaca dari bahunya.
 
-Hitungan mundur berhenti.
+"Dia mau membuat semua orang menjadi bagian dirinya."
 
-Rekaman terakhir terbuka:
+Dari Pintu Hati, denyut Zerath datang.
 
-*Keseimbangan bukan energi ketiga. Ia adalah hubungan yang menjaga dua kutub tetap hidup.*
+Kael merasakan peringatan.
 
-Jalan menuju akar Leyline terbuka di bawah bengkel.
+Lalu pintu yang tadi terbuka sedikit mulai menutup.
 
-“Apakah semuanya berakhir?” tanya Zireth.
+"Kenapa?"
 
-Kael mendengarkan gema yang bergerak semakin jauh ke bawah.
+Veyr, masih terikat di sisi ruangan, tertawa lemah.
 
-“Pertarungannya berakhir. Akibatnya baru dimulai.”
+"Karena pertarungan kita membuat Hati menolak akses. Kau menang... dan kehilangan kesempatan masuk."
 
-Mereka melangkah menuju akar Leyline, meninggalkan Gema Hati Bintang yang kembali berdetak dengan irama sendiri.
+Kael menatap celah cahaya yang menyempit.
+
+Dia bisa mencoba memaksa.
+
+Tidak.
+
+Itu persis jenis keputusan yang sedang dia pelajari hindari.
+
+"Aku tahu nadanya sekarang," katanya. "Kita bisa membukanya lagi."
+
+Pintu tertutup.
+
+Prioritasnya berubah.
+
+Zireth harus diselamatkan.
+
+Dan untuk melakukannya, mereka membutuhkan sesuatu yang Urdron masih simpan: gema penempaan Volundr.

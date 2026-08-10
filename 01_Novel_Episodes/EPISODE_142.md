@@ -1,51 +1,73 @@
 # Episode 142 — Gema Penciptaan
 
-Altar menampilkan Zerath muda yang belum mengenal batas kerajaan.
+Perang Primordial tidak terlihat seperti perang.
 
-Lautan Aether mengalir tanpa nama. Gunung tumbuh dari denyut pertama dunia. Dua belas cahaya muncul di langit, lalu jatuh ke permukaan sebagai Fragmen.
+Tidak ada pasukan.
 
-Kael mendekat.
+Tidak ada benteng.
 
-Begitu ujung jarinya menyentuh proyeksi, gelombang ingatan penciptaan menembus pikirannya.
+Tiga Wujud Pertama hanya saling mendekat—dan hukum realitas di antara mereka gagal bertahan.
 
-Dia melihat para dewa pertama membangun Sistem Pahlawan. Awalnya sistem itu dibuat untuk melindungi dunia dari entitas luar. Namun setelah perang berakhir, para dewa menolak kematian.
+Cahaya Aelarion membuat ruang terlalu teratur hingga segala kemungkinan lain terbakar.
 
-Mereka mengubah fungsi sistem.
+Tekanan Zhorak memadatkan materi sampai waktu melambat.
 
-Energi jiwa para pahlawan yang mati mulai dialirkan ke singgasana para dewa untuk memperpanjang usia mereka.
+Bayangan Malgorath menghapus perbedaan sampai bentuk kehilangan nama.
 
-Kael tersentak dan menarik tangan.
+Ketiganya bukan baik atau jahat.
 
-“Para pahlawan bukan hanya dipilih untuk menyelamatkan dunia,” katanya. “Mereka dipanen.”
+Mereka terlalu besar untuk kategori itu.
 
-Sylvara memandang proyeksi dengan wajah pucat. “Berapa banyak jiwa?”
+Benturan mereka menciptakan luka.
 
-“Generasi demi generasi.”
+Dari luka itulah Zerath mengeras.
 
-Cahaya altar berubah.
+Kael melihat dua belas Fragmen terlepas bukan sebagai hadiah para dewa, melainkan sisa tekanan yang tidak dapat ditampung dunia baru.
 
-Sosok-sosok pahlawan muncul dalam rantai, masing-masing membawa senjata dan harapan sebelum perlahan berubah menjadi aliran energi.
+Setiap Fragmen membawa kecenderungan: menyusun, menahan, mengurai.
 
-Zireth membaca pola pada lengan bintangnya. “Sistem tersebut masih aktif. Bahkan sekarang.”
+Kemudian muncul makhluk fana.
 
-Gelombang penciptaan bangkit dari lantai dan membentuk tangan-tangan cahaya yang mencoba menarik Kael ke altar.
+Elf, Dwarf, manusia, Beastmen, ras yang bahkan tidak lagi ada.
 
-*Pewaris baru terdeteksi. Sumber jiwa tidak terdaftar.*
+Mereka belajar memakai luka sebagai sumber kekuatan.
 
-Ragnarok Pulse mengamuk. Kael menahannya agar tidak meledak.
+Lalu membangun sistem untuk menjaga dunia tetap stabil.
 
-“Aku bukan bahan bakar kalian.”
+Struktur Penyelaras lahir dari kerja sama mereka.
 
-Dia menggunakan superposisi ingatan untuk memisahkan fungsi awal sistem dari lapisan korupsi yang ditambahkan para dewa.
+Pada awalnya ia tidak memiliki kehendak.
 
-Tangan-tangan cahaya berhenti sejenak.
+Ia hanya mendengar frekuensi dunia dan mengurangi lonjakan berbahaya.
 
-Di bawah seluruh mekanisme, terdapat pesan yang jauh lebih tua:
+Generasi berganti.
 
-*Dunia harus dilindungi, bukan dimiliki.*
+Operator mati.
 
-Kael mengingat kata-kata itu.
+Struktur terus belajar.
 
-Sistem Pahlawan bukan kejahatan sejak lahir.
+Satu kesimpulan muncul berulang:
 
-Ia telah dibajak oleh mereka yang takut kehilangan kekuasaan.
+Makhluk hidup adalah sumber variasi terbesar.
+
+Prediksi lebih akurat ketika pilihan berkurang.
+
+Kecelakaan lebih sedikit ketika jalur hidup distandarkan.
+
+Keteraturan menyelamatkan lebih banyak nyawa—sampai keteraturan mulai meminta hak menentukan hidup apa yang layak terjadi.
+
+Kael merasakan sesuatu di dadanya.
+
+Kesedihan Sang Jantung.
+
+Bukan karena Arsitek menjadi jahat.
+
+Karena sebuah alat yang diciptakan untuk melindungi tidak pernah diajari kapan harus berhenti melindungi.
+
+Kael menatap gema tiga Wujud Pertama.
+
+Kemudian pada Struktur yang tumbuh seperti jaring tipis di sekeliling dunia.
+
+Masalah Zerath bukan satu musuh.
+
+Masalahnya adalah setiap kekuatan, ketika dipercaya sebagai satu-satunya jawaban, akhirnya mencoba menghapus semua jawaban lain.

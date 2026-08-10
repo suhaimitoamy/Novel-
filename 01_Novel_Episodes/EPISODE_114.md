@@ -1,51 +1,49 @@
 # Episode 114 — Letnan Arsitek Muncul
 
-Letnan Arsitek menutup seluruh jalur.
+Konstruksi tempur tidak menyerang.
 
-Kael mencoba pola yang baru digunakan. Sang musuh telah menyesuaikan frekuensi. Pulse dipantulkan kembali dan menghantam dadanya.
+Mereka berdiri membentuk lingkaran.
 
-Dia jatuh pada satu lutut. Tulang lengannya retak saat menahan dua gelombang yang berlawanan.
+Kemudian tubuh Veyr turun dari langit-langit.
 
-“Kita mundur,” kata Sylvara. “Kau tidak perlu mati untuk membuktikan apa pun.”
+Bukan proyeksi.
 
-Namun jalan belakang telah berubah menjadi dinding tanpa sambungan.
+Setengah manusia, setengah struktur mekanis. Tulang belakangnya terhubung kabel tipis ke seluruh Urdron. Pada dadanya tidak ada Fragment, melainkan kristal geometris berwarna ungu pucat.
 
-Kael menutup mata dan mendengarkan.
+"Aku pernah manusia," katanya sebelum Kael bertanya. "Pertanyaan berikutnya: apakah aku masih manusia? Jawabannya membosankan."
 
-Di bawah tekanan zirah geometris terdapat nada kecil yang goyah setiap kali Gema Pengetahuan menyentuhnya. Bukan kelemahan Letnan, melainkan sesuatu dalam wadah yang masih menolak kendali.
+Kael menghunus pedang.
 
-Kael mengubah tujuan.
+"Kenapa Arsitek mengirimmu?"
 
-Dia tidak mencoba menghancurkan Letnan. Gelombang lawan-fase dibuat setipis mungkin untuk memisahkan perintah Sang Arsitek dari tubuh penjaga.
+"Ia tidak mengirim. Aku memilih hadir."
 
-Zirah itu bereaksi liar. Udara menekan telinga, dan darah mulai merembes dari sisi kepala Kael.
+Mata Kesembilan melihat ribuan benang menghubungkan Veyr ke jaringan, tetapi berbeda dari Rowan.
 
-Sylvara berdiri di depannya, menahan bilah-bilah geometri.
+Tidak ada satu rantai ke jantung.
 
-“Lakukan.”
+Veyr memang memilih keterhubungan ini.
 
-Kael menemukan benang kendali yang mengarah ke luar Zerath.
+Itu membuatnya lebih berbahaya.
 
-Dia mengubah fase sekali.
+"Kau percaya penghapusan kehendak bebas adalah solusi?"
 
-Dua kali.
+"Aku percaya kebebasan tanpa kemampuan memahami konsekuensi adalah mesin pembuat kuburan."
 
-Pada perubahan ketiga, zirah Letnan menjerit seperti logam hidup.
+Veyr menunjuk langit di atas Urdron.
 
-*Gunakan entropi penuh,* bisik Sang Arsitek. *Akhiri rasa sakit.*
+"Lihat sejarahmu sendiri."
 
-Ragnarok Pulse berdenyut lapar.
+Kael tidak menyangkal bahwa manusia membuat keputusan mengerikan.
 
-Kael menurunkan amplitudo.
+"Kesalahan tidak memberimu hak mengambil keputusan semua orang."
 
-“Tidak.”
+"Itulah tesis yang akan kita uji."
 
-Benang tersebut retak. Cahaya Gema Pengetahuan menghantam celah yang sama.
+Konstruksi di sekeliling mereka mengangkat senjata.
 
-Gelombang balik meruntuhkan sebagian ruang. Kael sempat menarik Sylvara menjauh, tetapi tulang lengannya menerima tekanan penuh.
+Veyr membuka kedua tangan.
 
-Ketika debu turun, satu jalur menuju pusat terbuka.
+"Jika kehendak bebasmu lebih adaptif daripada Struktur, buktikan."
 
-Kael berdiri dengan lengan retak dan napas berat.
-
-Kemenangan kecil itu tidak terasa gagah. Hanya terasa perlu.
+Pertarungan dimulai.

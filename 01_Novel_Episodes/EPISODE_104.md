@@ -1,61 +1,89 @@
 # Episode 104 — Jebakan Arsitek
 
-Automaton menutup jalur depan dan belakang.
+Jebakannya bukan di terowongan.
 
-Kael mencoba pola serangan yang sebelumnya berhasil. Musuh telah menyesuaikan frekuensi. Pulse dipantulkan kembali dan menghantam dadanya dari dalam.
+Itu kesimpulan pertama Kael setelah satu jam pemeriksaan.
 
-Dia jatuh pada satu lutut. Darah menetes ke lantai dan mengikuti garis medan seperti tinta hidup.
+Tidak ada rune ledakan. Tidak ada jalur runtuh. Tidak ada konstruksi bersembunyi.
 
-“Kita mundur,” kata Sylvara. “Tidak ada kemenangan yang sepadan dengan nyawamu.”
+Semua terlalu aman.
 
-Sebagian diri Kael ingin menerima. Namun jalur belakang sudah berubah menjadi perangkap yang akan menunggu siapa pun setelah mereka.
+"Dia ingin kita sampai," kata Sylvara.
 
-Dia memejamkan mata dan mendengarkan seluruh kebisingan.
+Kael mengangguk.
 
-Di bawah benturan logam terdapat nada kecil yang goyah setiap kali panah Sylvara dan pemindai Zireth menyentuh automaton.
+Mereka berjalan.
 
-Bukan kelemahan mesin.
+Di ruang berikutnya berdiri tiga kursi logam menghadap dinding kristal.
 
-Sesuatu di dalam wadah itu masih melawan kendali Sang Arsitek.
+Saat Kael masuk, kristal menyala dan menampilkan Aranyel.
 
-Kael mengubah tujuan. Resonansinya dibuat setipis mungkin untuk memisahkan perintah asing dari tubuh automaton tanpa merobek keduanya.
+Bukan kenangan kasar.
 
-Musuh bereaksi liar. Dinding pecah, udara menekan telinga, dan darah mulai merembes dari sisi kepala Kael.
+Rekonstruksi sempurna.
 
-Sylvara berdiri di depannya menahan serangan.
+Posisi rumah. Pohon suci. Wajah orang-orang.
 
-“Lakukan. Selesaikan pilihanmu.”
+Kael membeku.
 
-Kael menemukan benang kendali yang dingin dan geometris. Ikatan itu mengarah jauh ke luar Urdron.
+Suara Arsitek muncul.
 
-Dia tidak menariknya dengan tenaga, melainkan perubahan fase.
+*Model telah diperbaiki.*
 
-Sekali.
+Gambar bergerak.
 
-Dua kali.
+Kael melihat dirinya menyentuh Fragmen.
 
-Pada perubahan ketiga, seluruh lembah mengeluarkan dengungan tajam.
+Lalu sesuatu yang tidak pernah dia ingat.
 
-Tawaran masuk ke pikirannya:
+Siluet lain berdiri di balik pohon.
 
-*Lepaskan kendali. Gunakan entropi penuh. Akhiri rasa sakit.*
+Rowan.
 
-Ragnarok Pulse menjawab dengan denyut lapar.
+"Palsu."
 
-“Tidak.”
+*Kemungkinan rekonstruksi: 73,2 persen.*
 
-Kael justru menurunkan amplitudo. Benang tersebut retak karena pola kendali tidak mampu memahami penolakan itu.
+Kael mengepalkan tangan.
 
-Panah Sylvara dan gangguan Zireth menghantam celah yang sama.
+Arsitek tidak menyatakan itu fakta.
 
-Automaton terhuyung. Gelombang balik menyapu mereka dan meruntuhkan sebagian lorong. Kael sempat menangkap Sylvara, tetapi beberapa data penting terkubur bersama puing.
+Ia menunjukkan angka cukup tinggi untuk menanam keraguan.
 
-Debu turun perlahan.
+Nyara sudah memperingatkan tentang kemungkinan yang diperlakukan seperti takdir.
 
-Napas Kael dipenuhi serpihan besi yang melukai paru-paru. Tidak ada sihir yang dapat menghapus harga tersebut begitu saja.
+Kael memalingkan wajah.
 
-Di tengah kerusakan, satu jalan menuju pusat Urdron terbuka.
+"Matikan."
 
-Kael berdiri meski tubuhnya meminta berhenti.
+*Bukankah kau datang mencari kebenaran?*
 
-Kali ini dia mengetahui untuk apa rasa sakit itu dibayar.
+"Kebenaran tidak membutuhkanmu mengatur kamera."
+
+Dia menebas kabel di belakang kristal.
+
+Layar padam.
+
+Pintu keluar terkunci.
+
+Zireth menatapnya. "Sekarang bagian jebakan fisik?"
+
+Dinding mulai bergerak mendekat.
+
+Kael menghela napas.
+
+"Akhirnya sesuatu yang jujur."
+
+Mereka mencari mekanisme sambil ruang menyempit. Kael menggunakan resonansi untuk menemukan gigi penggerak di balik dinding lalu mengacaukan frekuensinya sampai mesin macet.
+
+Pintu terbuka paksa.
+
+Di baliknya, suara lain memanggil.
+
+Bukan Arsitek.
+
+Lemah.
+
+Manusia.
+
+"Tolong... jangan matikan sistem... aku masih di bawah sini."

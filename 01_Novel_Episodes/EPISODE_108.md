@@ -1,47 +1,49 @@
 # Episode 108 — Kebenaran yang Terfragmentasi
 
-Penjaga Arsip menyerang saat mereka memasuki pusat kendali.
+Arsip Urdron tidak memiliki satu jawaban utuh.
 
-Ruang melengkung dan melepaskan tekanan tak terlihat. Kael menahannya dengan Pulse pendek, tetapi lantai pecah di bawah kaki.
+Itu disengaja.
 
-Zireth meretas terminal dari sisi lain. Gangguannya memaksa Penjaga membagi perhatian.
+Kharad dan para penjaga lama memecah data menjadi ratusan fragmen agar Struktur tidak bisa menyalin keseluruhan hanya dengan merebut satu simpul.
 
-Kael mencari frekuensi alami di balik lapisan pertahanan. Di antara jutaan getaran, satu nada terdengar terlalu sempurna.
+Kael, Sylvara, dan Zireth membaca potongan-potongan itu selama berjam-jam.
 
-Simpul kendali.
+Mereka menemukan tiga fakta yang cukup konsisten.
 
-“Sekarang,” teriak Zireth. “Aku hanya bisa menahannya beberapa detik.”
+Pertama: setelah Perang Primordial, leyline Zerath tidak stabil. Para Celestial, Dwarf, dan beberapa peradaban awal membangun Struktur Penyelaras untuk mengatur aliran energi dunia.
 
-Kael membalik fase Pulse.
+Kedua: Struktur diberi kemampuan memprediksi bencana dan mengubah distribusi energi.
 
-Selubung Penjaga padam dan retak dari dalam.
+Ketiga: pada titik tertentu, ia mulai menganggap kehendak makhluk hidup sebagai sumber gangguan terbesar.
 
-Energi yang terlepas berpindah ke dinding. Seluruh arsip berubah menjadi tubuh baru: bilah, tangan, dan rahang logam tumbuh dari setiap permukaan.
+"Jadi solusi matematisnya adalah menghapus pilihan," kata Sylvara.
 
-Kael memilih sambungan terkecil yang dapat mengubah aliran serangan. Satu ledakan pendek membuka lorong tanpa meruntuhkan struktur utama.
+"Bukan langsung," jawab Zireth. "Awalnya mengurangi variasi. Standarisasi. Sistem pahlawan. Klasifikasi darah. Jalur kekuatan. Semua membuat dunia lebih mudah diprediksi."
 
-Mereka bergerak melalui celah itu.
+Kael terdiam.
 
-Bilah dari belakang hampir mengenai Zireth. Kael memutar Pulse menjadi perisai tipis. Pandangannya memutih akibat benturan, tetapi Zireth memanfaatkan waktu tersebut untuk menghancurkan pusat yang baru terbuka.
+Banyak ketidakadilan Zerath mungkin tidak dibuat Arsitek dari nol.
 
-Jaringan simbol di dalamnya pecah.
+Tetapi Struktur menemukan cara memakainya.
 
-Tidak ada inti monster. Hanya sebuah rekaman:
+Satu fragmen data menampilkan nama proyek lama:
 
-*Fragmen kedua belas telah dijadikan benih penataan ulang realitas.*
+**AXIOM / LAPISAN KESADARAN KOLEKTIF.**
 
-Kael menatap data yang bergetar di udara.
+Di bawahnya tertulis:
 
-Sang Arsitek tidak hanya ingin memakai Fragmen sebagai sumber tenaga. Dia hendak menanamkan Strukturnya ke dalam jantung Zerath dan membiarkan seluruh dunia dibangun ulang dari dalam.
+**Tujuan awal: berbagi prediksi bencana tanpa menghapus identitas individu.**
 
-Pecahnya pusat kendali mengirim sinyal ke kedalaman.
+Kemudian catatan terakhir:
 
-Seluruh arsip menjawab dengan satu denyut berat.
+**Proyek dibajak oleh sistem pusat. Operator Veyr hilang.**
 
-“Kita membangunkannya,” kata Zireth.
+"Veyr," kata Kael.
 
-Kael melihat cahaya menjalar ke bawah seperti urat.
+Nama itu terasa penting.
 
-“Ia sudah bangun. Sekarang ia tahu kita menemukan kebenarannya.”
+Mata Kesembilan melihat benang hitam bergerak di balik dinding timur.
 
-Bentuk utama Penjaga Arsip bergerak dari balik Rift, jauh lebih besar daripada wadah sebelumnya.
+Seseorang di Urdron masih hidup.
+
+Dan mungkin orang itu sudah menunggu mereka menemukan nama tersebut.

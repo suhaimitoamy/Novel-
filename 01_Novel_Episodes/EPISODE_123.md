@@ -1,33 +1,47 @@
 # Episode 123 — Penghuni Terowongan Terlupakan
 
-Para penghuni kristal menyerang serentak.
+Mereka bukan monster.
 
-Tekanan ruang menghantam seperti palu. Kael menahannya dengan Pulse pendek, sementara cahaya Gema Pengetahuan memaksa sebagian musuh membagi perhatian.
+Kael hampir menyerang karena melihat mata mereka menyala merah di kegelapan.
 
-Di dalam setiap tubuh terdapat satu nada yang terlalu sempurna—simpul kendali Void.
+Kemudian salah satu makhluk kecil mengangkat tangan kosong.
 
-“Sekarang,” seru Sylvara.
+"Jangan cahaya. Sakit."
 
-Kael membalik fase Pulse. Lapisan kristal retak, tetapi energi yang lepas berpindah ke dinding. Seluruh tambang menumbuhkan bilah dan tangan dari batu hitam.
+Mereka adalah keturunan pekerja tambang yang tidak pernah keluar—Dwarf yang tubuhnya berubah selama generasi karena paparan energi bumi. Kulit abu-abu, mata besar, telinga sensitif terhadap getaran.
 
-Kael memilih sambungan terkecil yang dapat mengubah aliran serangan. Ledakan pendek membuka lorong tanpa meruntuhkan terowongan.
+Mereka menyebut diri Ghorin.
 
-Mereka bergerak di antara serangan.
+Pemimpinnya, perempuan tua bernama Rava, mengenali tanda Volundr pada kompas energi Kael.
 
-Satu bilah hampir mengenai Sylvara. Kael membentuk perisai tipis dan menerima benturan hingga pandangannya putih.
+"Atas memanggil serpihan lagi?"
 
-Sylvara memakai jeda itu untuk mengarahkan Gema Pengetahuan ke pusat kendali.
+"Untuk menyelamatkan teman."
 
-Jaringan simbol pecah.
+Rava tertawa tanpa humor.
 
-Suara-suara muncul dari dalam kristal:
+"Semua yang datang bilang untuk menyelamatkan sesuatu. Kerajaan. keluarga. kota. Pada akhirnya serpihan hanya membuat mereka ingin lebih keras."
 
-Nama, pekerjaan, dan keluarga yang pernah dimiliki para penambang.
+Kael tidak membantah.
 
-Beberapa sosok berhenti menyerang. Tubuh mereka masih terbungkus korupsi, tetapi mata yang sebelumnya kosong mulai menunjukkan kesadaran.
+Dia meminta izin lewat wilayah mereka.
 
-Kael tidak merasa menang.
+Rava menatapnya lama, lalu pada Sylvara.
 
-Pecahnya pusat hanya mengirim sinyal lebih dalam. Tambang menjawab dengan denyut yang membuat gigi bergetar.
+"Kalian boleh lewat jika tidak membawa serpihan melewati desa kami dalam keadaan aktif."
 
-Bentuk utama kristal Void mulai bergerak dari kedalaman, membawa seluruh nama yang belum berhasil mereka pulihkan.
+"Kenapa?"
+
+"Anak-anak mendengar keinginannya."
+
+Kael merasakan kalimat itu di dada.
+
+Serpihan tidak hanya memperkuat pemilik.
+
+Ia memancarkan niat ke sekitar.
+
+Mereka menerima aturan.
+
+Sebelum berangkat, Rava memberi satu peringatan.
+
+"Yang menjaga serpihan bukan penjaga. Itu kalian sendiri setelah mendengar semua hal yang bisa kalian lakukan jika memilikinya."

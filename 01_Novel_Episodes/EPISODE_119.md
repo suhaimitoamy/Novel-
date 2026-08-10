@@ -1,51 +1,75 @@
 # Episode 119 — Puncak Pertarungan Letnan
 
-Bentuk utama badai bilah menutup jalur depan dan belakang.
+Kael berhenti mencoba mengalahkan Veyr dalam kekuatan.
 
-Kael mencoba memutus simpul seperti sebelumnya. Serangannya dipantulkan kembali dan menghantam dada.
+Dia memaksanya memilih.
 
-Dia jatuh pada satu lutut.
+Serangan pertama diarahkan ke kristal dada.
 
-Zireth berdiri di depannya. Bilah geometri menghantam lengan mekanis yang telah rusak.
+Veyr menangkis.
 
-Logam itu pecah dari siku sampai ujung jari.
+Serangan kedua ke panel penopang Hati.
 
-“Zireth!”
+Veyr terpaksa menyelamatkan sistem.
 
-“Aku masih hidup.” Dia menahan rasa sakit dan tetap berdiri. “Selesaikan.”
+Ketiga ke dirinya sendiri—Kael sengaja membuka jalur seolah hendak memakai Void penuh.
 
-Kael melihat sisa lengan yang hancur. Amarah mendorong Ragnarok Pulse untuk meledak penuh.
+Veyr menyerang untuk mencegah.
 
-Dia menolaknya.
+Kael menutup jalur dan memutar.
 
-Dalam irama badai terdapat nada kecil yang masih melawan kendali Sang Arsitek. Kael memakai Pulse tiga fase untuk membuat ruang bagi bagian tersebut, bukan memusnahkan seluruh wadah.
+Zerath's Fang mengenai kabel terakhir di punggung Veyr.
 
-Benang kendali muncul.
+Letnan terhuyung.
 
-Dia menggeser fase sekali.
+"Kau menggunakan prediksiku."
 
-Dua kali.
+"Aku menggunakan kebiasaanmu untuk selalu memilih hasil paling efisien."
 
-Pada perubahan ketiga, seluruh bengkel menjerit.
+Sylvara, dari sisi ruangan, menembakkan satu panah.
 
-*Gunakan entropi penuh,* tawar Sang Arsitek. *Rasa sakit akan berhenti.*
+Veyr menghindar.
 
-Kael menurunkan amplitudo.
+Panah itu bukan untuk dirinya.
 
-“Tidak.”
+Ia mengenai sakelar daya darurat.
 
-Benang tersebut retak.
+Urdron menyala kembali.
 
-Zireth menghantam celah itu menggunakan inti daya terakhir pada lengan yang tersisa. Gelombang balik menyapu mereka dan meruntuhkan sebagian ruang.
+Jaringan kota mencoba menyambung pada Veyr yang sedang berada dalam mode lokal.
 
-Kael menangkap tubuh Zireth sebelum tertimpa puing.
+Dua versi dirinya bertabrakan—kesadaran tunggal dan struktur kolektif.
 
-Ketika debu turun, lengan mekanis lamanya telah hancur sepenuhnya.
+Veyr menjerit.
 
-“Maaf,” kata Kael.
+Kael masuk ke jarak dekat dan menempelkan telapak kiri pada kristal dadanya.
 
-“Jangan buang pengorbananku dengan berhenti di sini.”
+Dia tidak menghancurkan.
 
-Di depan mereka, jalur terakhir menuju inti terbuka.
+Menggeser fase.
 
-Kael membantu Zireth berdiri. Harga perjalanan tersebut kini terlihat jelas pada tubuh mereka, tetapi hitungan mundur belum berhenti.
+Jaringan Urdron kehilangan kecocokan dengan identitas Veyr.
+
+Koneksi putus.
+
+Letnan jatuh.
+
+Kristalnya tetap utuh tetapi redup.
+
+Kael berdiri di atasnya.
+
+"Bunuh aku," kata Veyr.
+
+"Kenapa?"
+
+"Karena aku akan terhubung lagi jika diberi kesempatan."
+
+"Itu pilihanmu nanti."
+
+Veyr menatapnya dengan kebencian dan kebingungan.
+
+Kael berbalik menuju Zireth.
+
+Dia tidak tahu apakah membiarkan Veyr hidup adalah keputusan benar.
+
+Tetapi kali ini keputusan itu dibuat tanpa simulasi memberi jawaban terlebih dahulu.

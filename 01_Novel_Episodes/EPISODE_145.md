@@ -1,43 +1,73 @@
 # Episode 145 — Serpihan Jiwa
 
-Sungai Leyline membawa mereka melalui kegelapan yang dipenuhi cahaya merah, biru, dan emas.
+Kael berjalan tiga langkah sebelum tubuhnya roboh.
 
-Kael melayang tanpa mengetahui arah. Tubuhnya masih utuh, tetapi kesadarannya terasa berlubang.
+Dunia fisik memudar.
 
-Dia mencoba mengingat wajah ibunya.
+Dia kembali berada dalam kehampaan, tetapi bukan Outer Void. Tempat ini tenang—ruang tipis di antara kesadaran dan tubuh.
 
-Bentuknya muncul samar, lalu pecah sebelum mata dan senyum terbentuk.
+Di sekelilingnya melayang potongan-potongan dirinya.
 
-“Jangan paksa,” kata Sylvara. Dia tetap memegang tangannya agar arus tidak memisahkan mereka. “Kenangan itu terluka.”
+Ingatan Aranyel.
 
-“Aku takut kalau berhenti mencoba, aku akan benar-benar melupakannya.”
+Suara Sylvara.
 
-Zireth memindai pola energi Kael. “Sebagian struktur jiwamu tertinggal di Ruang Penciptaan. Bukan sekadar memori. Ada bagian emosi yang terikat padanya.”
+Tawa Zireth.
 
-Kael memahami maksudnya.
+Rasa sakit saat Fragmen pertama masuk.
 
-Dia masih tahu Aranyel adalah rumahnya. Masih tahu kehilangan ibunya menghancurkannya. Namun rasa hangat yang seharusnya menyertai kenangan itu telah hilang, menyisakan fakta dingin.
+Kebencian terhadap Rowan.
 
-Arus di sekitar mereka mendadak melambat.
+Rasa takut pada dirinya sendiri.
 
-Potongan cahaya kecil muncul dari belakang dan mengikuti Kael. Di dalamnya terdapat serpihan suara, aroma kayu rumah, dan tawa yang hampir dia kenali.
+Kael mengerti.
 
-“Bagian jiwamu?” tanya Sylvara.
+Saat keluar dari Hati terlalu cepat, resonansinya terbelah. Tubuh kembali ke Zerath, tetapi sebagian pola kesadarannya tertinggal di jalur.
 
-Kael meraih salah satu serpihan.
+Sang Jantung tidak bisa memilih bagian mana yang 'Kael'.
 
-Begitu disentuh, rasa sakit menembus dadanya. Fragmen itu tidak kembali, tetapi memperlihatkan bagaimana Sistem Pahlawan memanen energi jiwa. Sebagian milik Kael telah tersangkut dalam mekanisme yang sama.
+Dia harus melakukannya sendiri.
 
-“Ruang Penciptaan tidak hanya mengambilnya,” kata Kael. “Sistem lama menarik serpihan itu sebagai bahan bakar.”
+Masalahnya setiap serpihan mengaku penting.
 
-Zireth mengerutkan kening. “Berarti kehilanganmu masih terhubung ke jaringan para dewa.”
+Rasa bersalah berkata tanpa dirinya Kael akan menjadi monster.
 
-Kael melepaskan cahaya tersebut sebelum dirinya ikut terseret.
+Amarah berkata tanpa dirinya Kael tidak akan pernah melawan.
 
-“Aku tidak akan mengejarnya sekarang. Kalau kita merusak arus ini, semua jiwa di dalam sistem bisa ikut hancur.”
+Ketakutan berkata tanpa dirinya Kael akan ceroboh.
 
-Keputusan itu terasa seperti meninggalkan bagian dirinya untuk kedua kali.
+Cinta kepada teman berkata tanpa dirinya Kael tidak punya alasan pulang.
 
-Di depan mereka, jalur menuju permukaan mulai terbuka. Namun arusnya tidak stabil dan berputar ke arah yang salah.
+Kael berhenti mencoba memilih mana yang harus dibuang.
 
-Untuk pulang, mereka harus melewati Arus Balik yang memakan koordinat dan waktu.
+Itu jebakan lama dalam bentuk baru.
+
+Dirinya tidak tersusun dari emosi 'baik' saja.
+
+Dia mengambil semuanya.
+
+Bukan memberi semua bagian kendali.
+
+Mengakui mereka sebagai miliknya.
+
+Satu demi satu serpihan masuk kembali.
+
+Tinggal satu cahaya kecil di luar tubuh.
+
+Bukan ingatan Kael.
+
+Denyut Hati Dunia.
+
+Ia menempel pada dadanya seperti titik cahaya.
+
+Bukan Fragmen baru.
+
+Hanya penanda frekuensi—cara untuk menemukan jalan kembali tanpa membuka Pintu Hati secara paksa.
+
+Kael membuka mata di salju.
+
+Untuk pertama kalinya dia tahu dengan pasti satu hal sederhana:
+
+Identitas bukan bagian dirinya yang paling murni.
+
+Identitas adalah siapa yang memilih ketika semua bagian berbicara bersamaan.

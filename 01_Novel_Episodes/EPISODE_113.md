@@ -1,41 +1,51 @@
 # Episode 113 — Ruang Kontrol Sekunder
 
-Letnan Arsitek menyerang sebelum mereka mencapai pusat.
+Mereka meninggalkan Pintu Hati sebelum terbuka penuh.
 
-Ruang terpelintir dan melepaskan tekanan seperti palu. Kael menahannya dengan Pulse pendek, lalu bergeser agar serangan berikut menjauh dari Sylvara.
+Kael membenci keputusan itu, tetapi bisikan Jantung terlalu jelas: jika Arsitek masih menahan sesuatu, memutus sistem tanpa memahami beban hanya mengulang kesalahan yang sama.
 
-Gema Pengetahuan memancarkan cahaya dari sisi lain. Untuk sesaat, Letnan harus membagi perhatian.
+Ruang kontrol sekunder berada dua tingkat di atas.
 
-Kael mencari frekuensi alami di balik zirah geometris. Di antara jutaan getaran, satu nada terdengar terlalu sempurna.
+Ketika mereka tiba, semua panel menampilkan satu wajah.
 
-Simpul kendali.
+Pria berusia sekitar empat puluh tahun, rambut hitam pendek, mata abu-abu, ekspresi nyaris tanpa emosi.
 
-“Sekarang,” seru Sylvara.
+"Kael Drayven," katanya dari puluhan layar. "Kharad berhasil mempertahankan arsip lebih lama daripada estimasi."
 
-Kael membalik fase Pulse. Pertahanan Letnan padam dan retak dari dalam.
+"Veyr?"
 
-Namun energi yang lepas berpindah ke dinding. Ruang inti berubah menjadi tubuh baru bagi penjaga: bilah dan tangan logam tumbuh dari setiap permukaan.
+Wajah itu tersenyum tipis.
 
-Kael menunggu gelombang kendali melewati satu sambungan, lalu menghantamnya dengan ledakan kecil. Lorong terbuka tanpa meruntuhkan Jantung Mekanis.
+"Nama lama."
 
-Mereka menerobos.
+Zireth membeku. "Operator proyek Axiom."
 
-Satu bilah hampir mengenai Sylvara dari belakang. Kael membentuk perisai tipis, menerima benturan yang memutihkan pandangannya.
+"Salah satu."
 
-Sylvara memakai kesempatan itu untuk mengarahkan Gema Pengetahuan ke pusat yang terbuka.
+Kael melihat benang hitam pada semua layar tetapi tidak menemukan tubuh.
 
-Jaringan simbol pecah.
+"Kau bekerja untuk Arsitek."
 
-Rekaman yang tersembunyi muncul:
+"Aku bekerja untuk keberlangsungan Zerath. Perbedaannya hanya terlihat penting bagi mereka yang hidup kurang dari satu abad."
 
-*Jantung Mekanis adalah penjara bagi gema kesadaran dunia.*
+Panel menampilkan simulasi kehancuran: tanpa Struktur, leyline meledak, Fragmen saling menarik, dunia terbelah.
 
-Denyut besar mengguncang Urdron.
+"Ini ancaman?"
 
-“Kita membangunkan pusatnya,” kata Sylvara.
+"Data."
 
-Kael memandang cahaya yang menjalar ke bawah.
+Kael teringat pelajaran Nyara.
 
-“Ia sudah bangun. Sekarang ia tahu kita dapat memutus kendalinya.”
+"Data yang kau pilih tampilkan."
 
-Dari kedalaman, bentuk utama Letnan Arsitek mulai bergerak.
+Veyr mengangguk.
+
+"Bagus. Modelmu membaik."
+
+Semua pintu ruang kontrol terkunci.
+
+"Sekarang aku ingin menguji apakah peningkatan itu cukup untuk membenarkan keberadaanmu."
+
+Lantai terbuka.
+
+Dari bawah, konstruksi tempur naik mengelilingi mereka.

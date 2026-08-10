@@ -1,35 +1,57 @@
 # Episode 125 — Jebakan Kristal Void
 
-Pusat Terowongan Korup terbuka di depan mereka.
+Arsitek menunggu mereka di jalan pulang.
 
-Kristal Void menyelimuti para penghuni tanpa nama dan membentuk satu pertahanan berlapis. Kael, Sylvara, dan para penambang yang mulai sadar bergerak bersama.
+Bukan dengan pasukan.
 
-Gema Pengetahuan memecah lapisan luar. Kael menyusupkan resonansi rendah ke celah yang terbuka.
+Dengan satu kristal ungu yang tumbuh di tengah terowongan.
 
-Dia memilih denyut dasar dan menyelaraskan tubuh dengannya. Struktur pusat terlihat sebagai jaring cahaya dengan benang kendali pada bagian terdalam.
+Mata Kesembilan menunjukkan benda itu terhubung pada pecahan Gema yang dibawa Kael.
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing.
+"Jangan dekat," katanya.
 
-Kael membiarkan Sylvara dan para penghuni mengisi bagian yang tidak mampu ditahannya sendiri.
+Terlambat untuk menghindari aktivasi.
 
-Satu demi satu simpul padam.
+Kristal Void memancarkan frekuensi yang meniru keinginan Kael sendiri untuk menyelamatkan Zireth.
 
-Kristal mengerahkan bentuk terakhir. Ruang melipat ke dalam dan seluruh cahaya hilang.
+Pecahan Gema merespons.
 
-Kael hanya mendengar detak jantungnya serta suara orang-orang yang mulai mengingat nama mereka.
+Cahayanya membesar.
 
-Dia mengikuti suara itu dan melepaskan satu Pulse pendek ke frekuensi inti.
+Keinginan Kael ikut membesar.
 
-Kristal retak tanpa ledakan.
+Tiba-tiba aturan Rava terasa bodoh. Kenapa hanya mengambil sedikit? Mengapa tidak kembali dan membawa seluruh serpihan? Dengan kekuatan itu Zireth bisa dibuat lebih kuat daripada sebelumnya.
 
-Benang kendali terbakar. Energi alami wadah tetap hidup, dan tubuh para penambang terlepas dari lapisan hitam yang membungkus mereka.
+Sylvara menamparnya.
 
-Rekaman terakhir muncul:
+"Kau berubah."
 
-*Keserakahan para raja Dwarf pernah memberi Sang Arsitek jalan masuk.*
+Kael menahan tangan pada pipi.
 
-Tidak ada sorak.
+Pikiran jernih kembali sedikit.
 
-Di balik pusat yang runtuh, suara logam berat bergema dari makam tambang Volundr.
+"Kristalnya memperkuat resonansi serpihan."
 
-Seorang Penjaga Serpihan bangkit untuk menjaga Logam Bintang yang selama ini terkubur.
+Mereka tidak bisa menghancurkan kristal langsung—pecahan Gema akan ikut meledak.
+
+Kael memisahkan tiga energi dan membuat ruang hening di antaranya, lalu memasukkan pecahan ke dalam jeda resonansi itu.
+
+Tanpa sinyal niat untuk diikuti, kristal Void kehilangan target.
+
+Sylvara menembaknya.
+
+Benda itu pecah.
+
+Kael jatuh berlutut.
+
+"Terima kasih sudah menampar."
+
+"Kapan saja."
+
+Di lengan kirinya, peta jaringan Arsitek mencatat teknik baru tersebut.
+
+Kael merasakan itu.
+
+Musuh mereka masih belajar.
+
+Begitu juga dirinya.

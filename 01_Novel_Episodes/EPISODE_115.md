@@ -1,51 +1,67 @@
 # Episode 115 — Pertarungan Pembuka
 
-Letnan Arsitek menunggu di pusat Jantung Mekanis.
+Kael tidak menyerang Veyr.
 
-Lapisan-lapisan energi mengelilinginya dengan irama berbeda, seolah puluhan hukum dipaksa menjaga satu wadah.
+Dia menyerang kabel.
 
-“Kita hadapi bersama,” kata Sylvara. “Jangan jadikan kami penonton.”
+Zerath's Fang memutus satu sambungan dari tulang belakang Letnan Arsitek. Tidak ada darah—hanya kilatan data ungu.
 
-Kael mengangguk.
+Veyr menoleh seolah tertarik.
 
-Gema Pengetahuan membuka lapisan luar. Kael memasukkan gelombang lawan-fase ke celah yang muncul.
+"Prioritas tepat."
 
-Tekanan menyambar dari berbagai arah. Dia tidak mencoba menahan semuanya. Kael memilih denyut dasar dan menyelaraskan tubuh dengannya.
+Konstruksi tempur bergerak serentak.
 
-Struktur musuh tampak sebagai jaring cahaya.
+Sylvara memaksa dua unit bertabrakan dengan panah pembelok. Zireth mengambil alih satu lengan mekanis musuh dan menggunakannya sebagai pemancar sonik.
 
-Di tengahnya terdapat benang kendali Sang Arsitek.
+Kael menembus formasi menuju Veyr.
 
-Pulse merah memisahkan materi. Biru menahan energi. Ungu mengurai pola asing. Ketiganya hampir saling memusnahkan sampai Kael kembali memahami inti Jalan Keempat.
+Setiap kali hampir mencapai, jalur lantai berubah. Dinding muncul. Gravitasi bergeser.
 
-Keseimbangan bukan kekuatan yang memerintah.
+Veyr tidak bertarung sebagai individu.
 
-Ia adalah hubungan yang menjaga semua sisi tetap hidup.
+Seluruh Urdron adalah tubuhnya.
 
-Serangan Sylvara tiba pada waktu yang tepat. Satu demi satu simpul Letnan padam.
+Kael membuka Mata Kesembilan.
 
-Sang penjaga mengerahkan bentuk terakhir. Ruang melipat ke dalam dan seluruh cahaya hilang.
+Kesalahan kedua hari itu.
 
-Kael hanya mendengar detak jantung serta suara Sylvara yang memanggil namanya.
+Terlalu banyak benang.
 
-Dia mengikuti suara itu dan melepaskan satu Pulse pendek ke frekuensi inti.
+Setiap mesin, pintu, pipa, lampu terhubung pada Veyr. Tidak mungkin memutus semuanya.
 
-Zirah geometris retak tanpa ledakan.
+Kael menutup penglihatan dan kembali mendengarkan.
 
-Benang kendali terlepas, sementara energi asli wadah tetap bertahan.
+Meski jaringan besar, perintah Veyr harus melewati sinkronisasi pusat.
 
-Kael jatuh dan Sylvara menangkap bahunya.
+Ada jeda kecil setiap kali kota mengubah konfigurasi.
 
-Rekaman di pusat terbuka:
+Satu per seratus detik.
 
-*Jantung ini menahan gema kesadaran dunia.*
+Cukup.
 
-Tak ada waktu untuk memahami seluruh maknanya.
+"Zireth! Buat dia mengubah sebanyak mungkin sistem sekaligus!"
 
-Suara mekanis memenuhi ruangan.
+"Itu rencanamu? Membuat kota sibuk?"
 
-**Protokol kiamat lokal diaktifkan.**
+"Ya!"
 
-Hitungan mundur muncul pada dinding.
+"Aku menyukainya!"
 
-Mereka telah mengalahkan Letnan, tetapi Urdron mulai menghancurkan dirinya sendiri.
+Zireth melepaskan gangguan ke semua kanal.
+
+Lampu, lift, rel, pintu merespons serentak.
+
+Veyr berhenti satu kedipan.
+
+Kael sudah bergerak.
+
+Zerath's Fang menembus kristal geometris di dada Letnan.
+
+Bilah masuk beberapa sentimeter.
+
+Veyr menangkap tangan Kael.
+
+"Lebih cepat dari model."
+
+Lalu seluruh jaringan Urdron mengalirkan energi ke tubuhnya.

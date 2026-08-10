@@ -1,57 +1,57 @@
 # Episode 109 — Jalan Menuju Inti
 
-Penjaga Arsip menutup jalur depan dan belakang.
+Data Kharad menunjukkan jalur menuju Hati Dunia.
 
-Kael mencoba pola sebelumnya. Musuh telah menyesuaikan diri. Pulse dipantulkan kembali dan menghantam dadanya.
+Tidak langsung.
 
-Dia jatuh pada satu lutut.
+Urdron terhubung pada leyline utama melalui poros geotermal yang turun lebih dalam daripada tambang mana pun. Di dasar poros terdapat Pintu Hati—mekanisme yang hanya terbuka ketika beberapa frekuensi dunia berada dalam keseimbangan.
 
-Data asing menyerbu pikirannya dan membakar sebagian ingatan yang baru saja dia sentuh. Wajah, suara, dan potongan masa lalu berubah kabur.
+"Tentu saja," kata Zireth. "Karena kenapa ada pintu biasa ketika bisa membuat persamaan kosmik."
 
-“Kita mundur,” kata Zireth. “Tidak ada data yang sepadan dengan nyawamu.”
+Mereka turun melalui rel servis.
 
-Jalur belakang sudah tertutup.
+Semakin dalam, panas meningkat. Es menghilang, digantikan batu merah dan logam yang terus berdenging.
 
-Kael mendengarkan frekuensi Penjaga. Di balik kebisingan terdapat nada lemah yang selalu goyah ketika peretasan Zireth menyentuh tubuhnya.
+Kael merasakan Hati Dunia sebelum melihat pintunya.
 
-Sesuatu di dalam wadah tersebut masih berusaha melawan.
+Denyut sangat lambat.
 
-Kael tidak menyerang inti. Dia memakai interferensi fase untuk memisahkan data alami Urdron dari energi Void yang menindihnya.
+Satu setiap hampir satu menit.
 
-Setiap gelombang dibuat tipis dan tepat.
+Ketika terjadi, seluruh batu di sekeliling mereka terasa bergerak sepersekian milimeter.
 
-Penjaga bereaksi liar. Tekanan membuat darah mengalir dari telinga Kael. Zireth berdiri di depan dan menahan serangan yang tidak mampu Kael lihat seluruhnya.
+Zerath benar-benar memiliki ritme sendiri.
 
-“Lakukan,” katanya. “Selesaikan.”
+Di pertengahan poros, jalur terputus oleh retakan dimensi.
 
-Benang kendali muncul dalam indranya—dingin, geometris, dan terhubung ke tempat jauh di luar Zerath.
+Bintang terlihat di baliknya.
 
-Kael mengubah fase sekali.
+"Rift dari langit sudah mencapai bawah," kata Sylvara.
 
-Dua kali.
+Kael membuka Mata Kesembilan.
 
-Pada perubahan ketiga, seluruh arsip mengeluarkan jeritan logam.
+Benang ungu dari retakan menembus ke arah Pintu Hati.
 
-Sang Arsitek kembali menawarkan jalan mudah:
+Arsitek sedang mencoba mencapai sistem dunia dari dua sisi.
 
-*Gunakan entropi penuh. Akhiri rasa sakit.*
+"Kita harus lebih cepat."
 
-Ragnarok Pulse berdenyut lapar.
+Zireth menatap celah selebar dua puluh meter.
 
-Kael menurunkan amplitudo.
+"Dan menyeberang bagaimana?"
 
-“Tidak.”
+Kael melihat rel tua di dinding.
 
-Benang kendali retak.
+Kemudian tiga frekuensi dalam tubuhnya.
 
-Peretasan Zireth menghantam celah yang sama. Penjaga terhuyung, tetapi gelombang balik meruntuhkan bagian arsip.
+"Kita tidak menyeberang Rift. Kita buat Rift lupa ada celah di sini selama beberapa detik."
 
-Kael sempat menarik Zireth menjauh. Sebagian data dan ingatannya tertinggal di bawah puing.
+Zireth menatapnya.
 
-Ketika debu turun, satu jalan menuju inti terbuka.
+"Kalimatmu semakin tidak sehat."
 
-Kael berdiri dengan tubuh gemetar dan kepala yang terasa semakin kosong.
+"Tapi kau punya ide cara melakukannya."
 
-Harga itu tidak dapat dikembalikan.
+"Sayangnya, ya."
 
-Namun selama dia masih dapat memilih, Sang Arsitek belum memilikinya.
+Mereka mulai menyiapkan resonansi bersama.

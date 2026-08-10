@@ -1,47 +1,55 @@
 # Episode 102 — Reruntuhan Industri Kuno
 
-Bayangan memanjang di Urdron meski lembah itu tidak mengenal matahari.
+Lampu-lampu Urdron hidup tanpa penghuni.
 
-Kael berhenti di antara rangka baja yang terkubur. Ragnarok Pulse menangkap irama asing di bawah bunyi mesin tua—terlalu teratur untuk berasal dari kota yang telah mati.
+Roda gigi sebesar rumah mulai berputar. Rel pengangkut bergerak membawa keranjang kosong. Palu tempa otomatis menghantam landasan yang sudah tidak menyimpan logam.
 
-Automaton penambang yang dikendalikan Sang Arsitek masih bergerak di kejauhan. Setiap denyut pada tubuh mereka mengikuti pola yang sama, seperti satu pikiran memakai banyak cangkang.
+Kota mati itu mengulang kebiasaan lama.
 
-“Ada lapisan lain di bawah kota,” kata Sylvara. “Kalau kita membukanya dengan paksa, seluruh struktur bisa runtuh.”
+Kael membenci pemandangan tersebut karena terasa terlalu mirip tubuh yang bergerak setelah jiwanya pergi.
 
-Kael mengangguk.
+"Jangan sentuh panel apa pun," kata Zireth.
 
-Dia menempelkan ujung jari pada rangka baja dan mengirim resonansi rendah. Getaran menyebar melalui lorong, dinding, dan pilar sebelum kembali membawa gambaran rongga di bawah tanah.
+"Kau mengatakan itu sambil menyentuh panel."
 
-Dua gema tiba pada waktu berbeda.
+"Aku profesional."
 
-Di antara keduanya tersembunyi sebuah ruangan yang sengaja dihapus dari geometri kota.
+Sylvara mendengus.
 
-Zireth meretas panel kuno, sementara panah cahaya Sylvara memotong segel yang masih aktif. Mereka membuka celah sempit dan masuk.
+Mereka melewati aula produksi tempat ratusan rangka mekanis Dwarf tergantung dari rantai. Sebagian berbentuk pekerja. Sebagian tentara.
 
-Udara di dalam kering dan berbau logam tua. Simbol-simbol rusak memenuhi dinding. Satu rekaman masih berulang: para pekerja Urdron berusaha menahan sesuatu, lalu cahaya putih memotong gambar sebelum wajah mereka terlihat.
+Mata Kesembilan menunjukkan satu hal yang tidak terlihat normal: semua jalur energi mengarah ke bawah.
 
-Kael menyentuh proyeksi tersebut.
+"Kota ini bukan pabrik utama," kata Kael.
 
-Asap memenuhi inderanya. Ketakutan orang-orang mati masuk ke kepalanya bersama satu perintah dingin:
+Zireth mengikuti tatapannya. "Pabrik di atas hanya penutup."
 
-*Serahkan kehendakmu demi keselamatan.*
+Mereka menemukan lift industri di pusat aula.
 
-Kael memutus koneksi. Darah tipis mengalir dari hidungnya.
+Tombolnya sudah mati.
 
-“Ini bukan serangan biasa,” katanya. “Seseorang menanam ketakutan sampai penduduk percaya bahwa rantai adalah perlindungan.”
+Begitu Kael mendekat, rune di lantai menyala dengan warna merah tua—warna yang sama dengan cahaya Primordial Earth Core di Aethelgard.
 
-Dinding mendadak bergerak merapat.
+Sebuah suara tua muncul dari pengeras logam.
 
-Automaton telah menemukan ruang tersebut.
+*Darah pewaris terdeteksi.*
 
-Kael menahan kedua sisi dengan Pulse seimbang. Tulang lengannya bergetar, tetapi Sylvara dan Zireth berhasil keluar. Dia menyusul sesaat sebelum ruangan mengatup menjadi garis logam tanpa sambungan.
+Sylvara menatap Kael. "Kenapa semua tempat kuno mengenalmu?"
 
-Sebuah potongan data tetap berdenyut di telapak tangannya.
+"Aku sedang mempertimbangkan mengganti nama."
 
-Logam Urdron masih menyimpan gema Forge God.
+Lift bergerak turun.
 
-Pengunci di lorong depan terbuka satu demi satu. Cahaya asing menyala menuju pusat kendali.
+Jauh ke bawah.
 
-Di ujungnya, automaton penambang berdiri menunggu.
+Di dinding poros, Kael melihat pahatan sejarah Urdron: Dwarf menambang batu bercahaya, membangun mesin, lalu menemukan sesuatu di kedalaman yang membuat seluruh ukiran berikutnya sengaja dihancurkan.
 
-Penyelidikan mereka telah berubah menjadi tantangan terbuka.
+Lift berhenti.
+
+Pintu terbuka pada terowongan besar.
+
+Di ujungnya berdiri satu patung logam raksasa bermata merah.
+
+Ketika Kael melangkah keluar, patung itu menundukkan kepala.
+
+*Pewaris luka. Forge God menunggu gema yang hilang.*

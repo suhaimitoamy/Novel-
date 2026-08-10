@@ -1,53 +1,51 @@
 # Episode 106 — Pusat Data Urdron
 
-Pintu menuju arsip bawah tanah terbuka tanpa suara.
+Pusat data lebih mirip makam daripada ruang arsip.
 
-Kael melangkah masuk. Penglihatannya berbayang merah, sementara Ragnarok Pulse menangkap denyut patah di balik dinding.
+Ribuan kapsul logam berdiri berjajar. Sebagian kosong. Sebagian masih memiliki lampu hijau.
 
-Tujuan mereka terdengar sederhana: menemukan cetak biru jantung mekanis.
+Di kapsul paling ujung, Kael menemukan Kharad.
 
-Namun setiap permukaan di ruang tersebut membawa bekas pertarungan lama. Kael menyentuh lantai dan mengirim getaran kecil ke dalam kegelapan.
+Tubuh Dwarf itu tinggal kulit tipis di atas tulang. Janggutnya telah tumbuh sampai memenuhi separuh kapsul. Satu matanya tertutup; mata lain masih mengikuti gerak Kael.
 
-Gema kembali dengan bentuk yang berubah.
+"Kau... lebih muda dari perkiraan."
 
-Sesuatu sudah mengetahui kedatangan mereka.
+"Aku sering dengar itu dari benda berusia ribuan tahun."
 
-“Jangan jawab tempat ini dengan kekuatan penuh,” kata Zireth. “Kita belum tahu apa yang ditahannya.”
+Kharad tertawa pelan lalu batuk.
 
-Dia menghubungkan lengan mekanis ke terminal kuno. Sylvara menjaga lorong belakang, sementara Kael memisahkan data dari energi Void dengan interferensi fase.
+Zireth menghubungkan datapad ke konsol.
 
-Pulse menyebar setipis riak.
+"Ada akses asing aktif."
 
-Dinding, lantai, dan udara mengembalikan peta tekanan ke tulangnya. Di antara pola alami terdapat denyut asing milik Penjaga Arsip dan gelombang Rift.
+Kharad mengangguk lemah. "Sisi timur. Dia tidak perlu membuka pintu. Sistem... mengenalinya."
 
-Ruangan segera membalas.
+Kael membuka Mata Kesembilan.
 
-Lantai terbelah. Serpihan logam terangkat, sementara jarak di depan mereka terlipat menjadi jebakan.
+Benang hitam bergerak menuju pusat arsip.
 
-Kael menarik Zireth mundur sesaat sebelum tepi retakan menyapu tempatnya.
+"Siapa?"
 
-Dia dapat merobek seluruh penghalang, tetapi sesuatu yang disimpan di baliknya mungkin ikut hancur.
+Kharad menatap dinding.
 
-Kael menggeser fase Pulse beberapa derajat. Sinkronisasi jebakan goyah dan membuka celah selebar bahu.
+"Salah satu yang dulu membantu membangun kunci."
 
-Mereka menerobos satu per satu.
+Sebelum Kael sempat bertanya, seluruh kapsul menyala.
 
-Tekanan paling besar menghantam Kael di depan. Rasa sakit bergerak dari telapak tangan ke bahu, tetapi dia mempertahankan iramanya sampai Sylvara dan Zireth lewat.
+Data muncul di udara: diagram Hati Dunia, jalur leyline, dan sebuah jaringan geometris yang sangat mirip Arsitek.
 
-Jalur di belakang menutup tanpa sambungan.
+Namun label pada diagram tua berbeda.
 
-Di sisi lain, garis-garis geometris memenuhi dinding. Polanya terlalu tepat untuk terbentuk secara alami. Fragmen Kael mengenali kehendak dingin yang terkandung di dalamnya.
+**STRUKTUR PENYELARAS.**
 
-Seseorang telah memaksa arsip Urdron melupakan bentuk aslinya.
+"Arsitek punya nama lain," gumam Kael.
 
-“Kita baru melewati pintu,” kata Zireth, “tapi rasanya seperti masuk ke mulut sesuatu.”
+Kharad menutup mata.
 
-Debu mulai membentuk lingkaran di udara.
+"Dulu bukan musuh. Dulu... alat untuk mencegah Zerath merobek dirinya sendiri setelah Perang Primordial."
 
-Tekanan berubah.
+Kael merasa dingin yang tidak berasal dari ruangan.
 
-Dari batas cahaya, sosok Penjaga Arsip muncul bersama retakan Rift yang membuka jalan di belakangnya.
+Arsitek tidak datang dari luar dan menaklukkan dunia.
 
-Kael menurunkan pusat tubuh dan mengangkat tangan.
-
-Perjalanan mereka ke Pusat Data baru saja dimulai.
+Sebagian dirinya lahir dari upaya menyelamatkan dunia.

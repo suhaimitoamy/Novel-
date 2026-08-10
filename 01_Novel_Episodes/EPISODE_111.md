@@ -1,35 +1,57 @@
 # Episode 111 — Ujian Keseimbangan
 
-Bau ozon dan batu hangus memenuhi ruang inti Urdron.
+Sosok di depan Pintu Hati tidak hidup.
 
-Kael berhenti di depan pintu tanpa sambungan. Ragnarok Pulse menangkap irama dingin di baliknya, sementara Gema Pengetahuan di tangan Sylvara memancarkan cahaya lemah.
+Kael mengetahuinya dari cara Mata Kesembilan gagal menemukan benang kemungkinan di sekitarnya.
 
-“Jangan pakai kekuatan penuh,” kata Sylvara. “Kita belum tahu apa yang ditahan tempat ini.”
+Bentuknya Dwarf, tetapi seluruh tubuh tersusun dari logam cair yang terus mempertahankan wajah sama.
 
-Kael mengangguk dan mengirim gelombang lawan-fase ke inti singularitas.
+"Akses Hati Dunia membutuhkan keseimbangan empat unsur," katanya.
 
-Resonansi kembali membawa gambaran lorong yang telah dilipat menjadi jebakan. Permukaan di depan terbelah, dan serpihan logam melayang tanpa jatuh.
+"Kami hanya bertiga," jawab Zireth.
 
-Kael menarik Sylvara mundur sesaat sebelum retakan menyapu tempatnya.
+"Pernyataan tidak relevan."
 
-Dia dapat merobek penghalang itu, tetapi Leyline Dwarf di bawah Urdron mungkin ikut mati. Kael menggeser fase Pulse beberapa derajat. Sinkronisasi jebakan goyah dan membuka celah selebar bahu.
+Kael hampir memutar mata.
 
-Mereka menerobos bergantian.
+Empat lingkaran muncul di lantai: panas, dingin, kehampaan, dan satu lingkaran kosong.
 
-Gema Pengetahuan menjaga bagian belakang. Kael menerima tekanan terbesar di depan, menahan irama agar lorong tidak runtuh.
+"Yang keempat apa?"
 
-Di balik penghalang, garis-garis geometris memenuhi dinding seperti kalimat dalam bahasa mesin. Fragmen di dada Kael mengenali kehendak Sang Arsitek pada susunan tersebut.
+Penjaga tidak menjawab.
 
-Seseorang telah memaksa ruang inti Urdron melupakan bentuk aslinya.
+Kael masuk ke tiga lingkaran pertama satu per satu. Masing-masing bereaksi pada energinya.
 
-“Rasanya seperti kita baru masuk ke mulut sesuatu,” bisik Sylvara.
+Lingkaran kosong tetap gelap.
 
-Jalan di belakang menutup.
+Sylvara mencoba cahaya. Tidak ada respons.
 
-Tekanan udara berubah. Debu membentuk lingkaran di sekitar mereka.
+Zireth mencoba listrik dan sonik. Sama.
 
-Dari cahaya yang terlipat muncul Letnan Arsitek—sosok berzirah geometri tajam, tanpa wajah dan tanpa celah pada permukaannya.
+Kael memandang ruang kosong itu.
 
-Kael mengangkat tangan.
+Empat bukan berarti elemen keempat.
 
-Untuk mencapai Jantung Mekanis tanpa mematikan Leyline, mereka harus melewati penjaga tersebut.
+Nyara pernah memperingatkan tentang nama Jalan Keempat. Bukan jenis energi baru.
+
+Kael berdiri di lingkaran kosong tanpa memanggil kekuatan apa pun.
+
+Hanya napasnya.
+
+Denyut jantung.
+
+Pilihan sadar.
+
+Lingkaran menyala putih.
+
+Penjaga menundukkan kepala.
+
+"Unsur keempat: kehendak yang tidak diturunkan dari sumber energi. Akses diterima."
+
+Pintu Hati terbuka sedikit.
+
+Kael tersenyum tipis.
+
+Untuk sekali ini, jawaban yang dicari bukan kekuatan baru.
+
+Itu dirinya sendiri.

@@ -1,25 +1,45 @@
 # Episode 131 — Langkah Baru
 
-Di bawah Karag Thürm, Persimpangan Leyline berdenyut seperti nadi raksasa.
+Zireth belajar berjalan lagi dalam dua jam.
 
-Kael mengirim induksi elektromagnetik melalui tanah untuk menguji lengan bintang Zireth dan mencari jalur menuju Hati Dunia.
+Belajar berhenti membutuhkan lebih lama.
 
-Gema kembali membawa peta ruang yang telah dilipat menjadi jebakan. Kael menarik Zireth mundur sebelum retakan menyapu tempatnya.
+Lengan barunya bereaksi pada leyline di bawah Urdron dan sesekali menarik tubuhnya setengah langkah ke arah arus energi terkuat.
 
-“Kita belum tahu apa yang ditahan tempat ini,” kata Zireth. “Jangan pakai kekuatan penuh.”
+"Seperti punya kompas di tulang," katanya.
 
-Kael menggeser fase Pulse beberapa derajat. Celah selebar bahu terbuka dan mereka menerobos bergantian. Lengan bintang Zireth menjaga bagian belakang, sementara panah penanda Sylvara menunjukkan jalur yang stabil.
+"Kedengarannya menyenangkan."
 
-Di balik penghalang, garis geometris memenuhi dinding seperti bahasa mesin. Fragmen Kael mengenali kehendak dingin Sang Arsitek pada pola tersebut.
+"Kau yang punya mata tambahan tidak boleh mengejek."
 
-Seseorang pernah memaksa simpul energi ini melupakan bentuk alaminya.
+Mereka meninggalkan ruang tempa setelah Volundr memastikan struktur Zireth stabil.
 
-Jalan di belakang menutup tanpa sambungan.
+Veyr sudah tidak ada di tempat pengikatan.
 
-Tekanan berubah. Debu membentuk lingkaran di udara.
+Tidak ada tanda perlawanan.
 
-Dari cahaya muncul Penjaga Persimpangan, sosok yang menilai niat setiap pelintas.
+Hanya satu kalimat tertulis pada panel:
 
-Kael membuka telapak tangan.
+**AKU MEMILIH PERGI. CATAT ITU SEBAGAI DATA PERTAMA.**
 
-Untuk mencapai Hati Dunia, mereka harus membuktikan bahwa tujuan mereka bukan menguasai arus Zerath.
+Kael membaca dua kali.
+
+Dia tidak tahu apakah keputusan membiarkan Veyr hidup akan kembali menghantui mereka.
+
+Itu tetap keputusan yang harus ditanggung.
+
+Zireth merasakan arus leyline mengarah keluar Urdron.
+
+"Ada persimpangan besar di timur."
+
+Kael memandang Pintu Hati yang masih tertutup.
+
+Mereka belum selesai dengan Urdron.
+
+Namun Sang Jantung sendiri telah menyuruh mereka memahami apa yang ditahan Arsitek sebelum memutus sistem.
+
+Langkah berikutnya bukan memaksa pintu.
+
+Mengikuti aliran dunia.
+
+Mereka berangkat membawa data Kharad, simpul Seraphis, dan satu Zireth yang secara teknis sedikit lebih banyak mineral daripada sebelumnya.

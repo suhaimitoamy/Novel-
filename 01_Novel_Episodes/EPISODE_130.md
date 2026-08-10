@@ -1,47 +1,85 @@
 # Episode 130 — Penempaan Ulang
 
-Tungku Volundr menyala tanpa bahan bakar.
+Ritual dimulai dengan satu dentang.
 
-Penjaga Serpihan berdiri di depannya dengan lapisan gravitasi yang saling mengunci. Zireth memegang Logam Bintang pada satu-satunya tangan yang tersisa.
+Tidak ada palu fisik.
 
-“Kita selesaikan bersama,” katanya.
+Volundr memukul frekuensi ruang, dan tubuh Zireth menjawab seperti logam di landasan.
 
-Kael mengangguk.
+Pecahan Gema mencair menjadi cahaya merah kebiruan. Ia masuk ke lengan mekanis yang hancur, tulang rusuk, lalu sepanjang tulang belakang.
 
-Zireth memakai serpihan untuk memecah lapisan luar. Kael menyisipkan penggeseran gravitasi mikro ke celah yang terbuka.
+Kael memegang pergelangan tangan Zireth.
 
-Tekanan berlapis menolak tubuh mereka. Kael memilih denyut dasar dan menyelaraskan Pulse dengan irama tungku.
+"Namamu?"
 
-Struktur penjaga terlihat sebagai jaring cahaya.
+"Zireth."
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing. Kael membiarkan Zireth mengisi bagian yang tidak mampu dia tahan sendiri.
+Dentang kedua.
 
-Satu demi satu simpul padam.
+"Hal yang paling kau benci?"
 
-Penjaga melipat ruang dan memadamkan cahaya.
+"Orang yang menyentuh alatku tanpa izin. Termasuk kau."
 
-Kael hanya mendengar detak jantung serta suara Zireth yang tetap memanggil dari kegelapan.
+Dentang ketiga.
 
-Dia mengikuti kedua suara itu dan melepaskan satu Pulse pendek ke frekuensi inti.
+Earth Elemental muncul di luar lingkaran, tertarik energi Gema.
 
-Penjaga retak dalam keheningan. Kendali asing terlepas, sementara energi alami makam tetap hidup.
+Sylvara dan konstruksi Volundr menahan mereka.
 
-Tungku Volundr terbuka.
+Kael tidak menoleh.
 
-Logam Bintang terangkat dari tangan Zireth dan berubah menjadi cairan cahaya. Bahan itu membungkus bahunya yang kosong, membentuk tulang, sambungan, dan pelat baru.
+"Di mana kita pertama bertemu?"
 
-Zireth menjerit ketika logam menyatu dengan saraf serta ingatan klannya.
+Zireth membuka mulut.
 
-Kael menahan tubuhnya sampai proses berakhir.
+Diam.
 
-Lengan baru terbentuk—lebih ramping, dipenuhi pola bintang, dan berdenyut mengikuti Jantung Mekanis Urdron.
+Kael merasa darahnya dingin.
 
-Zireth menggerakkan jari-jarinya perlahan.
+"Zireth?"
 
-“Bukan pengganti,” katanya. “Ini sesuatu yang sama sekali baru.”
+"Akademi... Vorth Aereth. Kau tampak seperti anak yang mau meledakkan dinding karena tersinggung."
 
-Di belakang mereka, tungku memancarkan denyut menuju akar Leyline.
+Kael menghembuskan napas.
 
-Penempaan telah selesai.
+Dentang keempat.
 
-Namun Logam Bintang kini terhubung langsung pada sesuatu yang bangun jauh di bawah Zerath.
+Tubuh Zireth melengkung. Logam baru tumbuh dari bahu seperti tulang yang memilih bentuk mesin. Rune bumi menyatu dengan jalur Magitek lama.
+
+Alarm Arsitek muncul pada datapad.
+
+Sinyal luar mencoba menyusup ke ritual.
+
+Kael memperluas resonansi tiga nada dan membuat ruang hening di sekitar pola jiwa Zireth.
+
+"Kode terakhir," katanya.
+
+Zireth membuka mata.
+
+"Jangan pernah mempercayai teh akademi."
+
+Benar.
+
+Volundr memukul dentang terakhir.
+
+Cahaya padam.
+
+Zireth jatuh diam.
+
+Lalu jari tangan barunya bergerak.
+
+Bukan tangan logam murni.
+
+Campuran logam hidup, kristal Gema, dan jaringan saraf.
+
+Dia membuka mata.
+
+"Aku masih membenci teh akademi."
+
+Kael tertawa karena lega.
+
+Penempaan selesai.
+
+Namun sensor di lengan baru Zireth langsung menangkap sesuatu yang sebelumnya tidak bisa ia dengar.
+
+Denyut leyline Zerath.

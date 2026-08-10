@@ -1,49 +1,71 @@
 # Episode 144 — Kembali ke Zerath
 
-Arus menuju permukaan runtuh sebelum mereka sempat masuk.
+Geometri ungu muncul di langit tanpa langit.
 
-Ruang Penciptaan berguncang. Cahaya berubah menjadi pecahan kemungkinan yang berputar liar, masing-masing berusaha menarik tubuh mereka ke masa depan berbeda.
+Arsitek tidak membentuk tubuh.
 
-“Kita kehilangan jalur pulang,” kata Zireth.
+Ia mengubah arus.
 
-Lengan bintangnya menancap pada lantai dan membentuk jangkar. Sylvara berdiri di sisi Kael, terus menyebut namanya agar identitasnya tidak terurai.
+Leyline di sekeliling Kael mulai diarahkan menuju satu pola pusat, mencoba membuat semua nada mengikuti frekuensi sama.
 
-Kael menggunakan superposisi penciptaan untuk mencari satu jalur yang masih terhubung dengan Zerath saat ini.
+Sang Jantung menolak.
 
-Puluhan pintu muncul.
+Seluruh ruang berguncang.
 
-Di balik satu pintu, Aranyel belum terbakar. Di pintu lain, Rowan masih hidup. Beberapa memperlihatkan Kael sebagai penguasa atau mayat tanpa nama.
+Kael mencari Sylvara dan Zireth melalui resonansi, tetapi arus terlalu kacau.
 
-Semua terasa nyata.
+Satu hal jelas: jika dia tetap berada di sini, simpul kedelapan di tubuhnya memberi Arsitek koordinat langsung menuju Hati.
 
-“Jangan lihat terlalu lama,” kata Sylvara. “Mereka bukan hidupmu.”
+Dia harus keluar.
 
-Kael menemukan satu pintu yang tidak menawarkan apa pun selain rasa sakit, kehilangan, dan dunia yang masih menunggu keputusan mereka.
+Kael mencari jalan yang mereka lewati.
 
-“Yang itu.”
+Tidak ada pintu.
 
-Mereka berlari menuju jalur tersebut.
+Hanya ribuan arus menuju permukaan Zerath.
 
-Gelombang penciptaan mengejar dari belakang dan menyentuh punggung Kael. Sesuatu dalam jiwanya tertarik keluar—sebuah serpihan yang membawa kenangan tentang rumah dan suara ibunya.
+Mana pun bisa membawanya ke tempat berbeda.
 
-Kael mencoba meraihnya, tetapi arus semakin kuat.
+Mata Kesembilan tidak berguna. Kemungkinan terlalu banyak.
 
-Sylvara menarik tubuhnya ke dalam pintu. Zireth memutus hubungan dengan jangkar pada detik terakhir.
+Kael memilih bukan berdasarkan hasil.
 
-Cahaya meledak.
+Dia mencari frekuensi yang dikenali tubuhnya.
 
-Mereka terlempar keluar dari Hati Dunia dan jatuh ke sungai Leyline yang mengalir menuju permukaan.
+Dingin Karag Thürm.
 
-Kael menyentuh dadanya.
+Resonansi logam Zireth.
 
-Dia masih mengetahui siapa dirinya, tetapi ada ruang kosong yang baru. Beberapa kenangan tetap ada dalam bentuk, namun kehilangan warna dan kehangatan.
+Cahaya rune Sylvara.
 
-“Sebagian jiwaku tertinggal,” katanya.
+Sangat jauh, tiga nada kecil bertemu.
 
-Sylvara menggenggam tangannya lebih erat.
+Kael masuk ke arus itu.
 
-“Kita akan membawa bagian yang masih ada pulang.”
+Arsitek mencoba mengunci jalurnya.
 
-Arus Leyline menyeret mereka ke atas, sementara Ruang Penciptaan menutup jauh di bawah.
+Kael memisahkan merah, biru, dan Void, membuat tiga jalur palsu. Struktur mengejar semuanya sekaligus.
 
-Mereka kembali menuju Zerath dengan bukti tentang kejahatan para dewa—dan kehilangan yang tidak dapat direbut kembali.
+Tubuh Kael melewati sela di antara mereka.
+
+Cahaya Hati Dunia menghilang.
+
+Dingin menghantam wajah.
+
+Dia jatuh dari udara ke salju.
+
+Langit Zerath kembali di atasnya.
+
+Kael menarik napas, lega.
+
+Lalu menyadari tidak ada Sylvara atau Zireth di sekeliling.
+
+Kompas Garn berputar liar.
+
+Bulu Seraphis tidak menyala.
+
+Dan lengan kirinya terasa terlalu ringan.
+
+Kael menyentuh dada.
+
+Sebagian dari dirinya masih tertinggal di Hati Dunia.

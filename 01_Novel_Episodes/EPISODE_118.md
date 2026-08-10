@@ -1,45 +1,75 @@
 # Episode 118 — Momen Kritis
 
-Badai bilah menyerang ketika mereka memasuki pusat Gema Hati Bintang.
+Veyr kehilangan kendali selama satu detik.
 
-Kael menahan tekanan pertama. Lantai pecah di bawah kakinya, sementara Zireth menggunakan sisa daya lengan mekanis untuk mengganggu inti.
+Satu detik cukup untuk hampir membunuh Zireth.
 
-Kael mencari frekuensi alami di balik pusaran.
+Ledakan dari kristal dadanya menyapu ruangan. Kael berada tepat di jalurnya.
 
-Satu nada terlalu sempurna.
+Zireth mendorong Kael ke samping.
 
-Simpul kendali Sang Arsitek.
+Energi menghantam lengan mekanis dan sisi tubuhnya.
 
-“Sekarang,” seru Zireth. “Aku hanya mampu menahannya beberapa detik.”
+Logam pecah.
 
-Kael membalik fase Pulse.
+Zireth jatuh tanpa suara.
 
-Lapisan luar padam dan retak. Namun energi yang terlepas berpindah ke dinding. Bengkel berubah menjadi tubuh baru bagi musuh, menumbuhkan bilah dan tangan logam dari segala arah.
+"Zireth!"
 
-Kael tidak membalas dengan ledakan besar.
+Kael berlari.
 
-Dia menunggu gelombang kendali melewati satu sambungan, lalu menghantam titik terkecil yang dapat mengubah aliran serangan. Lorong sempit terbuka.
+Darah mengalir dari bawah rusuk. Lengan mekanisnya tinggal separuh, kabel meleleh menempel pada kulit.
 
-Mereka bergerak di antara bilah.
+Mata Zireth masih terbuka.
 
-Satu serangan datang dari belakang menuju Zireth. Kael membentuk perisai tipis dan menerima benturan yang membuat pandangannya putih.
+"Jangan... buat wajah itu."
 
-Zireth menggunakan kesempatan tersebut untuk menghantam pusat kendali dengan sisa daya lengannya.
+"Wajah apa?"
 
-Jaringan simbol pecah.
+"Wajah 'aku akan marah dan merusak rencana'."
 
-Rekaman tersembunyi kembali menegaskan kebenaran:
+Kael memang sedang melakukan itu.
 
-*Keseimbangan adalah hubungan, bukan energi yang memerintah.*
+Api merah sudah naik di dadanya.
 
-Seluruh bengkel menjawab dengan satu denyut keras.
+Void di lengan kiri ingin keluar.
 
-Badai bilah berhenti sejenak, lalu berkumpul menjadi bentuk lebih besar di depan inti.
+Veyr berdiri di ujung ruangan.
 
-“Dia sudah tahu cara kita bertarung,” kata Zireth.
+"Korban akibat keputusan lokal," katanya, tetapi suaranya tidak setenang sebelumnya.
 
-Kael berdiri meski sarafnya terbakar.
+Kael menatap Zireth.
 
-“Berarti kita berhenti mengulang cara yang sama.”
+Temannya baru saja terluka karena memilih sendiri.
 
-Hitungan mundur tinggal beberapa menit.
+Itu tidak membuktikan Arsitek benar.
+
+Kebebasan bukan jaminan keputusan baik.
+
+Ia hanya membuat keputusan benar-benar milik seseorang—termasuk risikonya.
+
+Kael menarik napas.
+
+Api mereda.
+
+"Sylvara, jaga Zireth."
+
+"Kael—"
+
+"Aku tidak akan mengamuk."
+
+Zireth tersenyum lemah. "Sayang sekali. Biasanya menghibur."
+
+Kael berdiri.
+
+Veyr menatapnya.
+
+"Mengapa tidak marah?"
+
+"Aku marah."
+
+Zerath's Fang terangkat.
+
+"Aku cuma tidak menyerahkan kemudi padanya."
+
+Untuk pertama kalinya, Veyr mundur satu langkah.

@@ -1,63 +1,55 @@
 # Episode 150 — Benang Baru
 
-Kael, Sylvara, dan Zireth berdiri di lereng sambil memandang segel Nexus di langit.
+Free Node tidak membawa mereka ke markas dengan mata terbuka.
 
-Delapan bulan telah berlalu. Peta, aliansi, dan ancaman yang mereka kenal mungkin tidak lagi sama.
+Kael menolak penutup mata karena Mata Kesembilan tetap bisa melihat jalur energi.
 
-“Kita harus mencari informasi sebelum bergerak,” kata Zireth. “Datang dengan asumsi lama akan membuat kita mati.”
+Mereka akhirnya memberi pilihan lain: Kael menutup penglihatan sendiri dan membiarkan Sylvara memegang lengannya.
 
-Sinyal dari lengan bintangnya menangkap transmisi terbuka. Potongan berita muncul satu demi satu:
+Dia setuju.
 
-Gerbang Es kembali tidak stabil.
+Perjalanan berlangsung hampir satu jam.
 
-Beberapa kekaisaran menuduh Karag Thürm menyembunyikan Fragmen terakhir.
+Ketika diizinkan melihat, mereka berada di desa rawa yang dibangun di atas akar raksasa. Tidak ada menara. Tidak ada pusat data besar. Sistem komunikasi menggunakan kabel tembaga, lonceng, dan kristal lokal yang tidak tersambung keluar.
 
-Pasukan Nexus membangun zona karantina di wilayah utara.
+Sengaja primitif.
 
-Nama Kael Drayven telah ditetapkan sebagai ancaman dan penyelamat dalam laporan yang berbeda.
+Sulit dimodelkan dari jauh.
 
-Sylvara mendengus. “Setidaknya dunia masih belum bisa memutuskan apakah harus membunuhmu atau memujamu.”
+Pemimpin sementara Free Node memperkenalkan diri sebagai Mara, mantan analis Nexus.
 
-Kael memandang langit tanpa tersenyum.
+"Command menganggap kami pembelot. Arsitek menganggap kami noise. Kami menganggap keduanya terlalu suka pusat kontrol."
 
-“Di mana Zevaron?”
+Kael menyukai kalimat terakhir.
 
-Sinyalnya berada jauh di barat, bergerak menuju wilayah Iskali. Dia selamat dan tampaknya memilih pulang sendiri.
+Mara menunjukkan peta gangguan Zerath.
 
-Sebuah kapal kecil terpisah dari armada Nexus dan turun ke lereng.
+Titik-titik merah menyebar.
 
-Sosok Berhelm melompat dari dalam. Zirahnya kini membawa bekas pertempuran baru.
+Rhythor di utara menunjukkan lonjakan terbesar berikutnya.
 
-“Kalian kembali delapan bulan lebih lambat dari prediksi.”
+"Iskali melaporkan badai yang tidak mengikuti musim. Di pusatnya muncul pola Struktur."
 
-“Apa yang terjadi?” tanya Kael.
+Zireth mengerutkan kening. "Arsitek membangun simpul baru?"
 
-“Rencana Sang Arsitek memasuki tahap berikutnya. Sistem Pahlawan aktif kembali di berbagai kekaisaran dan memilih pahlawan baru secara paksa.”
+"Kemungkinan. Ada juga laporan tentang 'wadah sekunder'—sesuatu yang mampu meniru frekuensi anomali Kael tanpa tubuh Kael."
 
-Helm hitam mengarah kepada Kael.
+Echo Vessel versi baru.
 
-“Sebagian dari mereka telah diperintahkan memburumu.”
+Kael merasa lengan kirinya dingin.
 
-Kael teringat pesan di Ruang Penciptaan: pahlawan yang tidak menyadari jiwanya telah dimiliki para dewa.
+Mara melanjutkan.
 
-“Lalu segel Nexus itu?”
+"Sebelum ke Rhythor, kalian perlu memahami satu hal. Command bukan musuh tunggal. Free Node juga bukan pihak suci. Nexus pecah karena semua orang punya versi berbeda tentang seberapa banyak kebebasan boleh dikorbankan demi menyelamatkan dunia."
 
-“Zona penahanan. Ada sesuatu keluar dari Urdron setelah kalian menghilang.”
+Kael memandang peta.
 
-Zireth mengepalkan tangan bintangnya. “Apa?”
+Benang baru tidak selalu berarti takdir baru.
 
-“Benih Struktur. Ia sudah menanam akar pada jaringan Leyline Karag Thürm.”
+Kadang berarti jaringan orang yang akhirnya mau berbagi beban tanpa meminta satu pusat menentukan segalanya.
 
-Sosok Berhelm membuka pintu kapal.
+"Tunjukkan semua yang kalian tahu," katanya.
 
-“Naik. Kalian perlu melihat keadaan dunia sebelum menentukan langkah.”
+Besok mereka menuju Rhythor.
 
-Kael memandang Sylvara dan Zireth.
-
-Perjalanan lama telah berakhir, tetapi benang baru terbentang di depan: Sistem Pahlawan, pahlawan-pahlawan yang diperbudak, dan Benih Struktur yang tumbuh di jantung Zerath.
-
-Dia menaiki kapal.
-
-Kali ini, Kael tidak hanya memburu jawaban.
-
-Dia kembali untuk memutus rantai yang telah mengikat dunia sejak awal penciptaannya.
+Malam ini, untuk pertama kalinya, mereka akan belajar dari faksi yang dibangun berdasarkan ketidakpercayaan terhadap pusat kekuasaan.

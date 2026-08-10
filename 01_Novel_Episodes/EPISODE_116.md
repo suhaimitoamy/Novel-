@@ -1,39 +1,51 @@
 # Episode 116 — Mengungkap Kelemahan
 
-Hitungan mundur protokol kiamat menggema di bengkel terdalam Forge God.
+Energi Urdron masuk ke tubuh Veyr.
 
-Kael, Sylvara, dan Zireth mengikuti denyut Jantung Mekanis menuju ruang yang dipenuhi badai bilah geometri. Di pusatnya, inti Urdron berputar terlalu cepat dan menarik energi Leyline dari seluruh wilayah Dwarf.
+Kael terlempar sebelum bisa menarik pedangnya.
 
-“Kalau inti itu mati, jalur energi Karag Thürm ikut padam,” kata Zireth.
+Kristal di dada Letnan menutup kembali seperti cairan.
 
-Lengan mekanisnya terhubung ke terminal kuno. “Aku akan menahan protokolnya. Cari frekuensi yang mengunci inti.”
+"Kerusakan lokal tidak relevan selama jaringan utuh," kata Veyr.
 
-Kael mengirim Ragnarok Pulse tiga fase. Gema Hati Bintang pada Fragmen membantu menjaga merah, biru, dan ungu tetap selaras.
+Kael bangkit.
 
-Resonansi kembali membawa peta tekanan.
+Itulah kelemahannya.
 
-Badai bilah bukan pertahanan terpisah. Seluruh serangannya mengikuti satu denyut dari bagian dalam singularitas.
+Bukan kristal.
 
-“Itu kelemahannya.”
+Bukan kabel.
 
-Kael menggeser fase beberapa derajat. Sebuah celah terbuka pada pusaran, hanya cukup lebar untuk satu orang.
+Keyakinan Veyr bahwa jaringan akan selalu memberi jawaban lebih baik daripada tubuh tunggal.
 
-Mereka menerobos.
+Kael mengamati perintahnya.
 
-Zireth menjaga jalan belakang sambil terus meretas protokol. Tekanan menghantam Kael dari depan dan membuat saraf lengannya terbakar.
+Setiap konstruksi bergerak sempurna—terlalu sempurna. Ketika Sylvara mengubah target di tengah tembakan, dua unit mengalami koreksi sepersekian detik. Ketika Zireth memalsukan sinyal sensor, seluruh formasi menyesuaikan sebelum menyadari data palsu.
 
-Di balik pusaran, pola geometris Sang Arsitek tertanam pada dinding bengkel. Garis-garis itu memaksa inti melupakan irama aslinya.
+Jaringan besar berarti keputusan harus selalu diperbarui bersama.
 
-“Kita belum terlambat,” kata Kael. “Jantung ini masih hidup. Ia hanya dipaksa mengikuti perintah lain.”
+"Jangan lawan mesin," kata Kael. "Buat mereka terus berubah pikiran."
 
-Tekanan mendadak berubah.
+Sylvara mengerti.
 
-Bilah-bilah geometri berbalik menuju mereka, sementara inti yang kelebihan beban memancarkan cahaya putih membutakan.
+Panahnya mulai sengaja meleset, mengenai dinding, lampu, rel—menciptakan ancaman kecil dari banyak arah.
 
-Zireth melihat hitungan mundur pada terminal.
+Zireth memalsukan pembacaan panas dan tekanan.
 
-“Waktu kita kurang dari sepuluh menit.”
+Kael sendiri berpindah tanpa pola serangan tetap.
 
-Kael mengangkat tangan.
+Veyr mengerutkan kening.
 
-Untuk menghentikan protokol, dia harus memisahkan kendali Sang Arsitek tanpa mematikan Jantung Mekanis yang menopang Leyline Dwarf.
+Urdron mulai terlambat mengikutinya.
+
+"Kau menciptakan noise."
+
+"Kau menyebut apa pun yang tidak bisa dikendalikan sebagai noise."
+
+Kael merasakan celah lebih lebar.
+
+Untuk pertama kalinya, Veyr harus memilih antara mempertahankan kesadaran seluruh kota atau fokus pada tiga manusia di depannya.
+
+Kael tersenyum tipis.
+
+"Sekarang pilih."

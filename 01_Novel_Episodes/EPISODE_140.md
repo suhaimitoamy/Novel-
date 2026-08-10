@@ -1,35 +1,57 @@
 # Episode 140 — Di Ambang Pintu
 
-Semua akar Leyline bertemu pada satu pusat.
+Pintu Hati bergetar keras.
 
-Gema Arsitek menunggu di sana, dikelilingi lapisan energi yang memakai suara dunia sebagai topeng.
+Cahaya keemasan dan geometri ungu saling menekan pada tepinya.
 
-“Kita masuk bersama,” kata Sylvara. “Jangan ambil seluruh beban.”
+Kael, Sylvara, dan Zireth membentuk tiga titik di depan gerbang.
 
-Gema Pengetahuan memecah lapisan luar. Kael menyisipkan sinkronisasi frekuensi planet ke celah yang terbuka.
+Tidak menyerang Arsitek langsung.
 
-Dia memilih denyut dasar dan menyelaraskan tubuh dengannya. Struktur musuh terlihat sebagai jaring cahaya dengan benang kendali pada pusatnya.
+Mereka menahan jalur penutupnya.
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing.
+Zireth menstabilkan struktur batu agar pintu tidak runtuh.
 
-Kael membiarkan Sylvara mengisi bagian yang tidak sanggup dia tahan sendiri.
+Sylvara menembakkan rune hidup ke leyline alami, memperkuat arus yang dipilih Hati.
 
-Satu demi satu simpul padam.
+Kael menjaga frekuensi kedua sistem tidak berubah menjadi benturan destruktif.
 
-Gema palsu melipat ruang dan memadamkan cahaya. Kael hanya mendengar detak jantung serta suara Sylvara.
+"Pintunya cuma akan bertahan beberapa detik," kata Zireth.
 
-Dia mengikuti keduanya pulang, lalu melepaskan satu Pulse pendek tepat pada frekuensi inti.
+Di balik gerbang Kael melihat ruang yang tidak memiliki lantai atau langit—hanya aliran energi dunia.
 
-Tidak ada ledakan.
+Arsitek mengirim satu pesan melalui benang ungu.
 
-Topeng Arsitek retak dalam keheningan. Benang kendali terbakar, sementara arus asli Hati Dunia tetap hidup.
+*Masuklah. Aku ingin kau melihat apa yang akan kau hancurkan jika menolakku.*
 
-Rekaman terakhir terbuka:
+Kael tersenyum tipis.
 
-*Fragmen Kael berada di luar rantai sebab-akibat Zerath.*
+"Kebetulan aku juga ingin tahu."
 
-Di depan mereka, sebuah pintu tanpa engsel membuka mata raksasa di permukaannya.
+Sylvara menatapnya. "Itu bukan alasan menenangkan."
 
-Hati Dunia telah mendengar kedatangan Kael.
+"Kalian tidak harus—"
 
-Kini dunia itu sendiri akan menilai apakah dia layak mendengar jawabannya.
+Dia berhenti sendiri.
+
+Tidak mengulang kebiasaan lama.
+
+Sylvara mengangkat alis.
+
+"Bagus."
+
+Zireth menyiapkan lengan barunya.
+
+"Kita sudah memilih."
+
+Pintu mulai menyempit.
+
+Mereka melompat bersama.
+
+Cahaya menelan ketiganya.
+
+Detik berikutnya Urdron menghilang.
+
+Kael tidak lagi berdiri di dalam Zerath.
+
+Dia berada di sisi lain denyut dunia.

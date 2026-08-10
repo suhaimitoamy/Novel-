@@ -1,59 +1,73 @@
 # Episode 149 — Pendaratan Keras
 
-Kael jatuh dari celah Leyline dan menghantam tanah berbatu.
+Kael jatuh ke lumpur.
 
-Benturan mengosongkan udara dari paru-parunya. Dunia berputar ketika dia mencoba bangkit.
+Bukan metafora.
 
-Tidak ada Sylvara, Zireth, atau Zevaron di sekelilingnya.
+Wajah lebih dulu.
 
-“Jangan.”
+Dia mengangkat kepala dan memuntahkan air rawa.
 
-Kael menempelkan tangan ke tanah dan mencari resonansi mereka. Arus Balik telah melemparkan masing-masing ke koordinat berbeda, tetapi jejak tali rune masih menghubungkan titik-titik tersebut secara lemah.
+"Pendaratan elegan."
 
-Dia mengikuti jejak terdekat.
+Suara Zireth.
 
-Beberapa ratus meter di bawah lereng, Zireth tergeletak di antara pecahan batu. Lengan bintangnya tertancap ke tanah sebagai jangkar terakhir.
+Kael berbalik begitu cepat sampai lehernya sakit.
 
-Kael mengangkat tubuhnya. “Bangun.”
+Zireth berdiri di atas akar besar dengan lengan baru menyala redup. Sylvara berada di sampingnya, basah dan penuh lumpur tetapi hidup.
 
-Zireth membuka mata perlahan. “Pendaratan buruk.”
+Kael naik dan memeluk keduanya tanpa memikirkan apakah itu canggung.
 
-“Di mana Sylvara?”
+Zireth menepuk bahunya. "Baik. Cukup. Aku masih punya tulang organik."
 
-Pemindai lengan bintang menangkap sinyal samar ke arah timur. Sinyal Zevaron bergerak ke barat dengan kecepatan tinggi, mungkin terbawa sisa badai elemennya sendiri.
+Sylvara tidak mengeluh.
 
-Mereka mencari Sylvara terlebih dahulu.
+Setelah beberapa saat mereka saling menceritakan kejadian.
 
-Jejaknya membawa mereka ke lembah sempit yang dipenuhi reruntuhan baru. Kael menemukan busurnya patah di dekat dinding batu.
+Sylvara dan Zireth juga terlempar dari Hati, tetapi ke arus berbeda. Lengan Zireth membantu mereka menavigasi leyline sampai rawa.
 
-“Sylvara!”
+"Kami menerima pesan," kata Sylvara.
 
-Suara lemah menjawab dari bawah puing.
+Dia menunjukkan kepingan logam kecil.
 
-Kael dan Zireth mengangkat batu bersama. Sylvara terbaring di dalam rongga, terluka tetapi sadar.
+**FREE NODE — JIKA KALIAN MEMBAWA MATA KESEMBILAN, JANGAN BIARKAN NEXUS COMMAND MENEMUKAN RAWA.**
 
-“Berapa lama?” tanyanya setelah berhasil bernapas lebih lega.
+Kael tertawa lelah.
 
-Kael memandang langit.
+"Bagus. Faksi Nexus lain."
 
-Bintang-bintang berada pada posisi yang berbeda dari terakhir kali mereka lihat. Vegetasi di sekitar reruntuhan juga tumbuh lebih lebat.
+"Kau punya informasi tambahan?"
 
-Zireth membaca data waktu dari sisa sinyal permukaan.
+"Aku bertemu Veyr."
 
-Wajahnya berubah.
+Keduanya terdiam.
 
-“Delapan bulan.”
+"Tentu saja," kata Zireth. "Karena sepuluh menit tanpa komplikasi terlalu lama."
 
-Bagi mereka hanya beberapa hari.
+Kael memandang hutan rawa di sekitar.
 
-Di Zerath, delapan bulan telah berlalu.
+Mata Kesembilan melihat banyak jejak hidup tersembunyi.
 
-Kael membantu Sylvara berdiri. “Apa yang terjadi selama kita pergi?”
+Mereka sedang diawasi.
 
-Jawabannya datang dari langit barat.
+Namun tidak ada benang Arsitek.
 
-Segel Nexus raksasa menyala di antara awan, diikuti barisan kapal udara yang bergerak menuju wilayah Karag Thürm.
+Untuk pertama kalinya sejak Belzoth, tempat ini terasa seperti ruang yang benar-benar tidak berada dalam model pusat.
 
-Dunia tidak menunggu mereka kembali.
+Lalu anak panah menancap di tanah depan kaki Kael.
 
-Perang baru telah dimulai tanpa kehadiran mereka.
+Sebuah suara dari pepohonan berkata, "Kalau kalian Nexus Command, langkah berikutnya adalah terakhir."
+
+Kael mengangkat tangan kosong.
+
+"Kami juga sedang bermasalah dengan mereka."
+
+"Semua tahanan mengatakan begitu."
+
+"Kami bukan tahanan."
+
+Zireth menambahkan, "Biasanya."
+
+Kael menatapnya.
+
+"Tidak membantu."

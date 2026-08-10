@@ -1,31 +1,53 @@
 # Episode 133 — Kemampuan Baru Zireth
 
-Penjaga Persimpangan menyerang dengan tekanan ruang yang menghantam seperti palu.
+Kemampuan baru Zireth muncul ketika mereka hampir masuk jurang.
 
-Kael menahan benturan pertama. Zireth membalas dari samping memakai lengan bintang barunya, sementara panah Sylvara memaksa musuh membagi perhatian.
+Tanah di depan terlihat normal.
 
-Kael mencari frekuensi alami penjaga dan menemukan satu nada yang terlalu sempurna—simpul kendali asing.
+Kael tidak melihat ilusi. Mata Kesembilan pun tidak memberi peringatan.
 
-“Sekarang,” seru Zireth.
+Zireth tiba-tiba menarik kerah Kael.
 
-Lengan bintangnya mengirim medan elektromagnetik yang menahan simpul selama beberapa detik.
+"Berhenti."
 
-Kael membalik fase Pulse. Selubung pertahanan retak, tetapi energinya berpindah ke dinding. Seluruh Persimpangan menjadi tubuh baru bagi musuh.
+Dia menempelkan telapak baru ke tanah.
 
-Bilah dan tangan logam tumbuh dari setiap permukaan.
+Rune merah-biru menyebar beberapa meter.
 
-Kael menunggu gelombang kendali melewati sambungan terkecil, lalu menghantam titik itu. Lorong terbuka tanpa merusak arus utama Leyline.
+Permukaan batu berubah transparan dalam penglihatan Kael—bukan benar-benar, melainkan proyeksi dari resonansi Zireth.
 
-Satu serangan datang dari belakang menuju Zireth. Kael membentuk perisai tipis dan menerima benturan sampai pandangannya putih.
+Di bawahnya tidak ada tanah selama tiga puluh meter.
 
-Zireth memanfaatkan jeda tersebut. Lengan bintangnya menembakkan medan terarah ke pusat kendali.
+Hanya lapisan tipis batu menutup rongga.
 
-Jaringan simbol pecah.
+"Kau melihat struktur?"
 
-Rekaman tersembunyi terbuka:
+"Aku merasakannya. Tekanan, kepadatan, sambungan mineral."
 
-*Leyline menyimpan luka semua kekaisaran.*
+Zireth menatap lengan dengan campuran kagum dan curiga.
 
-Zireth memandangi tangan barunya. Untuk pertama kalinya, warisan Volundr tidak hanya menjadi pengganti bagian tubuh yang hilang.
+"Volundr membuatku mendengar benda padat."
 
-Ia telah menjadi alat untuk melindungi arus kehidupan Zerath.
+Kael tersenyum. "Sekarang kau mesin penjelas sekaligus batu."
+
+"Aku akan dorong kau ke jurang berikutnya."
+
+Kemampuan itu terbukti lebih berguna daripada leluconnya.
+
+Zireth dapat membaca leyline melalui batu tanpa membuka jaringan digital. Arsitek sulit mengintip karena tidak ada transmisi luar.
+
+Mereka mulai memakai pembagian baru.
+
+Kael membaca kemungkinan dan frekuensi energi.
+
+Zireth membaca struktur materi dan aliran bumi.
+
+Sylvara membaca jejak hidup, angin, dan perubahan alam.
+
+Tidak ada satu indera yang cukup sendiri.
+
+Kael menyukai itu.
+
+Mata Kesembilan tidak lagi terasa seperti pusat kelompok.
+
+Hanya salah satu alat di antara tiga orang.

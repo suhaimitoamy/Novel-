@@ -1,31 +1,53 @@
 # Episode 126 — Penjaga Serpihan
 
-Makam pandai besi Volundr berada di bawah tambang yang telah dibebaskan.
+Kristal Void pecah, tetapi jalan belum terbuka.
 
-Zireth berdiri di depan gerbang dengan lengan mekanis yang nyaris hancur. Di baliknya tersimpan Logam Bintang—bahan yang mungkin dapat menempanya kembali.
+Dinding terowongan bergerak.
 
-“Aku harus masuk,” katanya. “Benda itu bagian dari warisan klanku.”
+Batu merah menyusun sosok Dwarf raksasa tanpa wajah. Palu di tangannya terbentuk dari magma yang dibekukan seketika.
 
-Kael mengirim penggeseran gravitasi mikro melalui lantai. Gema kembali membawa pola Penjaga Serpihan yang menunggu di pusat makam.
+Suara Volundr terdengar melalui tubuh itu.
 
-Mereka memasuki lorong sempit.
+"Pecahan telah memilih ikut. Sekarang pembawanya diuji."
 
-Tekanan gravitasi berubah pada setiap langkah. Debu terangkat lalu membeku di udara. Ruang di depan melipat menjadi jebakan.
+Kael menghela napas. "Kukira menolak mengambil terlalu banyak tadi adalah ujiannya."
 
-Kael menggeser fase Pulse beberapa derajat. Celah aman terbuka hanya beberapa detik.
+"Itu ujianmu terhadap dirimu sendiri. Ini ujianku."
 
-Mereka menerobos.
+Palu turun.
 
-Di balik penghalang, simbol-simbol geometris memenuhi dinding makam. Bahkan tempat suci Volundr pernah disentuh kehendak Sang Arsitek.
+Kael menghindar.
 
-“Rasanya seperti warisan kami sudah dirampas sebelum aku lahir,” kata Zireth.
+Penjaga tidak mengejar Sylvara. Hanya dirinya dan pecahan Gema.
 
-Tekanan mendadak meningkat.
+Setiap serangan palu memancarkan dorongan yang membuat keinginan Kael semakin kuat: selamatkan Zireth, jangan gagal lagi, jangan kehilangan orang berikutnya.
 
-Dari cahaya merah tungku muncul Penjaga Serpihan—raksasa logam berlapis medan gravitasi. Sebuah kepingan bercahaya tertanam di dadanya.
+Dia sadar ujiannya bukan mengalahkan konstruksi.
 
-Kael membuka telapak tangan.
+Volundr ingin tahu apakah Kael akan menggunakan pecahan itu untuk menang.
 
-Mereka tidak datang untuk menghancurkan warisan tersebut.
+Kael menyimpan kedua tangan.
 
-Mereka datang untuk membuktikan bahwa Zireth pantas membawanya.
+Tidak memanggil serpihan.
+
+Dia bertahan hanya dengan Zerath's Fang dan resonansi miliknya sendiri.
+
+Palu menghantam bahunya. Kael jatuh.
+
+"Kau bisa memakai kekuatan yang kuberikan," kata Volundr.
+
+"Bukan milikku."
+
+Palu berhenti.
+
+"Belum."
+
+Kael bangkit.
+
+"Dan aku datang mengambilnya untuk Zireth. Bukan untuk membuat pertarungan ini mudah."
+
+Tubuh batu runtuh menjadi tanah.
+
+Di depan Kael, pecahan Gema melayang.
+
+"Jawaban diterima. Sekarang ambillah dengan sadar."

@@ -1,33 +1,43 @@
 # Episode 128 — Jalan Pulang yang Terhalang
 
-Penjaga Serpihan menyerang dengan medan gravitasi yang menekan dari segala arah.
+Terowongan utama runtuh setelah mereka melewati setengah jalan.
 
-Kael menahan benturan pertama. Lantai pecah di bawah kakinya, sementara Zireth memegang Logam Bintang di balik tubuhnya.
+Bukan karena Arsitek.
 
-Kael mencari frekuensi alami penjaga. Di antara jutaan getaran terdapat satu simpul kendali yang terlalu sempurna.
+Sensor Zireth yang masih terhubung jarak jauh memastikan getaran berasal dari Primordial Earth Core.
 
-“Sekarang,” seru Zireth.
+Aethelgard telah membangunkan sesuatu dan Urdron ikut bergeser menyesuaikan tekanan bumi.
 
-Kael membalik fase Pulse. Pertahanan penjaga retak, tetapi energinya berpindah ke dinding makam. Bilah dan tangan logam tumbuh dari setiap permukaan.
+"Jalan alternatif?" tanya Sylvara.
 
-Mereka bergerak melalui celah sempit.
+Rava menunjukkan poros ventilasi tua menuju sungai magma.
 
-Satu serangan hampir mengenai Zireth. Kael membentuk perisai tipis dan menerima benturan sampai pandangannya memutih.
+"Alternatif adalah kata murah untuk jalan itu."
 
-Zireth memakai kesempatan itu untuk menghantam pusat kendali dengan serpihan di tangannya.
+Mereka turun.
 
-Logam Bintang beresonansi dengan makam.
+Suhu menjadi hampir tak tertahankan. Kael memakai dingin biru hanya sebagai lapisan tipis, tidak untuk membekukan lingkungan—perubahan suhu terlalu besar dapat memicu runtuhan.
 
-Jaringan simbol terbuka dan memperlihatkan pesan Volundr:
+Di tepi sungai magma mereka menemukan jembatan logam tua terputus.
 
-*Pembawa tidak dipilih karena kekuatan. Ia dipilih karena kesediaan menanggung kehilangan.*
+Jaraknya tidak jauh.
 
-Penjaga berhenti sesaat, lalu seluruh makam berdenyut.
+Masalahnya ada arus magnetik kuat dari bijih di sekeliling. Lengan mekanis Sylvara—tidak ada, tapi perlengkapan logamnya—tertarik; Zerath's Fang juga bergetar.
 
-Bentuk utamanya bergerak dari pusat tungku. Medan gravitasi menjadi semakin berat.
+Kael melepas pedangnya dan melempar ke seberang terlebih dahulu.
 
-Kael membantu Zireth berdiri.
+Mereka menyeberang dengan tali serat.
 
-Jalan pulang masih tertutup.
+Di tengah, cincin Gema bereaksi pada magma dan mulai aktif.
 
-Untuk meninggalkan makam, mereka harus membebaskan Penjaga dari kendali asing tanpa menghancurkan warisan yang hendak diselamatkan.
+Keinginan untuk mempercepat perjalanan masuk ke Kael.
+
+Dia menahan.
+
+Tidak menggunakan kekuatan serpihan.
+
+Mereka sampai sisi lain dengan tangan terbakar dan pakaian rusak, tetapi cincin tetap tidur.
+
+Harga jalan pulang ternyata bukan darah besar atau pengorbanan dramatis.
+
+Kadang hanya kesabaran untuk memilih jalan sulit ketika jalan mudah akan membuatmu menjadi orang yang tidak kau inginkan.

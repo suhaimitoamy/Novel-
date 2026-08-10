@@ -1,39 +1,49 @@
 # Episode 112 — Bisikan Sang Jantung
 
-Letnan Arsitek membayangi setiap langkah mereka.
+Pintu terbuka hanya cukup untuk memperlihatkan cahaya keemasan di baliknya.
 
-Denyut pada zirahnya menyerupai napas yang terlalu sempurna. Kael menghitung jeda di antara getaran sambil mencari jalur menuju lapisan bawah Jantung Mekanis.
+Kael mendengar bisikan.
 
-“Ada ruang tersembunyi,” kata Sylvara. “Kalau kita salah membuka, beban kota akan jatuh.”
+Bukan bahasa.
 
-Kael mengalirkan gelombang lawan-fase melalui rangka baja. Dua gema kembali pada waktu berbeda dan memperlihatkan rongga yang dihapus dari geometri.
+Denyut Zerath diterjemahkan pikirannya menjadi rasa: panas samudra bawah tanah, tekanan pegunungan, aliran sihir melalui hutan, jutaan kehidupan kecil yang tidak tahu dunia mereka sedang diperebutkan oleh struktur tua.
 
-Gema Pengetahuan menyalakan segel pada dinding. Celah terbuka.
+Kael menempelkan tangan pada pintu.
 
-Mereka masuk ke ruang kering yang dipenuhi rekaman rusak. Satu adegan terus berulang: tangan-tangan para pekerja menahan sesuatu, lalu cahaya putih memotong gambar.
+Sang Jantung mengenal Fragmen di dadanya.
 
-Kael menyentuh proyeksi.
+Kenangan asing masuk.
 
-Asap, panas, dan ketakutan menyerbu indranya. Sebuah perintah dingin meminta penduduk menyerahkan kehendak demi keselamatan.
+Dua belas Fragmen tidak pernah dimaksudkan sebagai senjata. Mereka adalah luka yang mengeras—bagian dari tiga Wujud Pertama yang tertinggal setelah realitas tidak mampu menutup diri sempurna.
 
-Kael memutus kontak. Darah mengalir dari hidung.
+Struktur Penyelaras dibangun kemudian, sebagai perban.
 
-“Sang Arsitek membuat mereka percaya bahwa kendali adalah perlindungan.”
+Arsitek lahir dari perban yang memutuskan luka harus dikendalikan selamanya.
 
-Dinding mendadak merapat.
+Kael menarik tangan.
 
-Letnan telah menemukan mereka.
+"Dia bukan akar masalah."
 
-Kael menahan kedua sisi dengan Pulse seimbang. Sylvara keluar lebih dulu sambil membawa data yang sempat disalin. Kael menyusul sesaat sebelum ruangan menutup menjadi garis.
+Sylvara mendekat. "Siapa?"
 
-Cahaya informasi tertinggal di telapak tangannya.
+"Arsitek."
 
-*Jantung Mekanis adalah penjara bagi gema kesadaran dunia.*
+Zireth mengerutkan kening.
 
-Pengunci di lorong depan terbuka satu demi satu.
+"Dia memperburuk semuanya. Tapi Fragmen, retakan, ketidakstabilan... semua sudah ada sebelum dia."
 
-Letnan Arsitek berdiri pada ujung cahaya, menunggu di depan pusat kendali.
+Itu mengubah tujuan.
 
-Jalan tersebut bukan kelalaian.
+Menghancurkan Arsitek tidak otomatis menyembuhkan Zerath.
 
-Sang Arsitek sengaja mengundang mereka masuk lebih dalam.
+Mungkin malah membuat perban lepas dari luka terbuka.
+
+Dari balik pintu, bisikan lain datang.
+
+**Jangan bunuh penjaga sebelum tahu apa yang masih dia tahan.**
+
+Kael menelan ludah.
+
+Kemudian alarm Urdron berbunyi.
+
+Seseorang telah mengambil alih ruang kontrol sekunder.

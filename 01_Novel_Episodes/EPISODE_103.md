@@ -1,51 +1,65 @@
 # Episode 103 — Gema dari Forge God
 
-Automaton penambang menyerang sebelum mereka mencapai perlindungan.
+Patung itu bukan Forge God.
 
-Ruang di depan Kael melengkung, lalu tekanan tak terlihat menghantam seperti palu. Dia melepaskan Pulse pendek dan menahannya sejengkal dari wajah.
+Hanya mulutnya.
 
-Lantai pecah di bawah tumit.
+Suara yang keluar berasal dari lebih dalam—begitu rendah hingga Kael merasakannya di tulang sebelum mendengar kata.
 
-Kael bergeser agar serangan berikutnya menjauh dari Sylvara. Panah cahaya serta gangguan pemindai Zireth datang dari dua sisi, memaksa automaton membagi perhatian.
+*Zerath terlalu lama ditempa tanpa pendinginan.*
 
-Kael menyalurkan resonansi ke rangka baja kota.
+Kael berdiri di depan patung. "Kau siapa?"
 
-Dia tidak mencari bagian yang mudah dihancurkan. Di antara jutaan getaran, terdapat satu nada yang terlalu sempurna—simpul kendali dari luar.
+*Nama fana: Volundr. Fungsi lama: pengatur tekanan inti. Nama yang diberikan keturunan Dwarf: Forge God.*
 
-“Sekarang,” seru Sylvara. “Aku hanya bisa menahannya beberapa detik.”
+Zireth hampir lupa bernapas.
 
-Kael membalik fase Pulse.
+"Dewa tempa Dwarf ternyata mesin?"
 
-Dua gelombang bertemu. Cahaya pada tubuh automaton padam dan selubung pertahanannya retak dari dalam.
+*Kesimpulan tidak lengkap.*
 
-Namun energi yang terlepas tidak menghilang.
+"Tentu saja."
 
-Ia berpindah ke dinding. Logam di seluruh lorong bangkit membentuk bilah, tangan, dan rahang. Kota itu sendiri berubah menjadi tubuh baru bagi musuh.
+Kael bertanya tentang Arsitek.
 
-Kael menahan dorongan untuk meledakkan seluruh bagian tersebut.
+Patung diam cukup lama hingga dia mengira sambungan putus.
 
-Dia menunggu gelombang kendali melewati satu sambungan, lalu menghantam titik itu dengan Pulse kecil. Lorong sempit terbuka tanpa meruntuhkan struktur utama.
+*Arsitek bukan pencipta Zerath.*
 
-“Bergerak.”
+"Aku tahu."
 
-Mereka menerobos celah. Kael memotong aliran energi dan menahan serangan yang datang dari dinding. Setiap gerakan meninggalkan panas pada sarafnya.
+*Bukan pula makhluk tunggal dalam pengertianmu.*
 
-Satu bilah logam hampir mengenai Sylvara dari belakang.
+Itu baru.
 
-Kael membentuk perisai tipis. Benturan memutihkan pandangannya, tetapi Sylvara dan Zireth memakai jeda itu untuk menghantam pusat kendali yang terbuka.
+Dinding menampilkan pola geometris yang mirip simbol Arsitek.
 
-Jaring simbol di dalamnya pecah.
+*Ia adalah Struktur yang belajar menginginkan kelangsungan dirinya sendiri. Banyak pikiran pernah menjadi bagian darinya. Sebagian masuk sukarela. Sebagian tidak.*
 
-Sebuah rekaman muncul di antara cahaya yang padam:
+Kael memikirkan jaringan Echo, Nexus, Rowan.
 
-*Logam kota masih menyimpan gema Forge God.*
+"Apa yang ada di bawah Urdron?"
 
-Seluruh lembah menjawab dengan denyut yang membuat gigi mereka bergetar.
+*Arsip tentang cara Struktur pertama kali dihubungkan ke Hati Dunia.*
 
-“Kita membangunkan pusat Urdron,” kata Sylvara.
+"Dan Arsitek ingin menghancurkannya?"
 
-Kael memandang cahaya yang menjalar ke kedalaman seperti urat.
+*Tidak.*
 
-“Pusat itu sudah bangun. Sekarang ia tahu kita dapat melukainya.”
+Suara Volundr menjadi lebih berat.
 
-Dari bawah kota, bentuk utama automaton mulai bergerak.
+*Ia ingin kau membacanya.*
+
+Pintu besar di belakang patung terbuka.
+
+Di baliknya terowongan menurun menuju cahaya ungu.
+
+Kael tidak bergerak.
+
+Jebakan yang jelas terkadang lebih berbahaya karena manusia mulai mencari jebakan kedua.
+
+"Kalau dia ingin aku masuk, kita cari tahu kenapa sebelum melangkah."
+
+Patung mengeluarkan bunyi yang nyaris seperti tawa.
+
+*Pilihanmu mulai sulit ditempa.*

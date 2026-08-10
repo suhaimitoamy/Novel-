@@ -1,37 +1,47 @@
 # Episode 139 — Panggilan Hati Dunia
 
-Gema palsu menutup jalur depan dan belakang.
+Panggilan datang pada malam kedua.
 
-Kael mencoba pola sebelumnya. Serangannya dipantulkan kembali dan menghantam dadanya.
+Tanah berdenyut tiga kali cepat.
 
-Dia jatuh pada satu lutut. Kenangan masa kecil kehilangan wajah dan warna, seolah harga penglihatan Nyara kembali menagih bagian lain.
+Volundr tidak pernah memakai pola itu.
 
-“Kita mundur,” kata Sylvara.
+Kael menempelkan telapak ke batu.
 
-Jalan belakang sudah menjadi perangkap.
+Suara Sang Jantung masuk tanpa kata.
 
-Kael mendengarkan nada kecil di balik tekanan. Sesuatu dalam wadah masih melawan Sang Arsitek.
+Rasa sesak.
 
-Dia memakai sinkronisasi planet untuk memisahkan benang kendali dari akar Leyline tanpa merobek keduanya.
+Tekanan.
 
-Tekanan membuat darah keluar dari telinganya. Sylvara berdiri di depan, menahan serangan yang datang dari ruang terlipat.
+Sesuatu sedang menahan Pintu Hati dari sisi lain.
 
-Kael menggeser fase sekali, dua kali, lalu ketiga.
+Mata Kesembilan terbuka refleks.
 
-Akar Leyline menjerit.
+Kael melihat benang Arsitek membungkus jaringan leyline seperti kawat di sekitar pembuluh.
 
-*Gunakan entropi penuh,* tawar Sang Arsitek.
+Namun di sela-selanya ada jalur keemasan yang masih bebas.
 
-Kael menurunkan amplitudo.
+Jantung memanggil mereka melalui jalur itu.
 
-“Tidak.”
+"Sekarang," kata Kael.
 
-Benang tersebut retak. Gema Pengetahuan menghantam celah yang sama.
+Mereka kembali ke Urdron menggunakan arus leyline sebagai penunjuk jalan.
 
-Gelombang balik menyapu mereka. Kael menangkap Sylvara, tetapi sebagian kenangan masa kecilnya hilang di dalam arus.
+Perjalanan yang sebelumnya beberapa hari dipangkas menjadi satu malam karena Zireth dapat menemukan terowongan bumi yang mengikuti aliran langsung.
 
-Jalur terakhir menuju pusat terbuka.
+Saat tiba, Pintu Hati sudah terbuka setengah.
 
-Kael berdiri dengan tubuh gemetar. Dia tidak dapat mengingat beberapa wajah yang pernah mengisi rumahnya di Aranyel.
+Cahaya keemasan keluar.
 
-Namun dia masih mengingat alasan harus melindungi dunia yang tersisa.
+Di tepinya, energi geometris ungu merambat cepat.
+
+Arsitek sedang mencoba menutup pintu.
+
+Volundr berkata dari dinding:
+
+"Hati memilih membuka. Struktur memilih menolak."
+
+Kael menghunus Zerath's Fang.
+
+"Untuk sekali ini kita tidak akan memaksa apa pun. Kita cuma jaga agar pilihan Hati tetap bisa terjadi."

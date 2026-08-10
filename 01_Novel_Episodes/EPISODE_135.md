@@ -1,37 +1,49 @@
 # Episode 135 — Penjaga Persimpangan
 
-Semua jalur bertemu pada satu ruang pusat.
+Penjaga tidak menyerang.
 
-Penjaga Persimpangan menunggu di sana, dikelilingi lapisan energi yang mengikuti hukum berbeda.
+Ia meminta mereka meninggalkan satu hal.
 
-“Kita masuk bersama,” kata Zireth. “Jangan tanggung semuanya sendiri.”
+"Jalan memerlukan berat. Berikan sesuatu yang kalian bawa tetapi tidak lagi kalian butuhkan."
 
-Kael mengangguk.
+Sylvara melepas anak panah pertama yang dia bawa sejak Aranyel—patah, tidak pernah dipakai, tetapi selalu disimpan.
 
-Lengan bintang Zireth dan panah penanda Sylvara memecah lapisan luar. Kael memasukkan induksi elektromagnetik ke celah yang muncul.
+Zireth melepaskan pelat lengan lamanya yang selamat dari penempaan.
 
-Dia memilih satu denyut dasar dan menyelaraskan tubuh dengannya. Struktur penjaga terlihat sebagai jaring cahaya dengan benang kendali pada pusatnya.
+Kael berdiri lama.
 
-Pulse merah memisahkan materi. Biru menahan pelepasan energi. Ungu mengurai pola asing.
+Dia membawa terlalu banyak benda yang terasa seperti bagian dirinya: kompas Garn, bulu Seraphis, Zerath's Fang, pecahan data Kharad.
 
-Kael membiarkan kedua temannya menutup bagian yang tidak mampu dia tahan sendiri.
+Penjaga berkata, "Bukan benda paling mahal. Beban yang seharusnya sudah kau letakkan."
 
-Satu demi satu simpul padam.
+Kael memahami.
 
-Penjaga melipat ruang dan memadamkan cahaya. Kael hanya mendengar detak jantung serta suara Sylvara dan Zireth.
+Dia mengeluarkan potongan kain hangus dari saku dalam jubah.
 
-Dia mengikuti suara itu, lalu melepaskan satu Pulse pendek ke frekuensi inti.
+Sisa pakaian rumahnya di Aranyel.
 
-Penjaga retak dalam keheningan.
+Sejak malam pertama, Kael membawanya tanpa pernah mengakui alasan.
 
-Benang kendali terbakar, sedangkan arus asli Leyline tetap hidup.
+Bukan untuk mengenang.
 
-Rekaman terakhir terbuka:
+Untuk memastikan rasa bersalah tetap dekat.
 
-*Leyline mengingat seluruh luka yang ditimpakan para kekaisaran.*
+Tangannya gemetar.
 
-Kael tidak merasa lebih kuat. Hanya lebih bertanggung jawab.
+Dia meletakkan kain di kaki batu.
 
-Arus terdalam bergerak dan memperlihatkan pintu tanpa engsel.
+Tidak ada api dramatis.
 
-Di baliknya, Hati Dunia memanggil.
+Tanah hanya menelannya perlahan.
+
+Kael merasa lebih kosong.
+
+Dan sedikit lebih ringan.
+
+Penjaga membuka empat jalur leyline.
+
+"Sekarang dengar tanpa membawa suara lama terlalu dekat."
+
+Sinyal timur kembali berdenyut.
+
+Kali ini mereka bisa mengikutinya.

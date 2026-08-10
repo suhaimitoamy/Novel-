@@ -1,53 +1,61 @@
 # Episode 148 — Melintasi Arus Leyline
 
-Empat orang bergerak di atas jalur cahaya yang terus berubah.
+Jarak puluhan kilometer tidak bisa ditempuh cepat melalui badai.
 
-Zireth menjaga jangkar Logam Bintang tetap tertanam. Sylvara mengikat mereka dengan tali rune. Zevaron membentuk lorong angin agar arus tidak langsung merobek tubuh, sementara Kael memusatkan perhatian pada simpul kendali Rift.
+Veyr menawarkan jalan lain.
 
-“Jika salah satu kehilangan ritme, kita semua tercerai,” kata Zireth.
+"Masuk leyline."
 
-Kael menemukan nada yang terlalu sempurna di dalam kekacauan ruang.
+Kael menatapnya. "Terakhir kali aku masuk, jiwaku tercecer."
 
-“Simpulnya bergerak mengikuti kita.”
+"Kali ini kita tidak menuju Hati. Hanya menumpang arus permukaan."
 
-Rift menyerang.
+"Kalimat 'hanya' tidak membantu."
 
-Jalur di bawah kaki pecah menjadi beberapa kemungkinan tujuan. Pada satu jalur, Kael melihat Zerath hancur. Pada jalur lain, mereka tiba bertahun-tahun setelah perang berakhir.
+Mereka menemukan simpul kecil di bawah lapisan es.
 
-“Yang mana waktu kita?” tanya Sylvara.
+Veyr membuka akses menggunakan kristal dadanya. Kael menjaga jalur dengan penanda Hati Dunia, memastikan arus yang dipilih benar-benar kembali ke permukaan Zerath.
 
-Kael tidak mencari gambaran paling aman. Dia mencari denyut yang sesuai dengan Fragmen, luka, dan orang-orang yang masih menunggu mereka.
+Mereka masuk.
 
-“Sebelah kiri.”
+Perjalanan leyline terasa seperti berdiri di dalam kilat yang bergerak perlahan. Kael melihat potongan tempat lewat di sekeliling: hutan, batu, sungai bawah tanah.
 
-Zevaron mengarahkan angin dan mendorong kelompok ke jalur tersebut.
+Arsitek mencoba menemukan mereka.
 
-Rift menutup dari belakang. Kael membalik fase Pulse tepat ketika simpul kendali melewati celah antara dua arus.
+Benang hitam muncul di satu cabang.
 
-Pertahanannya retak.
+Veyr menunjuk jalur lain. "Kiri."
 
-Energi celah berpindah ke sungai Leyline dan membentuk tangan-tangan hitam yang mencoba menarik mereka ke koordinat berbeda.
+"Itu berakhir di rawa."
 
-Sylvara hampir terlepas.
+"Tujuanmu memang rawa."
 
-Kael membentuk perisai tipis, sementara Zevaron memotong tangan-tangan tersebut dengan petir. Zireth memperkuat jangkar sampai lengan bintangnya berderak.
+"Aku hanya memastikan kau tahu."
 
-Mereka terus maju.
+Mereka berpindah arus.
 
-Pada pusat Rift, Kael melihat benang geometris yang mengarah ke luar Zerath.
+Kael merasakan dua frekuensi akrab semakin dekat.
 
-“Sang Arsitek mengendalikan arus dari tempat lain.”
+Sylvara.
 
-Dia tidak mencoba menghancurkan seluruh celah. Pulse merah memisahkan struktur, biru menahan keruntuhan, dan ungu mengurai benang asing.
+Zireth.
 
-Zevaron menahan gelombang balik. Sylvara menjaga Kael tetap terikat pada jalur. Zireth menutup simpul yang terbuka.
+Dia hampir mempercepat resonansi.
 
-Benang kendali retak.
+Menahan diri.
 
-Rift kehilangan bentuknya dan jalur ke permukaan terbuka.
+Leyline bukan jalan yang harus dipaksa.
 
-Namun arus terakhir datang terlalu cepat.
+Mereka mengikuti aliran sampai satu pusaran menarik tubuh keluar.
 
-Tali rune putus.
+Kael sempat melihat Veyr terseret ke cabang lain.
 
-Mereka terlempar ke dalam cahaya menuju koordinat yang tidak dapat lagi dipastikan.
+"Veyr!"
+
+Pria itu tidak tampak panik.
+
+"Pilihan berbeda. Kita bertemu lagi kalau keduanya buruk!"
+
+Arus memisahkan mereka.
+
+Kael terlempar menuju cahaya hijau gelap.

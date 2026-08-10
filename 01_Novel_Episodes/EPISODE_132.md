@@ -1,33 +1,39 @@
 # Episode 132 — Gema yang Tertinggal
 
-Pola Penjaga terus mengikuti mereka ke lapisan berikutnya.
+Pada malam pertama di luar Urdron, Kael mendengar Kharad.
 
-Zireth menemukan rongga tersembunyi di bawah Persimpangan Leyline. Membukanya secara paksa dapat meruntuhkan seluruh beban gunung.
+Bukan hantu.
 
-Kael memakai frekuensi rendah untuk memetakan ruang dan nada tinggi untuk membaca material. Dua gema kembali pada waktu berbeda, memperlihatkan ruangan yang sengaja dihapus dari geometri.
+Salah satu kristal data yang mereka bawa menyimpan gema suaranya.
 
-Panah penanda Sylvara dan lengan bintang Zireth membuka jalan.
+"Kalau rekaman ini aktif, berarti Volundr memilih membiarkan kalian keluar. Bagus. Berarti kalian tidak sepenuhnya bodoh."
 
-Di dalam, rekaman rusak memperlihatkan orang-orang masa lalu menahan sesuatu sebelum cahaya putih menghapus wajah mereka.
+Zireth tersenyum. "Aku menyukai dia."
 
-Kael menyentuhnya.
+Rekaman Kharad menjelaskan satu hal yang tidak ada di arsip utama.
 
-Asap dan ketakutan menyerbu pikirannya. Sebuah perintah meminta mereka menyerahkan kehendak demi keselamatan.
+Persimpangan leyline timur pernah dipakai untuk mengirim informasi antar-kekaisaran tanpa jaringan Arsitek. Jalur analog dunia—lebih lambat, tetapi sulit dibajak Struktur.
 
-Kael memutus kontak. Darah mengalir dari hidung.
+"Kalau masih aktif, kita bisa melihat gangguan energi tanpa memakai data Nexus atau Arsitek," kata Kael.
 
-“Sang Arsitek membangun rasa takut sampai rantai terlihat seperti perlindungan.”
+"Sumber ketiga," ujar Sylvara.
 
-Dinding merapat. Penjaga telah menemukan mereka.
+Tepat yang mereka butuhkan.
 
-Kael menahan kedua sisi dengan Pulse seimbang, memberi cukup waktu bagi Sylvara dan Zireth untuk keluar.
+Rekaman berakhir dengan pesan pribadi untuk Zireth.
 
-Mereka lolos sesaat sebelum ruang mengatup.
+"Mesin bukan lawan jiwa. Mesin hanya alat. Jangan biarkan orang yang takut perubahan membuatmu mengira tubuh baru berarti dirimu berkurang."
 
-Cahaya informasi tertinggal di telapak Kael:
+Zireth diam lama.
 
-*Leyline mengingat semua luka yang pernah ditimpakan para kekaisaran.*
+Kael pura-pura sibuk dengan api.
 
-Pengunci di lorong depan terbuka satu demi satu.
+Akhirnya Zireth berkata, "Kalau kau menceritakan bahwa aku terharu, aku akan memodifikasi kompasmu agar selalu menunjuk selatan."
 
-Penjaga Persimpangan menunggu di pusat, mengundang mereka menyaksikan luka yang disimpan Zerath.
+"Tidak melihat apa-apa."
+
+Di bawah mereka, leyline berdenyut.
+
+Lengan baru Zireth menjawab dengan cahaya kecil.
+
+Gema Urdron ikut berjalan bersama mereka.

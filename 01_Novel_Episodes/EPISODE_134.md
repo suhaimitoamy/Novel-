@@ -1,39 +1,55 @@
 # Episode 134 — Persimpangan Leyline
 
-Penjaga menyesuaikan frekuensi dan memantulkan Pulse Kael kembali ke dadanya.
+Persimpangan leyline tidak terlihat sebagai bangunan.
 
-Dia jatuh pada satu lutut. Medan waktu di Persimpangan memisahkannya dari Sylvara hanya beberapa detik, tetapi bagi keduanya jarak itu terasa seperti berhari-hari.
+Ia berupa lembah dangkal dengan empat sungai kecil yang mengalir ke arah berbeda—melawan kemiringan tanah.
 
-Ketika aliran kembali menyatu, wajah Sylvara membawa kelelahan yang tidak dapat dijelaskan oleh waktu biasa.
+Di pusatnya berdiri batu hitam polos.
 
-“Kita mundur,” kata Zireth. “Tidak ada kemenangan yang sepadan dengan ini.”
+Zireth menyentuhnya.
 
-Jalan belakang telah berubah menjadi perangkap.
+Seluruh lembah menyala.
 
-Kael mendengarkan nada kecil di balik tekanan. Sesuatu dalam Penjaga masih melawan kendali asing.
+Garis energi muncul di udara seperti peta pembuluh darah Zerath.
 
-Dia menggunakan induksi elektromagnetik untuk memisahkan benang Sang Arsitek dari wadah tanpa merobek Leyline.
+Kael menahan Mata Kesembilan tetap tertutup. Dia ingin melihat sistem ini sebagaimana dibangun, bukan melalui lapisan penglihatannya.
 
-Sylvara berdiri di depannya, menahan serangan yang datang dari sudut waktu berbeda.
+Empat jalur utama berdenyut.
 
-Kael menggeser fase sekali, dua kali, lalu ketiga.
+Utara: Iskali, tidak stabil.
 
-Persimpangan menjerit.
+Barat: Sylphara, redup setelah hilangnya Nyara.
 
-*Gunakan entropi penuh,* tawar Sang Arsitek.
+Selatan: wilayah kekaisaran, dipenuhi lonjakan konflik.
 
-Kael menurunkan amplitudo.
+Timur: satu sinyal yang tidak dikenali.
 
-“Tidak.”
+"Bukan Arsitek?" tanya Sylvara.
 
-Benang retak. Zireth dan Sylvara menghantam celah yang sama.
+Zireth menggeleng. "Frekuensinya organik."
 
-Gelombang balik menyapu mereka, tetapi aliran waktu kembali menyatu.
+Kael mendekat.
 
-Jalur terakhir menuju pusat terbuka.
+Sinyal timur berdenyut tiga kali.
 
-Kael menatap Sylvara. Beberapa detik yang hilang telah meninggalkan jarak emosional yang nyata, seolah mereka baru kembali dari perjalanan terpisah.
+Lalu membentuk pola kata sederhana:
 
-Tidak ada cara untuk menghapus harga itu.
+**JANGAN GUNAKAN JALUR NEXUS. KAMI MASIH BEBAS.**
 
-Mereka hanya dapat terus berjalan sambil membawanya.
+Sebelum mereka dapat membalas, tanah berguncang.
+
+Batu pusat terbelah.
+
+Sebuah sosok besar bangkit dari bawah, tubuhnya terbuat dari akar batu dan kristal leyline.
+
+Empat wajah menghadap empat arah.
+
+"Persimpangan tidak menerima pengambil," katanya.
+
+Kael mengangkat tangan kosong.
+
+"Kami datang untuk mendengar."
+
+Keempat wajah menoleh kepadanya bersamaan.
+
+"Semua pengambil mengatakan itu sebelum meminta jalan."

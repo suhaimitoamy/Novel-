@@ -1,35 +1,41 @@
 # Episode 137 — Gema dari Kekaisaran Lain
 
-Gema palsu mengikuti mereka ke lapisan berikutnya.
+Lonjakan selatan berasal dari Drakonar.
 
-Sylvara menemukan rongga tersembunyi di bawah Panggilan Hati Dunia. Membukanya dengan paksa dapat meruntuhkan akar Leyline.
+Namun pesan yang mengikuti justru datang dari Nyrathis.
 
-Kael memakai frekuensi rendah untuk memetakan ruang dan nada tinggi untuk membaca material. Dua gema kembali, memperlihatkan ruangan yang sengaja dihapus dari geometri.
+Persimpangan leyline membawa gema suara perempuan yang tidak dikenal.
 
-Gema Pengetahuan membuka jalan.
+"Kepada siapa pun yang mendengar kanal tua: laut naik tanpa bulan. Fragmen bawah laut bereaksi pada retakan langit. Kami tidak meminta bantuan. Kami memperingatkan."
 
-Rekaman rusak di dalam memperlihatkan tangan-tangan masa lalu menahan sesuatu sebelum cahaya putih menghapus wajah mereka.
+Sinyal terputus.
 
-Kael menyentuhnya.
+Kael memandang peta.
 
-Ketakutan orang-orang dari berbagai kekaisaran masuk ke pikirannya bersama satu perintah:
+Gangguan tidak lagi lokal.
 
-*Serahkan kehendakmu demi keselamatan.*
+Aethelgard, Urdron, Nyrathis, Drakonar—semuanya mulai memengaruhi satu sama lain melalui leyline.
 
-Kael memutus kontak. Darah tipis mengalir dari hidung.
+"Arsitek tidak perlu menyerang setiap tempat," kata Sylvara. "Dunia melakukannya sendiri."
 
-“Sang Arsitek menanamkan ketakutan yang sama di banyak negeri.”
+Kael mengangguk.
 
-Dinding merapat. Gema palsu telah menemukan mereka.
+Satu keputusan di utara mengubah tekanan energi di laut. Reaksi Nyrathis membuat Drakonar menaikkan pertahanan. Pertahanan itu mengaktifkan Fragmen lain.
 
-Kael menahan kedua sisi dengan Pulse seimbang, memberi waktu bagi Sylvara untuk menyalin pola penting.
+Rantai.
 
-Mereka lolos sesaat sebelum ruang mengatup.
+Mata Kesembilan memperlihatkan cabang kemungkinan semakin padat.
 
-Cahaya informasi tertinggal di telapak tangan Kael:
+Kael menutupnya.
 
-*Fragmen dalam tubuhnya berada di luar rantai sebab-akibat Zerath.*
+"Kita tidak bisa memperbaiki semua kekaisaran satu per satu."
 
-Jika catatan itu benar, Kael bukan sekadar bagian dari dunia yang terluka.
+Zireth menatap arus utama.
 
-Dia adalah variabel yang tidak pernah direncanakan oleh hukum Zerath maupun Sang Arsitek.
+"Berarti kita harus memahami pusat distribusinya."
+
+Hati Dunia.
+
+Kael merasakan denyut jauh di bawah kaki.
+
+Seolah Zerath sendiri setuju.

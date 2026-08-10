@@ -1,43 +1,63 @@
 # Episode 124 — Gema Keserakahan Dwarf
 
-Bentuk utama kristal Void menutup jalur depan dan belakang.
+Ruang serpihan dipenuhi patung.
 
-Kael mencoba memutus simpulnya. Serangan tersebut dipantulkan kembali dan menghantam dada.
+Setelah mendekat, Kael sadar itu bukan patung.
 
-Dia jatuh pada satu lutut. Darah mengalir ke lantai dan menyatu dengan pola kristal.
+Dwarf yang berubah menjadi kristal sambil memegang senjata, peti, atau sesama mereka.
 
-“Kita mundur,” kata Sylvara. “Nyawamu tidak boleh menjadi harga untuk kepercayaan mereka.”
+Serpihan Gema berada di tengah ruangan, kecil seperti kepalan tangan, memancarkan cahaya merah-biru.
 
-Namun jalan belakang telah hilang.
+Begitu Kael melihatnya, pikiran datang.
 
-Kael mendengarkan lapisan di bawah kebisingan. Ada nada kecil yang goyah setiap kali Gema Pengetahuan bersinar. Sesuatu di dalam wadah masih berusaha melawan.
+Dengan benda itu dia bisa memperbaiki Zireth.
 
-Dia mengubah tujuan.
+Memperkuat Zerath's Fang.
 
-Resonansi rendah tidak diarahkan untuk menghancurkan kristal, melainkan memisahkan kendali dari para penghuni yang terperangkap.
+Menstabilkan lengan kiri.
 
-Tekanan membuat darah keluar dari telinganya. Sylvara berdiri di depan dan menahan serangan yang tidak mampu dia lihat seluruhnya.
+Mungkin membuka Pintu Hati tanpa menunggu.
 
-“Lakukan.”
+Mungkin menghancurkan Arsitek.
 
-Kael menemukan benang kendali yang mengarah jauh ke luar Zerath.
+Semua terdengar masuk akal.
 
-Dia menggeser fase sekali, dua kali, lalu ketiga.
+Itulah bahayanya.
 
-Seluruh tambang menjerit.
+Sylvara berkata, "Aku juga mendengar."
 
-*Gunakan entropi penuh,* bisik Sang Arsitek. *Akhiri rasa sakit.*
+"Apa?"
 
-Kael menurunkan amplitudo.
+"Hal-hal yang bisa kulakukan kalau kekuatanku lebih besar."
 
-“Tidak.”
+Kael tidak bertanya detail.
 
-Benang tersebut retak. Cahaya Gema Pengetahuan memasuki celah yang sama.
+Mereka duduk di lantai dan menunggu.
 
-Gelombang balik menyapu mereka. Kael menangkap Sylvara, tetapi darahnya tertinggal pada kristal pusat.
+Tidak melawan suara.
 
-Penghuni terowongan melihat pengorbanan itu. Beberapa menurunkan senjata dan menyebut nama mereka sendiri untuk pertama kalinya setelah bertahun-tahun.
+Tidak mengambil serpihan.
 
-Kepercayaan mereka tidak datang dari kemenangan Kael.
+Satu jam.
 
-Ia dibayar oleh luka yang mereka saksikan sendiri.
+Dua.
+
+Keinginan tidak hilang, tetapi menjadi lebih mudah dikenali sebagai gema yang diperkuat.
+
+Kael akhirnya berdiri.
+
+"Kita mengambil hanya cukup untuk inti Zireth."
+
+Serpihan merespons dengan memecah satu bagian kecil dari dirinya sendiri.
+
+Seolah benda itu menunggu seseorang yang tahu kapan berhenti.
+
+Kael mengambil pecahan tersebut.
+
+Serpihan utama tetap di tempat.
+
+Patung-patung kristal di sekeliling mereka tidak bergerak.
+
+Namun satu suara Dwarf tua bergema dari masa lalu.
+
+"Akhirnya... seseorang pulang dengan tangan tidak penuh."

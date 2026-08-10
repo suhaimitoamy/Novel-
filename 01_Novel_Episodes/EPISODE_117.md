@@ -1,39 +1,59 @@
 # Episode 117 — Eskalasi Kekuatan
 
-Badai bilah terus mengitari Jantung Mekanis.
+Veyr memilih.
 
-Kael menghitung jeda di antara setiap serangan. Polanya menyerupai napas mesin yang berusaha hidup di bawah perintah asing.
+Seluruh Urdron padam.
 
-Zireth menunjuk lapisan bawah pada terminal. “Ada ruang kontrol tersembunyi. Jika salah dibuka, bengkel ini runtuh.”
+Lampu mati. Mesin berhenti. Konstruksi jatuh seperti boneka diputus tali.
 
-Kael memetakan rongga dengan Pulse tiga fase. Dua gema kembali dan memperlihatkan ruang yang dihapus dari geometri.
+Kael sempat mengira mereka menang.
 
-Zireth mengorbankan sebagian fungsi lengan mekanisnya untuk memaksa terminal membuka jalan.
+Kemudian semua energi kota masuk ke tubuh Veyr.
 
-Di dalam ruangan tersembunyi, rekaman pekerja Urdron masih aktif. Mereka mencoba menahan inti, lalu cahaya putih menghapus wajah serta suara mereka.
+Kristal dadanya berubah hitam keemasan. Kabel di punggung putus satu per satu.
 
-Kael menyentuh proyeksi.
+"Mode lokal," kata Zireth. "Dia melepaskan jaringan."
 
-Satu perintah memenuhi pikirannya:
+"Bukankah itu yang kita mau?"
 
-*Serahkan pilihanmu. Keteraturan akan menyelamatkan semua orang.*
+"Kita mau dia lambat. Bukan menjadikan satu tubuh penerima daya seluruh kota."
 
-Dia segera memutus kontak.
+Veyr bergerak.
 
-“Ini bukan hanya sabotase mesin,” kata Kael. “Sang Arsitek menanamkan ketakutan sampai mereka menerima kendalinya.”
+Kael tidak melihat langkahnya.
 
-Dinding mendadak merapat. Inti yang kelebihan beban telah menemukan mereka.
+Satu pukulan mengenai perut dan melemparkannya melewati dua konsol. Sebelum dia mendarat, Veyr sudah berada di sana.
 
-Kael menahan ruang dengan Pulse seimbang. Zireth keluar sambil membawa data, tetapi lengan mekanisnya mengeluarkan percikan dan kehilangan sebagian besar dayanya.
+Sylvara menembak.
 
-Mereka lolos sesaat sebelum ruangan menutup.
+Veyr menangkap panah dengan dua jari.
 
-Kael membuka cahaya informasi yang tertinggal di telapak tangannya.
+"Kebebasan lokal," katanya. "Menarik. Lebih cepat. Lebih boros."
 
-*Keseimbangan bukan energi ketiga. Ia adalah hubungan yang menjaga dua kutub tetap hidup.*
+Kael bangkit dengan darah di bibir.
 
-Zireth membaca data yang tersisa. “Berarti kita tidak perlu menekan inti dengan kekuatan baru. Kita harus mengembalikan hubungan antara energi penciptaan dan kehancuran.”
+"Mulai menyukai pilihan?"
 
-Jalur menuju ruang pusat menyala.
+"Aku memahami mengapa makhluk pendek umur kecanduan padanya."
 
-Badai bilah berkumpul di sana, menunggu bersama hitungan mundur yang terus bergerak.
+Pertarungan berubah.
+
+Tidak ada lagi kota yang bisa dialihkan.
+
+Hanya Veyr—lebih cepat, lebih kuat, dan untuk pertama kalinya bertindak tanpa meminta persetujuan jaringan.
+
+Ironisnya, justru itu membuatnya mulai melakukan kesalahan manusia.
+
+Dia mengejar Kael terlalu jauh.
+
+Mengabaikan Sylvara karena marah.
+
+Memilih serangan besar ketika serangan kecil cukup.
+
+Emosi muncul bersama kebebasan.
+
+Kael melihatnya.
+
+Veyr juga.
+
+Dan Letnan Arsitek tampak lebih takut pada perubahan dirinya sendiri daripada pada pedang Kael.

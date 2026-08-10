@@ -1,37 +1,47 @@
 # Episode 122 — Menyusuri Jejak Korupsi
 
-Mereka mengikuti denyut kristal semakin jauh ke bawah Urdron.
+Tambang bawah Urdron dipenuhi urat kristal merah.
 
-Kael memetakan rongga dengan resonansi rendah. Di antara dua gema terdapat ruang tersembunyi yang sengaja dihapus dari bentuk tambang.
+Sebagian berubah ungu.
 
-Gema Pengetahuan membuka segelnya.
+Korupsi Arsitek telah merembes ke batu selama bertahun-tahun, mengikuti leyline seperti penyakit mengikuti pembuluh darah.
 
-Di dalam, sebuah rekaman memperlihatkan raja-raja Dwarf memerintahkan para penambang menggali lebih dalam meski Void mulai meracuni batu. Mereka menginginkan kekuatan yang tersimpan di dekat akar Leyline.
+Kael menggunakan Mata Kesembilan hanya dalam kedipan pendek untuk melacak jalurnya.
 
-Cahaya putih kemudian memotong gambar.
+Semakin dalam mereka turun, semakin jelas pola itu: korupsi tidak menyerang acak. Ia menghindari area tertentu.
 
-Kael menyentuh sisa rekaman dan merasakan ketakutan orang-orang yang dipaksa bekerja. Satu perintah menekan pikirannya:
+"Serpihan Gema berada di tempat yang tidak bisa disentuh Struktur," kata Sylvara.
 
-*Serahkan kehendakmu demi keselamatan.*
+"Atau sesuatu di sana membuat Arsitek takut," jawab Kael.
 
-Dia memutus kontak.
+Mereka menemukan bekas perkemahan Dwarf tua.
 
-“Keserakahan para raja membuka jalan bagi Sang Arsitek,” katanya. “Korupsi ini tidak masuk melalui perang. Ia diundang.”
+Tidak ada mayat.
 
-Dinding merapat.
+Hanya tulisan di dinding:
 
-Kristal Void dan para penghuni tanpa nama menyerang dari segala arah. Kael menahan kedua sisi ruang, sementara Sylvara membawa salinan pola keluar.
+**KAMI TIDAK KEHILANGAN TAMBANG. KAMI MENUTUPNYA DARI DIRI KAMI SENDIRI.**
 
-Mereka lolos sesaat sebelum ruangan mengatup.
+Zireth, yang ikut melalui kristal komunikasi dari ruang perawatan, mendengar kalimat itu.
 
-Cahaya data di telapak Kael memperlihatkan jalur menuju pusat korupsi.
+"Kalimat yang sangat Dwarf."
 
-Pengunci di depan terbuka satu demi satu.
+Kael menyentuh dinding.
 
-Sosok-sosok kristal berdiri menunggu, tetapi beberapa dari mereka kini memandang Gema Pengetahuan dengan gerakan ragu.
+Gema emosi masuk melalui batu: kegembiraan saat menemukan serpihan, lalu perselisihan, kemudian keserakahan yang meningkat terlalu cepat.
 
-Bagian diri mereka yang terlupakan mulai bangun.
+Serpihan Gema tidak sekadar memberi tenaga.
 
-Kael menutup jari di sekitar data.
+Ia memperkuat niat pemiliknya.
 
-“Kalau mereka masih bisa mengingat, kita belum terlambat.”
+"Kalau kita masuk dengan keinginan menyelamatkanmu terlalu kuat, benda itu bisa memperkuatnya sampai aku melakukan apa pun tanpa peduli harga."
+
+Zireth diam sesaat.
+
+"Jadi untuk menyelamatkanku, jangan terlalu ingin menyelamatkanku."
+
+"Kau menikmati ini."
+
+"Sedikit."
+
+Kael menarik napas dan melanjutkan turun.

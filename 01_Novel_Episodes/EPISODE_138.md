@@ -1,31 +1,49 @@
 # Episode 138 — Latihan Resonansi
 
-Gema Sang Arsitek menyerang dengan tekanan ruang yang menghantam seperti palu.
+Mereka tidak langsung kembali ke Urdron.
 
-Kael menahan benturan pertama. Sylvara mengangkat Gema Pengetahuan dan memaksa sosok palsu itu membagi perhatian.
+Kael menolak masuk ke Hati Dunia dengan kemampuan yang baru dipahaminya setengah.
 
-Kael mencari frekuensi alami di balik bentuknya. Satu nada terdengar terlalu sempurna—simpul kendali.
+Selama dua hari mereka berlatih di persimpangan leyline.
 
-“Sekarang,” seru Sylvara.
+Bukan jurus baru.
 
-Kael membalik fase Pulse. Selubung musuh retak, tetapi energinya berpindah ke dinding. Akar Leyline menumbuhkan bilah dan tangan dari batu.
+Koordinasi.
 
-Dulu Kael takut menjadi monster. Kini dia lebih takut terbiasa dipanggil penyelamat dan percaya semua keputusannya pasti benar.
+Zireth membaca kepadatan dan aliran bumi.
 
-Dia memilih sambungan terkecil yang dapat mengubah aliran serangan, lalu menghantamnya. Lorong sempit terbuka tanpa merusak struktur utama.
+Sylvara membaca perubahan hidup di permukaan.
 
-Satu bilah hampir mengenai Sylvara. Kael membentuk perisai tipis dan menerima benturan yang memutihkan pandangannya.
+Kael membaca frekuensi energi dan kemungkinan gangguan.
 
-Gema Pengetahuan menghantam pusat yang terbuka.
+Mereka mencoba mengirim satu denyut melalui leyline tanpa mengubah arus alami.
 
-Jaringan simbol pecah.
+Percobaan pertama membuat ikan di sungai kecil melompat serempak.
 
-Rekaman tersembunyi muncul:
+Percobaan kedua memadamkan semua lampu rune Zireth.
 
-*Fragmen Kael berada di luar rantai sebab-akibat Zerath.*
+Percobaan ketiga berhasil selama dua detik.
 
-Pecahnya pusat mengirim sinyal ke kedalaman.
+Pada percobaan kesembilan, mereka dapat mengirim pesan pendek kembali ke Urdron:
 
-Akar Leyline menjawab dengan denyut keras.
+**BUKA PINTU SAAT KAMI DATANG. JANGAN PAKSA.**
 
-Bentuk utama gema palsu mulai bergerak, kini telah mempelajari pola resonansi Kael.
+Balasan Volundr muncul melalui batu.
+
+**AKHIRNYA KALIAN BELAJAR MENGETUK.**
+
+Kael tersenyum.
+
+Latihan terakhir lebih sulit.
+
+Mata Kesembilan harus tetap tertutup.
+
+Dia harus mempercayai dua pembacaan lain tanpa memverifikasi sendiri.
+
+Itu ternyata lebih berat daripada mengendalikan Void.
+
+Ketika berhasil, Kael memahami sesuatu.
+
+Kekuatan tim bukan tiga orang memberikan data kepadanya agar dia membuat keputusan.
+
+Kekuatan tim adalah dia tidak harus menjadi pusat keputusan sama sekali.

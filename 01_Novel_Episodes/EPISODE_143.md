@@ -1,45 +1,75 @@
 # Episode 143 — Pesan untuk Pewaris
 
-Setelah mekanisme pemanen jiwa terungkap, seluruh Ruang Penciptaan berubah.
+Sang Jantung memanggil Kael dengan nama yang bukan namanya.
 
-Cahaya di sekeliling altar memadat menjadi jaringan simbol. Salah satunya berdenyut seirama dengan Fragmen di dada Kael.
+**DRA-KELYN.**
 
-“Pesan pewaris,” kata Sylvara.
+Suara itu membuatnya membeku.
 
-Kael menyentuh simbol tersebut.
+"Drakelyn?"
 
-Sosok tanpa wajah muncul dalam proyeksi. Bentuknya tidak menyerupai dewa atau ras mana pun yang dikenal Zerath.
+Pulau terbelah kembali muncul dalam ingatan. Nama yang terukir jauh sebelum kelahirannya: KAEL DRAKELYN.
 
-*Bagi pewaris yang lahir di luar rantai sebab-akibat,* ujar suara itu. *Jika kau mendengar pesan ini, para penjaga pertama telah gagal.*
+Selama ini dia mengira itu nama keluarga lain, nubuat, atau bukti seseorang menulis sejarahnya sebelum dia lahir.
 
-Kael menahan napas.
+Cahaya di depan Kael membentuk tulisan Celestial tua.
 
-*Dua belas Fragmen bukan senjata. Mereka adalah jangkar kebebasan dunia. Selama setiap Fragmen mempertahankan kehendaknya sendiri, tidak ada satu kesadaran yang dapat menulis ulang seluruh Zerath.*
+Maknanya masuk melalui resonansi.
 
-Proyeksi menampilkan Sistem Pahlawan yang mengikat jangkar-jangkar tersebut ke singgasana para dewa.
+**DRA** — pemisah nada.
 
-*Sistem yang kami bangun telah diubah. Putuskan rantainya, tetapi jangan hancurkan jaring yang menjaga dunia tetap utuh.*
+**KELYN** — pembawa sela.
 
-Zireth memperbesar pola dengan lengan bintang. “Itulah Jalan Keempat. Bukan mempertahankan sistem lama atau menghancurkannya total. Memisahkan fungsi perlindungan dari kendali para dewa.”
+Bukan nama keluarga.
 
-Kael belum sempat menjawab ketika gelombang penciptaan bangkit.
+Sebuah fungsi.
 
-Cahaya menyelimuti tubuhnya dan membelah keberadaannya menjadi puluhan kemungkinan. Pada setiap versi, dia memilih cara berbeda untuk menghadapi Sistem: menjadi penguasa baru, menghancurkan semuanya, menyerahkan diri, atau melarikan diri.
+Gelar lama untuk mediator yang mampu membawa beberapa frekuensi primordial tanpa memaksa semuanya menyatu.
 
-Sylvara menggenggam tangannya.
+"Jadi ukiran itu bukan namaku."
 
-“Kael. Pilih dirimu yang sekarang.”
+Sang Jantung menjawab melalui rasa.
 
-Dia mengikuti suara itu di antara seluruh kemungkinan.
+Benar dan salah.
 
-Ragnarok Pulse menyatu dengan pesan pewaris. Kael menolak semua masa depan yang meminta dunia tunduk kepadanya.
+Pulau itu mengenali pola Kael, lalu menerjemahkan fungsi ke bentuk paling dekat dengan identitasnya.
 
-“Aku akan memutus rantainya tanpa mengambil tempat mereka.”
+KAEL — individu.
 
-Gelombang cahaya retak.
+DRA-KELYN — fungsi resonansi.
 
-Di pusat altar, sebuah koordinat menuju permukaan Zerath terbuka. Namun arus Leyline yang menjadi jalan pulang mulai runtuh.
+Bukan nubuat bahwa seorang anak bernama Kael pasti akan datang.
 
-Pesan terakhir muncul sebelum proyeksi padam:
+Sistem kuno hanya mengenali apa yang sudah dia bawa ketika berdiri di sana.
 
-*Waspadai pahlawan yang tidak tahu bahwa jiwanya telah dijadikan milik para dewa.*
+Kael tertawa pelan karena lega dan jengkel.
+
+"Berbulan-bulan aku mengira dunia menulis namaku sebelum lahir."
+
+Cahaya berubah.
+
+Sebuah pesan terakhir muncul—direkam oleh beberapa operator awal Struktur Penyelaras.
+
+**Jika kelak muncul pembawa sela, jangan jadikan dia raja, dewa, atau kunci tunggal. Fungsi mediator gagal saat seluruh beban dunia dipindahkan kepadanya.**
+
+Kael membaca dua kali.
+
+Itu terasa seperti peringatan yang ditulis khusus untuk semua orang yang pernah mencoba menjadikannya pusat jawaban.
+
+Termasuk dirinya sendiri.
+
+Pesan berlanjut:
+
+**Jaga perbedaan. Jaga sela. Dunia bertahan bukan karena semua nada menjadi sama, tetapi karena mereka dapat beresonansi tanpa saling menghapus.**
+
+Kael menutup mata.
+
+Jalan Keempat yang selama ini dia beri nama ternyata bukan konsep baru.
+
+Orang-orang kuno pernah menemukan prinsip serupa.
+
+Dan bahkan mereka sudah tahu bahayanya jika satu pembawa dianggap penyelamat tunggal.
+
+Di kejauhan, arus Hati Dunia tiba-tiba berubah.
+
+Sang Arsitek menemukan jalan masuk.

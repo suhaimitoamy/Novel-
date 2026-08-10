@@ -1,47 +1,69 @@
 # Episode 107 — Penjaga Arsip
 
-Penjaga Arsip tidak langsung menyerang.
+Kharad meminta satu hal sebelum mereka membuka arsip penuh.
 
-Retakan hitam menjalar di lantai mengikuti langkahnya. Denyut tubuhnya menyerupai mesin yang mencoba meniru napas makhluk hidup.
+"Putus penopang hidupku setelah data aman."
 
-Kael menghitung jeda di antara setiap getaran.
+Kael menatap kapsul.
 
-“Ada ruang lain di bawah sini,” kata Zireth. “Kalau dibuka dengan cara yang salah, beban kota akan runtuh menimpa kita.”
+"Kau yakin?"
 
-Kael mengalirkan interferensi fase melalui ujung jari. Frekuensi rendah memetakan rongga, sedangkan nada tinggi membaca perubahan material.
+"Seratus dua puluh tahun cukup untuk mempertimbangkan."
 
-Dua gema kembali.
+Kael mengangguk.
 
-Di antaranya tersembunyi ruangan yang telah dihapus dari bentuk arsip.
+Tidak mencoba membujuk.
 
-Zireth meretas terminal terdekat. Pintu tak terlihat membuka celah, dan mereka masuk sebelum Penjaga menutup jalan.
+Pelajaran Nyara masih terasa dekat.
 
-Udara di ruang tersebut tua dan kering. Rekaman rusak mengulang adegan yang sama: para pekerja Urdron menahan sesuatu, lalu cahaya putih memotong gambar.
+Namun ketika Zireth mulai membuka segel arsip, sistem berubah.
 
-Kael menyentuhnya.
+Kapsul Kharad terkunci.
 
-Asap dan ketakutan memenuhi pikirannya. Sebuah perintah dingin meminta semua orang menyerahkan kehendak demi keselamatan.
+Rangka mekanis turun dari langit-langit dan menempel pada tubuh Dwarf itu. Kabel masuk ke leher dan tulang belakang.
 
-Kael segera melepaskan tangan. Darah mengalir dari hidung.
+Kharad menjerit.
 
-“Ketakutan dipakai untuk membuat penduduk menerima kendali,” katanya. “Sang Arsitek tidak sekadar menyerang Urdron. Dia mengubah cara mereka berpikir.”
+"Bukan aku!"
 
-Dinding merapat.
+Sistem menggunakan penjaga hidup sebagai kunci balik.
 
-Penjaga Arsip telah menemukan mereka.
+Tubuhnya diangkat dari kapsul, dibungkus zirah arsip kuno.
 
-Kael menahan kedua sisi dengan Pulse seimbang. Otot dan tulang lengannya menjerit, tetapi Zireth sempat menyalin sebagian data sebelum mereka meloloskan diri.
+Mata yang masih hidup berubah ungu.
 
-Ruang mengatup tepat di belakang.
+"Kael," suara Kharad keluar bercampur suara mesin. "Jangan... tahan karena aku."
 
-Sepotong informasi masih tersimpan dalam cahaya kecil pada telapak Kael.
+Kael mengangkat Zerath's Fang.
 
-*Fragmen kedua belas telah dijadikan benih penataan ulang realitas.*
+Dia tidak menyerang tubuh.
 
-Pengunci di lorong berikut terbuka satu demi satu.
+Mata Kesembilan memperlihatkan lapisan perintah yang membungkus saraf Kharad.
 
-Cahaya asing mengarah ke pusat kendali. Penjaga Arsip menunggu di sana bersama gelombang Rift yang semakin lebar.
+Sama prinsipnya dengan Zevaron, tetapi lebih tua dan kasar.
 
-Sang Arsitek telah mengetahui tujuan mereka.
+Kael mencari frekuensi penguat.
 
-Dan dia sengaja membiarkan jalan terakhir tetap terbuka.
+Zireth menembakkan pulsa dari kanan. Sylvara memecah tiga kristal pengendali di langit-langit.
+
+Kael masuk pada jeda yang terbentuk dan menghantam dada zirah dengan gagang pedang.
+
+Resonansi, bukan tebasan.
+
+Lapisan perintah terputus.
+
+Kharad jatuh.
+
+Kael menangkap tubuh ringannya.
+
+Dwarf tua itu tersenyum kecil.
+
+"Bagus... kau belajar tidak membunuh pintu hanya karena kuncinya dipakai musuh."
+
+"Jangan buat kalimat terakhir terlalu bagus."
+
+Kharad tertawa sekali.
+
+Kemudian matanya menutup.
+
+Kali ini tanpa mesin yang memaksanya kembali.

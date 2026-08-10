@@ -1,37 +1,63 @@
 # Episode 127 — Mengambil Serpihan
 
-Penjaga Serpihan mengikuti setiap gerakan mereka dengan gravitasi yang berubah-ubah.
+Kael mengulurkan tangan.
 
-Zireth menemukan jalur tersembunyi di bawah makam. Membukanya membutuhkan lengan mekanis yang rusak sebagai penghubung terakhir dengan rune klannya.
+Pecahan Gema menyentuh telapak dan langsung memperlihatkan kemungkinan.
 
-“Kau dapat kehilangan semuanya,” kata Kael.
+Zireth dengan tubuh baru.
 
-Zireth menatap sisa logam pada lengannya. “Kalau tidak berani kehilangan bagian lama, aku tidak berhak meminta sesuatu yang baru.”
+Zireth mati dalam ritual.
 
-Dia menempelkan sambungan lengan pada altar.
+Kael memakai serpihan untuk dirinya sendiri.
 
-Kael memetakan rongga dengan penggeseran gravitasi mikro. Dua gema kembali dan memperlihatkan ruang tersembunyi yang sengaja dihapus dari geometri.
+Sylvara mengambilnya.
 
-Gerbang terbuka.
+Urdron runtuh.
 
-Di dalam, rekaman Volundr menunjukkan pandai besi pertama yang memotong sebagian tubuhnya sendiri agar dapat menyatu dengan Logam Bintang.
+Tidak ada satu gambar yang diberi label benar.
 
-Kael menyentuh proyeksi dan merasakan panas tungku dari zaman lain.
+Kael menutup Mata Kesembilan.
 
-Pesannya jelas:
+"Aku tidak mau tahu."
 
-*Logam memilih pembawa yang sanggup melepaskan bagian tubuhnya.*
+Serpihan menjadi hangat.
 
-Penjaga menemukan mereka. Dinding merapat dan gravitasi menekan hingga lutut Kael hampir menyentuh lantai.
+Ia tidak masuk ke tubuh Kael. Sebaliknya membentuk cincin batu kecil di pergelangan kanan, terpisah dari Fragment dan Void.
 
-Kael menahan ruang, sementara Zireth mengambil serpihan Logam Bintang dari altar.
+Volundr berkata, "Pembawa sementara. Tidak ada kepemilikan."
 
-Lengan mekanis lamanya retak semakin parah saat menyentuh benda tersebut.
+"Bagus."
 
-Mereka lolos sesaat sebelum ruangan menutup.
+Kael tidak ingin satu lagi sumber kekuatan tinggal di tubuhnya.
 
-Serpihan bercahaya berada di tangan Zireth, tetapi Penjaga raksasa berdiri di jalur pulang.
+Mereka kembali melewati desa Ghorin dengan cincin itu dalam keadaan tidur. Rava memeriksanya lalu mengangguk.
 
-Warisan itu belum benar-benar menjadi miliknya.
+"Kalian kembali dengan jumlah yang sama."
 
-Dia masih harus membayar harga yang diminta.
+"Kurang beberapa bagian tubuh karena penjagamu."
+
+"Itu berarti dia menyukaimu."
+
+Kael memutuskan tidak memahami humor bawah tanah.
+
+Sebelum mereka pergi, seorang anak Ghorin menyentuh cincin batu.
+
+"Ini sedih."
+
+Kael menunduk. "Serpihannya?"
+
+Anak itu menggeleng.
+
+"Yang menunggu di atas. Mesin-manusia. Dia takut bangun berbeda."
+
+Zireth.
+
+Kael menatap cincin.
+
+Mereka terlalu sibuk memikirkan apakah ritual bisa menyelamatkan tubuh Zireth.
+
+Belum ada yang bertanya bagaimana rasanya bagi Zireth membayangkan dirinya berubah permanen.
+
+Kael mempercepat langkah.
+
+Ada percakapan yang harus dilakukan sebelum penempaan dimulai.

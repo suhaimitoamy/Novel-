@@ -1,29 +1,43 @@
 # Episode 136 — Petunjuk dari Arus Energi
 
-Akar Leyline purba berdenyut di bawah kaki mereka.
+Sinyal timur tidak membawa suara.
 
-Kael menyelaraskan Ragnarok Pulse dengan frekuensi dasar planet. Gema Pengetahuan membantu Sylvara membedakan suara asli Hati Dunia dari pola palsu yang menyusup di antaranya.
+Ia mengubah arus leyline sedikit demi sedikit, seperti seseorang mengetuk pipa dari tempat sangat jauh.
 
-Getaran kembali membawa peta ruang yang dilipat menjadi jebakan.
+Zireth menerjemahkan pola menjadi koordinat.
 
-Kael menarik Sylvara mundur sebelum retakan menyapu tempatnya. Dia menggeser fase beberapa derajat dan membuka celah sempit tanpa merusak akar energi.
+"Bukan lokasi tetap. Bergerak."
 
-Mereka menerobos bergantian.
+"Kapal?" tanya Sylvara.
 
-Di balik penghalang, garis geometris memenuhi dinding seperti bahasa mesin. Fragmen Kael mengenali kehendak Sang Arsitek di dalamnya.
+"Atau sesuatu di bawah tanah."
 
-Seseorang telah memaksa akar Leyline melupakan bentuk alaminya.
+Kael memperhatikan ritmenya.
 
-Jalan di belakang menutup.
+Tiga ketukan pendek, dua panjang.
 
-Tekanan berubah. Debu membentuk lingkaran, lalu sebuah suara muncul dari seluruh ruangan.
+Pola itu pernah muncul pada data Nexus yang diberikan Agen Berhelm—kode lama untuk kanal darurat yang sudah tidak digunakan Command modern.
 
-Ia terdengar seperti dunia sendiri, tetapi ritmenya terlalu sempurna.
+"Nexus lama."
 
-“Palsu,” kata Sylvara. Gema Pengetahuan bergetar di tangannya. “Itu gema Arsitek yang menyamar sebagai Hati Dunia.”
+Zireth mengangguk. "Atau orang yang ingin kita percaya begitu."
 
-Cahaya asing berkumpul dan membentuk sosok tanpa wajah.
+Mereka membalas dengan satu pesan sederhana:
 
-Kael membuka telapak tangan.
+**SIAPA KALIAN?**
 
-Untuk mendengar panggilan sejati Zerath, mereka harus menyingkirkan suara yang telah mengambil namanya.
+Jawaban datang beberapa menit kemudian.
+
+**MEREKA YANG MENOLAK MENJADI SATU PIKIRAN.**
+
+Kael menatap jalur timur.
+
+Ada kelompok lain yang mengetahui rencana asimilasi Arsitek.
+
+Sebelum mereka bisa bertanya lebih jauh, leyline selatan melonjak keras.
+
+Peta energi menunjukkan satu kekaisaran memobilisasi Fragmen sebagai senjata.
+
+Benih kekacauan Aethelgard tumbuh.
+
+Waktu mereka semakin sedikit.
