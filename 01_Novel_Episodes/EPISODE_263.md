@@ -1,57 +1,31 @@
 # Episode 263 — Benturan Vanguard Beastmen
 
-Tubuh Kharvok berubah di depan mereka.
+Fragment kedelapan berada di bawah benteng Beastmen tua.
 
-Tulang bahunya membesar, taring memanjang, dan serat merah dari Hutan Daging masuk melalui celah zirah. Kapaknya menyatu dengan lengan, menjadikan panglima pusat hidup bagi Ritual Bulan Darah.
+Masalahnya benteng itu sekarang dikuasai klan yang menolak dewan Rakh dan percaya Fragment harus dipakai untuk memastikan Beastmen tidak pernah dijadikan korban lagi.
 
-Setiap denyut jantungnya memaksa ribuan Beastmen bergerak lebih cepat menuju dataran Fragmen.
+Pertempuran internal hampir pecah.
 
-Raska menyerang lebih dahulu. Dia tidak membidik leher atau dada, melainkan tanda ritual pada dahi panglima. Kharvok menangkis dan melemparkannya ke dinding.
+Kael tidak punya legitimasi memerintah mereka.
 
-Sylvara menembakkan tiga panah penenang ke sambungan otot yang membesar. Racunnya bekerja sesaat sebelum pulsa hutan membakarnya keluar.
+Rakh masuk sendiri ke aula dan berdebat dengan kepala klan, Varos.
 
-Zireth memetakan frekuensi hormon perang. “Pusatnya tidak hanya di Kharvok. Seluruh hutan menjadi penguat.”
+"Kau ingin melindungi bangsa kita dengan membuat semua bangsa lain takut pada tombol di tanganmu," kata Rakh. "Itu bukan kebebasan. Itu giliran kita menjadi penindas."
 
-Kael menggunakan pembatalan frekuensi. Gelombang merah dan biru menyentuh pulsa hutan dengan fase berlawanan, mengurangi dorongan pada pasukan tanpa menghapus naluri alaminya.
+Varos mengaktifkan Fragment sebagian.
 
-Kharvok meraung.
+Gelombang resonansi membuat tubuh Beastmen di ruangan berubah: otot mengeras, naluri predator naik, emosi menyempit menjadi agresi.
 
-Akar, dinding daging, dan tanah bergerak menjadi anggota tubuh baru. Gua menutup jalur keluar dan menyerang semua orang yang tidak mengikuti irama ritual.
+Kael masuk hanya untuk menahan efek, memberi orang cukup ruang memilih lagi.
 
-Kael tidak lagi memiliki entropi untuk memotong seluruh hutan. Dia harus menemukan titik yang membuat pulsa buatan menumpang pada jantung alami Garundrax.
+Benturan Rakh dan Varos tetap milik mereka.
 
-Raska bangkit dengan wajah berlumur darah.
+Akhirnya Rakh mematahkan perangkat aktivasi, bukan tubuh sepupunya.
 
-“Nyanyian kawanan,” katanya. “Sebelum ritual perang, kami menyatukan napas saat berburu. Kharvok mengubahnya menjadi perintah.”
+Fragment kembali turun.
 
-Dia mulai mengeluarkan nada rendah dari tenggorokan. Beastmen pemburu yang sempat memperoleh kendali ikut menyahut dari lorong lain.
+Benteng selamat.
 
-Irama tersebut tidak memaksa. Setiap suara boleh masuk atau berhenti sendiri.
+Namun denyut parsial itu sudah dikirim ke sebelas Fragment lain.
 
-Kael menyelaraskan pembatalan pada nyanyian kawanan. Sylvara menembakkan panah sesuai ketukan Raska. Zireth memisahkan lapisan Sistem dari jaringan biologis hutan.
-
-Kharvok menyerang Kael, tetapi gerakannya terlambat ketika sebagian pasukan memilih mengikuti nyanyian lama.
-
-Tongkat Eira menyentuh dada panglima.
-
-Kael tidak menghentikan jantungnya. Dia menempatkan simpul nol pada hubungan antara detak Kharvok dan perintah ritual.
-
-Satu denyut lewat tanpa memaksa siapa pun.
-
-Lalu denyut kedua.
-
-Mata merah para Beastmen mulai jernih.
-
-Sistem meningkatkan daya dan mencoba memakai Fragmen Garundrax secara langsung. Seluruh hutan menggeliat, mengangkat altar Bulan Darah dari kedalaman.
-
-Kharvok jatuh pada satu lutut. Kesadarannya kembali cukup lama untuk menunjuk pusat altar.
-
-“Hancurkan benda itu.”
-
-Kael menggeleng. “Fragmennya ada di dalam. Kita pisahkan ritualnya.”
-
-Panglima tertawa getir. “Jalan sulit lagi.”
-
-“Sudah menjadi kebiasaan buruk.”
-
-Mereka bergerak menuju altar bersama, sementara hutan yang dipaksa berperang mencoba menelan anak-anaknya sendiri.
+Rantai sinkronisasi dimulai.

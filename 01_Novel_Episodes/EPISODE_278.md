@@ -1,65 +1,35 @@
 # Episode 278 — Benturan Titik Nol
 
-Sinkronisasi mencapai enam Fragmen ketika sisa Kembaran menyerang.
+Dua realitas mulai bertukar benda.
 
-Gravitasi membalik tanpa peringatan. Para komandan terlempar dari pijakan, lalu jatuh ke arah singularitas yang menggantung di langit. Zevaron membuka satu sayapnya yang tersisa dan menahan tiga orang dengan medan cahaya.
+Batu dari dunia lain jatuh ke ruang Kael. Udara mereka membawa komposisi berbeda. Nul bergetar karena dua versi dua belas Fragment mencoba mengenalinya.
 
-Kael menancapkan tongkat Eira. Kayu tua itu melengkung, tetapi tetap menahan tubuhnya.
+Kael dan versi lain harus menstabilkan retakan bersama.
 
-“Jangkar ketujuh putus!” teriak Zireth.
+Masalahnya metode mereka bertolak belakang.
 
-Kael menemukan jalurnya. Sisa Kembaran bergerak di dalam jaringan seperti penyakit, meniru tanda resonansi Kael untuk membuat setiap Fragmen menganggap yang lain sebagai ancaman.
+Kael menjaga distribusi.
 
-Dia tidak dapat membersihkannya dengan pola lama. Kembaran mengetahui semuanya.
+Versi lain terbiasa mengendalikan semua resonansi dari tubuhnya.
 
-Kael memandang para komandan yang semula datang sebagai musuh. “Ubah urutan sesuka kalian. Jangan tunggu aba-aba.”
+Setiap kali mereka bekerja, salah satu pola menolak yang lain.
 
-“Tanpa urutan, jaringan bisa bentrok,” kata seorang pendeta.
+"Lepaskan pusatmu," kata Kael.
 
-“Urutan tetap akan dibaca.”
+"Kalau kulepas, duniaku runtuh."
 
-Mereka memilih risiko yang tidak dapat diprediksi.
+Itulah tragisnya.
 
-Dwarf mengirim massa lebih dulu. Beastmen menahan tarikan dengan akar hidup. Celestial menurunkan tekanan atmosfer, sementara pasukan manusia membuka leyline kota sebagai saluran sementara.
+Pilihan yang menyelamatkan satu realitas menjadi racun saat kedua realitas bersentuhan.
 
-Tidak ada satu pusat yang mengatur semuanya.
+Mereka menemukan solusi sementara: pisahkan frekuensi dunia, bukan mengubah sistem internal masing-masing.
 
-Kembaran terlambat menyesuaikan diri.
+Node entropi Kael dan pusat Fragment versi lain membentuk dua phase skin raksasa.
 
-Kael memasukkan Frekuensi Penyangkal ke celah tersebut. Dia tidak menyerang bayangan, melainkan memutus haknya memakai tanda resonansi Kael.
+Retakan berhenti bertukar materi.
 
-Sisa Kembaran membentuk tubuh di depan singularitas. Wajahnya retak, tetapi senyumnya masih sama.
+Namun batas tetap tipis.
 
-“Kau mengganti kepastian dengan kekacauan.”
+Mereka membeli waktu.
 
-“Aku mengganti kepatuhan dengan keputusan.”
-
-Bayangan mengangkat tangan. Seluruh massa Dataran Terbelah menekan Kael dari dua arah. Tulangnya berderak. Recoil dari teknik sebelumnya membuat tangan kanannya gemetar.
-
-Sylvara melompat dari pecahan batu dan menembakkan panah ke jalur gravitasi, bukan ke tubuh lawan. Anak panah berputar mengikuti medan, menandai kurva yang tak terlihat.
-
-“Di sana!”
-
-Kael mengikuti lintasan panah dan menemukan pusat palsu tempat Kembaran mengalihkan massa. Dia menggeser fase sinkronisasi dua belas jangkar tepat ketika jalur itu terbuka.
-
-Enam Fragmen yang sudah terhubung menarik enam lainnya.
-
-Pusaran tersentak.
-
-Sisa Kembaran kehilangan kaki, lalu separuh tubuh. Namun sebelum menghilang, ia memindahkan seluruh tekanan ke satu komandan Celestial.
-
-Zevaron mendorong orang itu keluar dan menerima benturan pada sayap yang tersisa. Cahaya pecah. Tubuhnya jatuh, tetapi Sylvara menangkap tali zirahnya.
-
-Kael dapat mengejar Kembaran atau menahan jaringan.
-
-Dia memilih jaringan.
-
-Bayangan melarikan diri lebih dalam ke singularitas.
-
-Pilihan itu memberi waktu bagi dua belas Fragmen untuk mencapai resonansi yang sama. Gravitasi berhenti berubah arah. Kota-kota yang melayang tertahan di udara sebelum tersedot lebih jauh.
-
-Namun sinkronisasi belum stabil.
-
-Di pusat peta muncul satu syarat yang tidak dapat dipenuhi dengan kekuatan: setiap kerajaan harus melepaskan kunci eksklusif atas Fragmennya.
-
-Tanpa itu, jaringan akan pecah lagi dalam beberapa menit.
+Tidak menyelesaikan masalah.

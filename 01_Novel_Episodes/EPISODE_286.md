@@ -1,45 +1,33 @@
 # Episode 286 — Jejak Kael-Kael Paralel
 
-Lima Kael berdiri di kota cermin Aranyel.
+Mereka membandingkan sejarah.
 
-Kota itu terbentuk dari potongan dunia yang saling menempel: rumah dari satu masa, jalan dari masa lain, dan langit yang berubah warna setiap kali salah satu dari mereka bergerak.
+Kael tanpa lengan kehilangan Sylvara di Gerbang Es lalu memotong korupsi sebelum integrasi.
 
-Kael tua menyebut dirinya Ashen. Kael tanpa Pulse bernama Rian. Sang raja tidak memberikan nama. Tahanan hanya mengenalkan nomor pada lehernya. Yang terakhir terus tersenyum tanpa pernah berkedip.
+Kael bermahkota menyatukan Fragment setelah perang membunuh hampir semua pemimpin.
 
-Sylvara mengamati mereka satu per satu. “Yang tersenyum terlalu tenang.”
+Kael putih menyerahkan diri ke Nexus dan akhirnya memimpin Command.
 
-“Bisa jadi trauma,” kata Zireth.
+Kael tua tidak pernah bertemu Nyara sehingga Mata Kesembilan tidak ada di dunianya.
 
-“Bisa jadi Umbral.”
+Setiap jejak memperlihatkan satu pelajaran berbeda.
 
-Kael merasakan pola recoil mereka. Setiap versi memiliki luka berbeda. Ashen kehilangan setengah paru-paru. Rian tidak memiliki Pulse. Sang raja menahan energi dengan disiplin sempurna. Tahanan membawa segel pada tulang belakang.
+Kael tidak mencari versi terbaik.
 
-Sosok yang tersenyum tidak menunjukkan harga apa pun.
+Mereka mencari perbedaan frekuensi yang bisa membantu anchor realitas.
 
-Kael mendekatinya. “Dari dunia mana kau datang?”
+Aneh melihat luka sendiri menjadi data, tetapi kali ini semua versi memberi persetujuan.
 
-“Dunia tempat semua keputusanmu benar.”
+Nul memetakan mereka sebagai lima pola Dra-Kelyn yang berbeda.
 
-Jawaban itu cukup.
+"Kalau lima mediator bisa tetap terpisah, mungkin jaringan realitas juga bisa."
 
-Sosok tersebut pecah menjadi bayangan dan mencoba masuk ke tubuh Rian. Kael mengunci identitas melalui pola recoil, memaksa penyusup keluar sebelum mencapai jantung.
+Kael bermahkota tertawa. "Kita adalah eksperimen?"
 
-Empat Kael lain langsung menyerang—bukan hanya penyusup, tetapi satu sama lain.
+"Secara sukarela," jawab Nul.
 
-Sang raja menuduh Ashen membawa perang. Tahanan percaya Rian adalah umpan. Rian ingin semua pengguna Pulse menjauh darinya.
+Mereka setuju menguji resonansi bersama—tanpa menyatukan ingatan atau energi.
 
-Sylvara menembakkan panah ke tanah di tengah mereka.
+Lima Kael membentuk satu lingkaran.
 
-“Berhenti. Kalian semua bertingkah seperti versi paling buruk dari orang yang sama.”
-
-Untuk sesaat, bahkan sang raja diam.
-
-Penyusup Umbral melarikan diri ke pusat kota. Bangunan-bangunan cermin mengikutinya, membentuk lorong dari ingatan masing-masing Kael.
-
-Kael asli menatap empat wajah yang membawa sejarah berbeda.
-
-Mereka bukan salinan.
-
-Mereka adalah orang-orang yang benar-benar hidup dengan akibat pilihan yang tidak pernah dia buat.
-
-Dan salah satu dari mereka mungkin masih menjadi pintu bagi Umbral.
+Untuk pertama kalinya Kael merasakan betapa berbeda dirinya dari orang yang wajahnya sama.

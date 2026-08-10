@@ -1,53 +1,35 @@
 # Episode 262 — Suara dari Vanguard Beastmen
 
-Kael membiarkan Vanguard mengejarnya ke dalam Hutan Daging.
+Rakh tidak meminta maaf.
 
-Raska memimpin jalur sempit di antara akar hidup. Sylvara menembakkan panah penenang kepada prajurit yang terlalu dekat, sementara Zireth mengirim gangguan kecil ke tanda Bulan Darah agar beberapa Beastmen memperoleh kendali selama beberapa detik.
+"Aku akan melakukan hal yang sama lagi dengan data yang sama."
 
-“Jangan lukai mereka lebih dari perlu,” kata Raska. “Mereka akan mengingat apa yang dilakukan tubuhnya setelah pulsa padam.”
+Kael menghargai kejujuran meski tidak setuju.
 
-Kael memahami beban tersebut. Para prajurit bukan boneka tanpa kesadaran. Mereka melihat tangan sendiri mengangkat senjata dan tidak mampu menghentikannya.
+Mereka duduk di antara relai rusak dan membandingkan ketakutan.
 
-Di bawah hutan, denyut Fragmen semakin keras.
+Rakh takut satu pusat militer memakai Fragment untuk mengancam semua bangsa.
 
-Setiap pulsa memicu hormon perang, mempercepat jantung, menumpulkan rasa takut, dan mengubah kecurigaan menjadi kebencian. Sistem Pahlawan telah menanam satu perintah pada mekanisme alami Beastmen: bangsa lain akan merebut hutan, maka serang sebelum diserang.
+Kael takut penghancuran sistem pengamatan membuat semua orang buta.
 
-Mereka mencapai gua daging yang menyimpan catatan ritual.
+Zireth menawarkan desain baru: kontrol lokal relai tetap di wilayah masing-masing, tetapi data keselamatan dibagikan ke jaringan dua belas pihak tanpa tombol aktivasi pusat.
 
-Raska membuka membran pintu menggunakan darahnya. Di dalam, dinding menampilkan sejarah Garundrax. Dahulu Fragmen digunakan untuk menyelaraskan kawanan saat berburu dan melindungi wilayah. Para pemimpin kemudian memperkuat pulsa agar seluruh bangsa dapat bergerak serentak dalam perang.
+Rakh bertanya, "Siapa yang menjamin jaringan tidak dibajak?"
 
-Beberapa generasi terakhir menambahkan lapisan dari Sistem Pahlawan.
+"Tidak ada," kata Kael. "Makanya kita bangun supaya satu pembajakan tidak cukup."
 
-“Panglima kami tidak menciptakan semuanya,” kata Raska. “Dia mewarisi alat yang sudah dianggap suci.”
+Rakh menyukai jawaban tanpa jaminan palsu.
 
-Kael membaca rekaman terakhir.
+Vanguard membantu memperbaiki relai dengan arsitektur baru.
 
-Kharvok menerima nubuat bahwa Bulan Darah terakhir akan datang. Jika Beastmen tidak menguasai dua belas Fragmen, naluri ras mereka akan padam dan seluruh keturunan menjadi makhluk jinak di bawah bangsa lain.
+Saat sensor kembali aktif, Fragment kedelapan sudah mendekati ambang kritis.
 
-Kebohongan tersebut dipilih untuk menyentuh ketakutan paling dalam mereka: kehilangan kebebasan dan identitas liar.
+Mereka punya waktu kurang dari satu jam.
 
-Dinding gua berdenyut.
+Rakh berdiri.
 
-Kharvok berdiri pada pintu bersama pasukan pemburu elit. Matanya merah, tetapi suaranya masih miliknya.
+"Baik. Hari ini kita coba cara kalian. Kalau gagal, besok aku hancurkan lagi."
 
-“Kau menyebut naluri kami rantai karena tidak memahami artinya menjadi Beastmen.”
+"Adil."
 
-Kael menatapnya. “Naluri bukan rantai. Pulsa yang mencuri pilihanmu adalah rantai.”
-
-Panglima mengayunkan kapak.
-
-Raska berdiri di antara mereka.
-
-“Beri kami satu menit tanpa tanda Bulan Darah. Kalau kami tetap memilih perang, mereka akan pergi.”
-
-Kharvok tidak dapat menerima permintaan tersebut. Sistem di dalam tubuhnya meningkatkan pulsa sampai otot dan tulangnya mulai berubah.
-
-Kael membatalkan satu gelombang.
-
-Untuk sesaat, mata panglima kembali jernih.
-
-Ketakutan terlihat di sana sebelum pulsa berikutnya menelannya.
-
-Kharvok juga seorang tahanan.
-
-Namun untuk membebaskannya, Kael harus menghentikan ritual yang kini menggunakan tubuh sang panglima sebagai pusat penguat.
+Mereka berlari menuju sumber.

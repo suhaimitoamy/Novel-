@@ -1,67 +1,33 @@
 # Episode 258 — Benturan Pengkhianatan Celestial
 
-Ritual Wadah Dewa dimulai.
+Benturan dimulai bukan karena Kael menyerang.
 
-Cahaya membelit kedua sayap Zevaron dan menariknya ke tengah ruang. Para hakim melantunkan sumpah suksesi, sementara bayangan kesadaran asing turun dari langit-langit istana.
+Warga Celestial di luar gerbang membuka jalur sendiri.
 
-Zevaron menahan badai di dalam tubuh agar ritual tidak langsung mengambil alih jalur elemennya.
+Para teknisi, pekerja, dan penjaga rendah kasta mematikan tiga beacon isolasi dari dalam jaringan servis.
 
-“Kael!”
+High Choir mengirim penjaga untuk menahan mereka.
 
-Kael bergerak menuju pusat arsip, tetapi Jenderal Aerthys menghadang. Tombaknya memecah cahaya menjadi puluhan salinan yang menyerang dari segala arah.
+Kael memilih membantu warga bertahan, bukan merebut istana.
 
-Tanpa entropi, Kael tidak dapat menghapus ilusi sekaligus. Dia membaca pembiasan pada setiap salinan dan mencari satu bayangan yang tidak mengikuti hukum cahaya istana.
+Seraphis membimbing melalui simpul kristal, menunjukkan jalur yang tidak merusak Hati kota.
 
-Tongkat Eira menangkis tombak asli.
+Sylvara melindungi teknisi.
 
-Aerthys terkejut melihat tubuh Kael yang rusak masih mampu menemukan celah.
+Zireth mengunci mekanisme pintu agar tidak bisa ditutup sepihak.
 
-“Kau meninggalkan kekuatan terbesarmu dan masih menganggap diri layak menentang dewa?”
+Kael menghadapi konstruksi Choir menggunakan resonansi disrupsi, menghindari penghancuran inti kesadaran.
 
-“Aku tidak perlu layak. Aku hanya perlu menolak.”
+Ilyr muncul sendiri di jembatan tinggi.
 
-Kael membentuk Frekuensi Penyangkal di antara tombak dan perintah ritual. Serangan tetap memiliki energi, tetapi kehilangan hubungan dengan niat Aerthys selama beberapa detik.
+"Kau memicu pemberontakan."
 
-Dia melewati jenderal dan mencapai pusat arsip.
+Kael menunjuk warga yang sudah bergerak sebelum ia tiba.
 
-Segel dewan memakai pola yang sama dengan dua sayap Zevaron: satu jalur menahan data, satu jalur menghapus kehendak siapa pun yang mencoba membukanya.
+"Tidak. Aku cuma tidak menghalangi mereka."
 
-Kael membiaskan cahaya segel, memisahkan fungsi penyimpanan dari perintah kepatuhan. Arsip terbuka ke seluruh jaringan Lykaros.
+Ilyr menyerang.
 
-Rakyat melihat daftar perjanjian dewan, korban eksperimen, dan rencana menjadikan Zevaron wadah dewa.
+Cahaya putih dan tiga nada Kael bertabrakan di atas awan.
 
-Di luar ruangan, pasukan mulai berbalik melawan para hakim.
-
-Ritual mempercepat diri.
-
-Kesadaran dewa menyentuh tubuh Zevaron. Mata emasnya berubah putih, dan suara lain keluar dari mulutnya.
-
-“Wadah diterima.”
-
-Kael menghubungkan resonansi langsung ke jiwa Zevaron. Di dalamnya, pangeran tersebut masih melawan, tetapi kedua sayap menjadi jalur yang memberi dewa pijakan.
-
-“Putus salah satunya,” kata Zevaron melalui hubungan. “Sekarang.”
-
-Kael menolak selama sepersekian detik.
-
-Aerthys menyerang dari belakang. Kael menghindar, lalu mengarahkan pembiasan tombak jenderal menuju rantai ritual pada sayap kiri.
-
-Cahaya memotong pangkal sayap.
-
-Zevaron menjerit.
-
-Sayap kirinya jatuh ke lantai dan berubah menjadi bulu-bulu emas yang segera padam. Jalur kesadaran dewa terputus setengah, membuat ritual kehilangan keseimbangan.
-
-Zevaron mengambil kembali satu mata.
-
-“Yang kanan masih milikku.”
-
-Dia melepaskan seluruh badai yang ditahan. Ruang ritual pecah, para hakim terpental, dan kesadaran dewa ditolak keluar dari tubuh.
-
-Namun sayap kiri tidak tumbuh kembali.
-
-Di tengah arsip yang runtuh, Zevaron berdiri miring dengan darah emas mengalir dari punggungnya.
-
-Aerthys masih hidup. Dewan belum sepenuhnya jatuh.
-
-Tapi seluruh Lykaros kini mengetahui bentuk pengkhianatan mereka.
+Namun di belakang mereka, konflik sebenarnya adalah siapa yang berhak membuka pintu kota.

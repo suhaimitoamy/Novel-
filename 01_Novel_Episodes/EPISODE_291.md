@@ -1,31 +1,29 @@
 # Episode 291 — Jejak Tabrakan Waktu
 
-Kabut kronal menelan separuh Dataran Terbelah.
+Anchor realitas bekerja sampai waktu mulai tumpang tindih.
 
-Di dalamnya, Kael melihat pasukan dari perang yang belum terjadi bergerak melewati warga dari masa lalu. Sebagian prajurit mengenali namanya. Sebagian mencoba membunuhnya sebelum dia membuat keputusan yang mereka benci.
+Kael melihat salju jatuh ke atas, lalu pohon tumbuh dan membusuk dalam satu kedipan. Zireth mendeteksi dua garis waktu melewati lokasi sama dengan kecepatan berbeda.
 
-Zevaron menancapkan tombak cahaya pada tanah. “Aku akan menjaga masa kini. Jangan biarkan medan menggeser jangkar ini.”
+Sumbernya bukan Fragment langsung.
 
-Zireth memeriksa prajurit muda yang jatuh. Pada zirahnya tertulis tanggal tujuh hari dari sekarang.
+Mesin Waktu lama sedang mencoba menyelaraskan realitas dengan memaksa urutan kejadian sama.
 
-“Tubuhnya memiliki tiga usia jaringan berbeda,” katanya. “Dia sudah hidup melalui perang, kembali ke masa ini, lalu terjebak dalam pengulangan.”
+"Ia membantu dengan cara paling berbahaya," kata Kael.
 
-Kael memasuki kabut bersama Sylvara.
+Mereka mengirim perintah agar Mesin Waktu berhenti sinkronisasi global.
 
-Setiap langkah membawa mereka ke hari berbeda. Pada satu jalan, kota belum dibangun. Beberapa meter kemudian, reruntuhan yang sama sudah ditumbuhi pohon berusia puluhan tahun.
+Tidak ada respons.
 
-Seorang ibu memeluk anaknya di tengah dua masa. Bila mereka menarik sang ibu ke masa kini, anak itu mungkin tidak pernah lahir. Bila dibiarkan, badai kronal akan menghapus keduanya.
+Tiga mesin mungkin sudah terpengaruh benturan realitas.
 
-Kael memakai Pulse beramplitudo rendah untuk menahan batas tanpa memindahkan asal mereka. Dia membuat lorong sempit yang mengembalikan setiap orang ke waktu tempat tubuhnya memiliki hubungan paling kuat.
+Jejak waktu menuju kota tua yang dalam satu versi sudah menjadi reruntuhan, dalam versi lain belum dibangun.
 
-Teknik itu bekerja, tetapi lambat.
+Di tengah superposisi itu, Kael melihat Sylvara berjalan beberapa meter di depan.
 
-Prajurit masa depan menyerang. Mereka percaya Kael akan membuka perang pada hari ketujuh. Salah satu dari mereka meneriakkan nama Sylvara sebagai korban pertama.
+Kemudian versi jalan berubah.
 
-Kael menahan pukulan tanpa membunuh.
+Sylvara menghilang.
 
-Di balik badai, dia merasakan pusat tarikan waktu. Seseorang menyatukan masa lalu dan masa depan agar Kael melihat akibat sebelum membuat keputusan.
+Tidak ke dimensi lain.
 
-Bukan untuk memperingatkan.
-
-Untuk memaksanya takut memilih.
+Ke waktu lain.

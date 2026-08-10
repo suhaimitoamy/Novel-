@@ -1,51 +1,29 @@
 # Episode 257 — Suara dari Pengkhianatan Celestial
 
-Jenderal Aerthys menutup arsip dengan segel berlapis.
+Ilyr menerima mereka di aula tanpa penjaga terlihat.
 
-Cahaya memenuhi ruangan dan mengubah setiap permukaan menjadi cermin. Pada masing-masing pantulan, Zevaron duduk di takhta Rhythor sebagai pemimpin sempurna: tidak menua, tidak ragu, dan tidak pernah kehilangan perang.
+"Kau seharusnya memahami kami," katanya kepada Kael. "Kau sudah melihat bagaimana variasi hampir menghancurkan Hati Lykaros."
 
-“Dewan tidak menjual bangsa kita,” kata Aerthys. “Kami memastikan Rhythor tidak lagi bergantung pada kelemahan satu manusia.”
+"Aku juga melihat satu penjaga mengira pengorbanan dirinya satu-satunya solusi. Sistem bisa salah."
 
-Zevaron menatap versi dirinya yang tersenyum tanpa emosi.
+Ilyr memandang bulu Seraphis dengan jijik tipis.
 
-“Kalian menyebut tubuh tanpa kehendak sebagai pemimpin?”
+"Seraphis rusak oleh kontak denganmu."
 
-“Keinginan pribadi adalah sumber ketidakstabilan.”
+"Atau belajar."
 
-Para hakim cahaya mengaktifkan rantai suksesi. Rune pada lantai mengenali darah Zevaron dan mencoba memaksanya berlutut.
+Perdebatan tidak sederhana. Ilyr memiliki data: setelah High Choir menutup jalur, insiden energi di kota mereka turun drastis. Kontrol pusat memang menghasilkan stabilitas lokal.
 
-Kael membiaskan cahaya segel melalui lapisan Pulse merah dan biru. Tanpa cahaya Sylvara dan tanpa entropi murni, dia tidak dapat menghancurkan rune. Dia hanya mengubah jalur agar perintah tidak mencapai tubuh Zevaron.
+Harga tidak muncul di grafik: warga kasta rendah terkunci di luar, informasi disensor, dunia bawah kehilangan relai keselamatan.
 
-Aerthys menyerang dengan tombak cahaya.
+Kael berkata, "Stabilitas yang memindahkan risiko ke orang lain bukan stabilitas."
 
-Kael menahan ujungnya memakai tongkat Eira. Benturan membuat tangan kanannya mati rasa, tetapi Zevaron mendapat waktu untuk melepaskan badai ke langit-langit dan memecah satu jalur segel.
+Ilyr menawarkan Kael posisi sebagai referensi resonansi High Choir—Dra-Kelyn di pusat jaringan.
 
-Prajurit Celestial di belakang jenderal ragu.
+Kael tertawa sekali.
 
-Mereka telah diberi tahu Zevaron berkhianat kepada Rhythor. Rekaman di arsip menunjukkan dewan sendiri berniat menghapus jiwa pangeran demi menciptakan penguasa abadi.
+"Kalian membaca sejarah dan mengambil pelajaran paling salah."
 
-Kael mengirim bukti tersebut ke seluruh sistem istana.
+Ilyr tidak tersinggung.
 
-Hakim-hakim cahaya langsung memutus transmisi, tetapi beberapa detik cukup. Layar, patung leluhur, dan kristal komunikasi di seluruh Lykaros menampilkan ritual Wadah Dewa.
-
-Suara marah muncul dari banyak lorong.
-
-Aerthys tidak panik.
-
-“Rakyat akan takut, lalu meminta perlindungan. Saat itulah mereka menerima pemimpin yang tidak dapat gagal.”
-
-Zevaron membaca bagian akhir rekaman.
-
-Ritual tidak membutuhkan persetujuannya. Sayap kiri dan kanan berfungsi sebagai dua jangkar jiwa. Memotong salah satunya akan membuka ruang bagi kesadaran dewa masuk ke tubuh.
-
-Para hakim membentuk lingkaran dan mengarahkan cahaya ke sayap Zevaron.
-
-Kael mencoba memutus simpul, tetapi segel telah belajar dari pola Pulse-nya.
-
-“Aku sasaran utamanya,” kata Zevaron. “Berhenti melindungiku dan buka pintu bagi bukti itu.”
-
-Kael memahami rencananya.
-
-Zevaron akan menahan ritual sendiri, sementara Kael membebaskan arsip dari segel dewan.
-
-Jika terlambat, Rhythor mendapatkan dewa baru yang memakai wajah pangeran yang telah kehilangan kehendaknya.
+Ia hanya berkata, "Kalau begitu langit tetap tertutup."

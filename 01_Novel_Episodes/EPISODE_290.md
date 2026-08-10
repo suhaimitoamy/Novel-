@@ -1,43 +1,33 @@
 # Episode 290 — Lima Kael, Satu Luka
 
-Retakan mulai menutup setelah para Kael kembali ke dunia masing-masing.
+Sebelum berpisah, lima Kael mengunjungi satu retakan yang semua dunia mereka miliki.
 
-Sebelum Ashen pergi, dia menyerahkan pecahan kristal hitam dari matanya. “Untuk membedakan gerbang hidup dan luka Umbral.”
+Aranyel.
 
-Rian memberikan sesuatu yang lebih sederhana: sepotong kain dari Aranyel versinya.
+Tidak semua desa terbakar.
 
-Tahanan tidak meninggalkan apa pun selain nomor yang dicoret dari lehernya.
+Di dunia Kael tanpa lengan, Aranyel selamat tetapi ibunya hilang kemudian.
 
-Sang raja pergi tanpa menoleh.
+Di dunia Kael putih, desa dibakar Wardens untuk mencegah Fragment menyebar.
 
-Kael menyimpan semua tanda itu di dekat tongkat Eira. Mereka membuktikan bahwa kemungkinan lain bukan musuh hanya karena berbeda.
+Di dunia mahkota, Kael sendiri memang kehilangan kontrol penuh.
 
-Di pusat kota, sisa Umbral mencoba bangkit sekali lagi. Kali ini tidak memiliki wajah. Lima pola recoil yang tertinggal mengurungnya dari segala sisi.
+Tidak ada versi yang memberi jawaban nyaman pada malam milik Kael asli.
 
-Kael tidak menghancurkan kemungkinan-kemungkinan tersebut. Dia hanya menutup jalan yang membuat satu hasil memakan hasil lain.
+Namun satu hal sama: semua membawa rasa bersalah tentang sesuatu yang tidak sepenuhnya mereka kendalikan.
 
-Sylvara menembakkan panah terakhir ke simpul.
+Lima Kael berdiri di depan lima Aranyel tumpang tindih.
 
-Bayangan runtuh dan kota cermin kehilangan bentuk.
+Tidak ada yang berkata 'bukan salahmu'.
 
-Kebenaran yang tersisa sederhana sekaligus sulit: tidak ada masa depan yang memiliki hak menjadi satu-satunya kebenaran. Setiap dunia membawa harga, dan setiap pilihan melahirkan tanggung jawab yang tidak dapat dipindahkan ke versi diri lain.
+Mereka tahu kalimat itu terlalu sederhana.
 
-Kael, Sylvara, Zireth, dan Zevaron kembali ke Zerath utama.
+Kael tua berkata, "Kita bertanggung jawab pada apa yang kita lakukan setelah luka, bukan wajib menjadi hukuman hidup bagi kejadian itu."
 
-Mereka tidak mendapat waktu beristirahat.
+Kael asli menyimpan kalimat itu.
 
-Semua jam di Dataran Terbelah berbunyi pada saat berbeda. Sebagian bergerak mundur. Sebagian menunjukkan hari yang belum terjadi. Bayangan matahari terbit dan terbenam saling menimpa di langit.
+Retakan Aranyel menjadi anchor kuat karena perbedaan antarversinya jelas.
 
-Zireth memeriksa kristal Ashen. “Retakan paralel mulai menyeret waktu, bukan hanya ruang.”
+Lima dunia mulai menjauh.
 
-Seorang prajurit muncul dari udara dan jatuh di depan mereka. Zirahnnya membawa lambang perang yang belum dimulai. Tubuhnya dipenuhi luka tua, tetapi usianya belum lebih dari tujuh belas tahun.
-
-“Jangan biarkan hari ketujuh terjadi,” katanya sebelum pingsan.
-
-Di belakangnya, barisan tentara dari masa depan berjalan keluar dari kabut kronal.
-
-Pada sisi lain, Aranyel yang telah hancur muncul utuh selama satu detik.
-
-Lima Kael telah kembali ke jalannya masing-masing.
-
-Namun luka yang mempertemukan mereka sekarang menarik masa lalu dan masa depan ke tempat yang sama.
+Lima wajah sama kembali menjadi lima kehidupan berbeda.

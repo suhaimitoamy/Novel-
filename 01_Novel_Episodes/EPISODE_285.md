@@ -1,51 +1,39 @@
 # Episode 285 — Lelaki dengan Wajah yang Sama
 
-Setelah dunia damai dipisahkan, lapisan-lapisan kota mulai kembali ke jalurnya.
+Kael pertama yang datang memakai zirah putih.
 
-Zireth menstabilkan kompas massa. Zevaron menjaga masa kini, sementara Kael menutup benang pengendali satu per satu. Tidak ada ledakan. Bangunan hanya memudar dari tempat yang bukan miliknya.
+Dia menyebut dirinya hanya Kael.
 
-Sylvara muncul melalui celah terakhir. Dia jatuh ke jalan dan langsung mengangkat busur sebelum mengenali mereka.
+Kedua tidak punya lengan kiri.
 
-Kael membantunya berdiri.
+Ketiga membawa mahkota Fragment.
 
-“Kau terlambat,” katanya.
+Keempat lebih tua hampir dua puluh tahun.
 
-“Berapa lama?”
+Kael asli merasa kata 'asli' mulai tidak berguna.
 
-“Di tempatku, tiga hari.”
+Mereka berdiri mengelilingi meja yang terlalu kecil untuk lima orang berwajah sama.
 
-Bagi Kael, belum lewat satu jam.
+Sylvara memandang dari jauh. "Mimpi buruk."
 
-Mereka menemukan kebenaran di pusat lapisan: setiap retakan adalah hasil berbeda dari keputusan lama. Tidak ada satu pun yang palsu, tetapi benang asing memaksa semua hasil itu bertabrakan agar lahir satu dunia dominan.
+Zireth berkata, "Aku akhirnya bisa membuktikan Kael bukan orang paling menyebalkan di multiverse. Ada kompetisi."
 
-Kael memutus benang terakhir.
+Humor membantu.
 
-Kota tanpa langit mulai runtuh ke bentuk alaminya. Jalur pulang terbuka di antara dua menara.
+Kelima Kael memiliki solusi berbeda untuk retakan.
 
-Mereka hampir mencapainya ketika seseorang melangkah keluar dari retakan yang belum tertutup.
+Satu ingin sentralisasi sementara.
 
-Wajahnya sama dengan Kael, tetapi tubuhnya lebih tua. Rambutnya dipenuhi uban dan satu matanya diganti kristal hitam. Dia membawa tongkat yang terbuat dari tulang Fragmen.
+Satu ingin menghancurkan titik nol.
 
-Sylvara mengarahkan panah.
+Satu sudah memakai seluruh Fragment.
 
-Lelaki itu tidak melawan. “Aku bukan Kembaran yang kalian kalahkan.”
+Kael tua ingin membiarkan realitas memilih sendiri meski beberapa mungkin mati.
 
-“Semua orang dengan wajahku berkata begitu akhir-akhir ini,” jawab Kael.
+Tidak ada jawaban jelas benar.
 
-Pria tua itu tertawa pendek. Ada kelelahan yang tidak dapat ditiru data.
+Yang paling penting, semua versi memiliki alasan yang masuk akal.
 
-“Aku datang dari dunia tempat kau menutup semua retakan dengan membunuh siapa pun yang menyentuhnya.”
+Kael memandang wajah-wajahnya sendiri dan menyadari identitas tidak menjamin kesimpulan sama.
 
-Kael merasakan recoil pada tubuhnya. Tidak sama persis, tetapi cukup dekat untuk menunjukkan kehidupan nyata.
-
-“Kenapa datang?”
-
-“Karena lima versi lain juga menemukan jalan ke sini. Salah satunya membawa Umbral. Yang lain hanya ingin pulang.”
-
-Di belakang pria itu, empat retakan baru terbuka.
-
-Siluet Kael berdiri pada masing-masing celah: seorang raja, seorang pengembara, seorang tahanan, dan seorang lelaki tanpa Pulse.
-
-Pria tua itu menatap Kael asli.
-
-“Kita harus menentukan siapa yang masih manusia dan siapa yang sudah menjadi pintu.”
+Pilihan tetap lahir dari konteks.

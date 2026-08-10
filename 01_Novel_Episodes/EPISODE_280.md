@@ -1,67 +1,43 @@
 # Episode 280 — Dunia Pecah Menjadi Banyak
 
-Dengan segel terakhir terlepas, dua belas Fragmen menarik singularitas dari semua arah.
+Satu retakan menjadi sepuluh.
 
-Kael berdiri di pusat Dataran Terbelah bersama Zevaron dan para komandan. Tidak ada formasi yang pernah dirancang untuk keadaan tersebut. Setiap bangsa mengirim sebagian daya, menerima sebagian beban, lalu menyesuaikan diri ketika jaringan berubah.
+Sepuluh menjadi ratusan.
 
-Sisa Kembaran Bayangan terperangkap di tengah pusaran.
+Titik nol bukan satu-satunya jahitan. Denyut dua belas Fragment telah menyamakan banyak realitas di seluruh Zerath.
 
-“Kalian menyebut ini kebebasan?” katanya. “Dua belas kehendak akan saling mengkhianati.”
+Langit dipenuhi dunia lain.
 
-“Mungkin,” jawab Kael. “Tetapi pengkhianatan mereka juga harus melewati sebelas kehendak lain.”
+Kota tampak menumpuk dengan versi dirinya. Gunung memiliki dua puncak di posisi sama. Orang-orang melihat bayangan hidup mereka sendiri berjalan beberapa langkah berbeda.
 
-Zireth mengaktifkan pemetaan massa. “Inti singularitas terbuka. Kita hanya punya satu kesempatan.”
+Panik menyebar lebih cepat daripada retakan.
 
-Kael menyelaraskan denyutnya dengan jaringan, bukan sebagai pemimpin, melainkan sebagai salah satu simpul. Pulse merah mengurangi materi yang berlebih, biru menahan pelepasan energi, dan violet mengurai pola Kembaran dari medan gravitasi.
+Kael membuka Mata Kesembilan dan hampir pingsan.
 
-Dua belas jangkar membalas serempak.
+Kemungkinan tidak lagi hanya jalur.
 
-Sisa Kembaran mencoba berpindah ke tubuh Kael. Frekuensi Penyangkal menghentikannya pada batas kulit.
+Mereka menjadi ruang nyata yang saling menekan.
 
-“Tanpa aku, semua kemungkinan akan saling menghancurkan.”
+Nul berdiri di sampingnya, tubuh dua belas warna bergetar.
 
-“Bukan tugasku membuat semuanya aman dari pilihan.”
+"Aku mungkin penyebab sebagian."
 
-Kael melepaskan denyut terakhir.
+"Bukan sendiri."
 
-Tubuh bayangan terurai. Tidak ada ledakan. Ia terpecah menjadi kemungkinan-kemungkinan kecil yang diserap kembali oleh Umbral, tanpa satu bentuk yang cukup kuat untuk memerintah yang lain.
+Arsitek mengirim pesan ke semua jaringan:
 
-Singularitas menyusut.
+**STRUKTUR TUNGGAL DAPAT MENYELAMATKAN REALITAS. SERAHKAN KOORDINASI.**
 
-Kota-kota yang melayang turun perlahan. Gunung kembali memiliki berat. Laut yang sempat naik ke langit jatuh sebagai hujan luas di perbatasan.
+Voidmaker mengirim tawaran berbeda:
 
-Para komandan mulai bersorak, tetapi suara Zireth memotong mereka.
+**HAPUS REALITAS BERLEBIH. STABILITAS KEMBALI.**
 
-“Jangan bergerak.”
+Dua solusi absolut menunggu.
 
-Pusat Titik Nol belum tertutup. Di tempat singularitas berada, ruang tampak seperti kaca yang dipukul dari sisi lain.
+Kael memandang dunia yang pecah menjadi banyak.
 
-Retakan pertama membuka pemandangan Aranyel yang masih utuh.
+"Tidak keduanya."
 
-Retakan kedua memperlihatkan Zerath di bawah pemerintahan Kembaran.
+Namun kali ini skala masalah lebih besar daripada apa pun yang pernah mereka hadapi.
 
-Yang ketiga menunjukkan dunia tanpa Fragmen. Yang keempat menampilkan langit penuh kapal dari peradaban yang tidak pernah dikenal mereka.
-
-Kael merasakan denyut dari masing-masing celah. Semuanya nyata. Keruntuhan massa telah memaksa kemungkinan paralel menyentuh satu koordinat yang sama.
-
-Sylvara berdiri di sampingnya. “Bisakah kita menutupnya?”
-
-“Bukan dengan menghancurkan pusatnya.”
-
-“Karena?”
-
-“Karena mungkin ada orang hidup di sisi lain.”
-
-Salah satu retakan melebar. Seorang lelaki dengan wajah Kael berdiri di baliknya, jauh lebih tua dan mengenakan zirah yang tidak pernah dibuat di Zerath.
-
-Dia menatap mereka seolah telah menunggu bertahun-tahun.
-
-Kemudian puluhan suara lain masuk melalui celah. Ada yang memanggil Kael sebagai penyelamat. Ada yang menyebutnya pembunuh. Ada yang memohon agar dia tidak membuka pintu.
-
-Jaringan dua belas Fragmen menahan Zerath tetap utuh, tetapi realitas di sekelilingnya telah pecah menjadi banyak dunia.
-
-Kael menggenggam tongkat Eira.
-
-Titik Nol berhasil ditutup sebagai singularitas.
-
-Sebagai gantinya, ia menjadi persimpangan.
+Untuk pertama kalinya, bahkan Kael tidak punya gagasan awal.

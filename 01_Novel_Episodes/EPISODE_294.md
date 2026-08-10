@@ -1,49 +1,39 @@
 # Episode 294 — Harga yang Dituntut Tabrakan Waktu
 
-Kael masih melihat tangan Sylvara ketika retakan menutup.
+Jalur pulang membutuhkan pertukaran massa temporal.
 
-Dia menyerang batas waktu dengan Pulse. Zevaron menahan bahunya sebelum gelombang penuh terlepas.
+Sesuatu dari masa kini harus tinggal di masa lalu dengan nilai sebab-akibat setara.
 
-“Kalau kau merobeknya, semua jalur kembali bertabrakan.”
+Bukan manusia.
 
-“Dia ada di sana.”
+Objek bisa.
 
-“Aku tahu.”
+Zerath's Fang yang patah memiliki jejak sejarah besar pada Kael tetapi tidak diperlukan struktur dunia.
 
-Badai kronal belum selesai. Prajurit masa depan, pasien masa kini, dan warga masa lalu masih terperangkap di antara hari-hari yang berimpit.
+Kael memandang dua bagian pedang.
 
-Kael harus memilih antara mengejar Sylvara atau menyelesaikan pemisahan waktu.
+Ia pernah menunda perbaikan karena belum siap melepaskan bentuk lamanya.
 
-Dia mendengar suara Sylvara melalui gema tipis.
+Sekarang pilihan muncul.
 
-“Jangan membuat semua orang membayar untuk menarikku lebih cepat.”
+Kalau satu bagian ditinggal, sejarah akan mencatat artefak misterius sebagai penyeimbang keberadaan Sylvara.
 
-Kael menutup mata.
+Kael memasukkan setengah bilah ke kanal temporal.
 
-Dia kembali bekerja.
+Sylvara melempar panah rune sebagai jangkar balik.
 
-Dengan Zevaron menjaga jangkar masa kini dan Zireth menghitung asal setiap tubuh, Kael mengirim interferensi rendah ke satu jalur setelah yang lain. Warga kembali ke harinya. Prajurit masa depan dipulangkan tanpa jaminan bahwa perang akan berubah.
+Pertukaran terjadi.
 
-Setiap pemisahan membuat suara Sylvara semakin jauh.
+Pedang hilang ke masa lalu.
 
-Di akhir proses, hanya satu simpul tersisa: dunia bahagia yang tadi dilepas. Kael dapat mengikatnya kembali untuk memperoleh energi cukup membuka jalur Sylvara.
+Sylvara jatuh ke masa kini.
 
-Dia menolak.
+Kael menangkapnya.
 
-Versi bahagia dirinya berhak hidup tanpa terus dipakai sebagai sumber daya. Kael membiarkan simpul itu pergi untuk selamanya.
+Sejarah stabil dengan perubahan kecil: legenda lama kini menyebut pedang patah yang ditemukan puluhan tahun sebelum Kael lahir.
 
-Harga keputusan tersebut tidak meninggalkan luka fisik. Ia meninggalkan pengetahuan bahwa ada kehidupan tempat dia bahagia, dan dia sendiri memilih tidak pernah melihatnya lagi.
+Harga tabrakan waktu adalah benda penuh makna.
 
-Badai akhirnya surut.
+Kael sedih.
 
-Jalur masa lalu dan masa depan kembali terpisah. Hari ketujuh belum ditentukan, tetapi pasukan dari masa itu telah pulang membawa ingatan tentang pilihan Kael.
-
-Zireth menemukan jejak Sylvara pada koordinat lama.
-
-“Aranyel,” katanya pelan. “Malam saat kota itu hancur.”
-
-Kael menggenggam tongkat Eira.
-
-Dia telah membiarkan satu versi bahagia dirinya lenyap dari jangkauan.
-
-Sekarang dia harus memasuki hari terburuknya tanpa mencoba mengubahnya.
+Tetapi tidak menyesal.

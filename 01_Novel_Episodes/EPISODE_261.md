@@ -1,49 +1,33 @@
 # Episode 261 — Jejak Vanguard Beastmen
 
-Vanguard Beastmen bergerak melalui Hutan Daging Garundrax seperti satu tubuh besar.
+Vanguard Beastmen tidak bergerak untuk merebut Fragment.
 
-Pepohonannya tidak terbuat dari kayu, melainkan serat merah yang berdenyut. Akar-akar besar bergerak di bawah tanah dan mengikuti langkah pasukan. Setiap Beastmen membawa tanda Bulan Darah pada dahi, menyala lebih terang ketika mendekati Fragmen.
+Itu kesimpulan Kael setelah melihat jejak mereka.
 
-Kael, Sylvara, Zireth, dan Zevaron mencegat mereka di jalur sempit sebelum dataran pusat.
+Pasukan cepat itu melewati dua depot senjata tanpa mengambil apa pun. Mereka justru menghancurkan relai yang bisa mengaktifkan Fragment jarak jauh.
 
-Panglima pemburu bernama Kharvok berdiri di depan ribuan pasukan. Tubuhnya besar, dipenuhi luka lama, dan zirahnya menanam serpihan Fragmen Garundrax langsung ke tulang dada.
+Pemimpin mereka, Rakh, mengirim pesan singkat:
 
-“Furyborn pembawa Neraka,” katanya. “Minggir. Bangsa kami tidak akan menunggu Elf, Dwarf, atau Celestial memutuskan nasib dunia.”
+**KAMI TIDAK PERCAYA DEWAN DUA BELAS. KAMI AKAN MEMATIKAN SUMBER SEBELUM KALIAN MENGGUNAKANNYA.**
 
-Kael tidak mengangkat senjata.
+Kael memahami ketakutannya. Beastmen punya sejarah dijadikan garis depan perang orang lain.
 
-“Fragmen itu jangkar. Kalau dicabut, hutan dan tubuh kalian ikut kehilangan hukum yang menjaga bentuk.”
+Namun mematikan semua relai sepihak dapat membuat sistem keselamatan gagal.
 
-Kharvok menggeram. “Kata-kata bangsa yang selalu menyuruh kami menunggu.”
+Mereka mengejar Vanguard bukan sebagai musuh, melainkan untuk mencegah langkah defensif berubah jadi bencana.
 
-Di belakang panglima, seorang Beastmen muda memandang Kael dengan ragu. Namanya Raska, pemimpin regu pengintai yang menemukan banyak prajuritnya berubah liar setelah ritual terakhir.
+Di lembah berikutnya, Kael menemukan tiga relai sudah hancur.
 
-Dia mendekat diam-diam saat perundingan berlangsung.
+Peta resonansi langsung kehilangan sensor pada Fragment ketujuh dan kedelapan.
 
-“Pasukan kami tidak tidur,” bisiknya. “Semua mendengar detak dari hutan. Semakin dekat Bulan Darah, semakin sulit menolak perintah Kharvok.”
+Rakh berdiri di atas reruntuhan.
 
-Kael menempelkan tongkat Eira ke tanah.
+"Sekarang tak ada raja yang bisa menekan tombol dari jauh."
 
-Denyut Hutan Daging masuk ke tubuhnya. Di bawah irama alami jantung, napas, dan naluri Beastmen terdapat satu pulsa yang terlalu teratur. Ia bergerak dari Fragmen Garundrax menuju tanda pada dahi setiap prajurit.
+Kael menunjuk langit yang mulai bergetar.
 
-Bukan sekadar semangat perang.
+"Dan kita juga tidak tahu apakah Fragment itu sedang overload."
 
-Naluri mereka dipaksa secara biologis.
+Rakh menatap peta mati.
 
-Sylvara menyiapkan panah penenang yang diracik dari getah hutan. Tanpa cahaya, dia mengandalkan racun ringan dan ketepatan biasa. Zireth memetakan jalur pulsa dengan lengan bintang.
-
-Kael mengirim pembatalan frekuensi sangat kecil kepada Raska.
-
-Tanda Bulan Darah di dahinya padam sesaat. Matanya langsung kehilangan kabut merah.
-
-“Itu bukan kemarahanmu,” kata Kael.
-
-Raska memandang pasukannya dengan ngeri.
-
-Kharvok merasakan gangguan tersebut. Dia mengangkat kapak dan meraung.
-
-Seluruh hutan menjawab. Tanda pada ribuan Beastmen menyala bersamaan, memaksa tubuh mereka maju.
-
-Kael tidak dapat membatalkan pulsa untuk semuanya sekaligus tanpa mengambil alih sistem saraf mereka.
-
-Untuk menghentikan serbuan, dia harus mencapai altar Bulan Darah di pusat hutan—melewati pasukan yang sedang dipaksa memburunya.
+Untuk pertama kali ia melihat harga tindakannya sebelum ada korban.

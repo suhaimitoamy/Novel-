@@ -1,37 +1,31 @@
 # Episode 283 — Benturan Retakan Realitas
 
-Pusat lapisan berbentuk kota tanpa langit.
+Masalah muncul ketika dua realitas sama-sama mengklaim satu kota fisik.
 
-Jalan-jalannya bertumpuk vertikal. Bangunan tumbuh dari dinding, sementara sungai mengalir dalam lingkaran. Di tengah semua itu, Zireth tergantung di dalam medan gravitasi yang terus berpindah antara tiga realitas.
+Versi Kragmar dari dunia Kael dan versi lain menempati koordinat identik. Dinding, orang, dan mesin mulai tumpang tindih.
 
-Kael dan Zevaron masuk melalui jalur sempit.
+Tidak ada cukup ruang untuk keduanya bertahan secara materi.
 
-Anomali menyerang dengan seluruh kota sebagai senjata. Sebuah menara muncul dari masa depan dan menabrak jalan masa kini. Kael menggeser fase mereka sepersekian detik sebelum benturan.
+Voidmaker menawarkan menghapus satu.
 
-“Kompasnya!” teriak Zireth.
+Arsitek menawarkan menggabungkan keduanya.
 
-Alat buatan Zireth berada di bawah tubuhnya, menahan tiga koordinat agar tidak menyatu. Bila rusak, lapisan akan menekan satu sama lain.
+Kael menolak.
 
-Zevaron membuka medan cahaya untuk menjaga jangkar masa kini. Kael bergerak melalui superposisi, muncul dan hilang di antara lapisan. Setiap perpindahan merobek luka lama pada sarafnya.
+Mereka membangun phase displacement: satu Kragmar digeser beberapa kilometer dalam ruang lokal, bukan ke dimensi lain. Zireth dan para Dwarf dari kedua versi bekerja bersama menghitung struktur gunung.
 
-Dia mencapai Zireth, tetapi anomali menciptakan tiga salinan tubuh itu.
+Risikonya besar.
 
-Satu meminta diselamatkan. Satu menyuruh Kael menghancurkan kompas. Yang terakhir tidak mengatakan apa-apa.
+Dua Kapten Garn—masing-masing sama keras kepala—berdebat siapa yang harus pindah.
 
-Kael menyentuh tangan masing-masing. Dua tidak memiliki recoil kecil dari lengan bintang. Dia memilih yang ketiga.
+Akhirnya mereka lempar koin.
 
-Begitu Zireth dibebaskan, seluruh kota bergetar. Anomali membentuk sosok dari bangunan dan waktu—wajahnya berubah mengikuti dunia yang sedang dominan.
+Kael tertawa lebih keras daripada seharusnya.
 
-Kael tidak menyerang tubuh tersebut. Dia mengirim navigasi fase ke benang pengendali dan memisahkan koordinatnya dari kota-kota yang terperangkap.
+Versi alternatif kalah dan setuju dipindah, dengan kompensasi wilayah baru.
 
-Zevaron menahan masa kini. Zireth mengunci massa. Kael mengubah fase.
+Benturan selesai tanpa menghapus atau menyatukan orang.
 
-Tiga tindakan itu bertemu pada satu titik.
+Namun metode itu tidak bisa dipakai untuk seluruh dunia.
 
-Anomali retak, tetapi gelombang balik membuka pemandangan yang tidak pernah ingin Kael lihat.
-
-Di sisi lain terdapat Zerath yang tenang. Tidak ada perang Fragmen, tidak ada Neraka terbuka, dan tidak ada kota yang hancur karena Ragnarok Pulse.
-
-Tidak ada seorang pun mengenal Kael.
-
-Dunia itu menjadi damai karena dia tidak pernah menyelamatkan siapa pun.
+Mereka butuh solusi skala global.

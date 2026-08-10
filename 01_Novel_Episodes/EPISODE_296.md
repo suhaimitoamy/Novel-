@@ -1,45 +1,31 @@
 # Episode 296 — Jejak Penyelamatan Sylvara
 
-Kael turun dari menara sementara Sylvara tetap terjebak dalam lingkar api.
+Koordinat Labirin penting karena jalur waktu masih bocor.
 
-Setiap langkah menuju rumah terasa seperti pengkhianatan terhadap masa kini. Dia tahu apa yang akan terjadi. Dia tahu jalan mana yang akan terbakar lebih dulu dan siapa yang tidak sempat keluar.
+Mereka bisa saja menganggap Sylvara sudah selamat dan pergi.
 
-Ibunya berdiri di depan pintu.
+Namun jejak temporal menunjukkan orang lain mulai terseret: petani melihat anak cucunya sebelum lahir, prajurit bertemu mayat sendiri, desa kehilangan satu hari penuh.
 
-Wajahnya tidak lagi kabur seperti pada medan cermin. Peristiwa tetap mengambil ingatan terdalam Kael dan memberinya tubuh hidup.
+Penyelamatan satu orang belum menyelesaikan sistem.
 
-“Kau terlambat,” katanya.
+Sylvara bersikeras ikut.
 
-Kael tidak mampu menjawab.
+Kael ragu karena baru pulih.
 
-Perempuan itu menyentuh pipinya. Tangannya hangat. Tidak ada tanda Umbral, tidak ada frekuensi asing. Kenangan itu hidup karena seluruh hari terus mengulang.
+Dia tidak melarang.
 
-Di belakang Kael, menara lonceng retak. Sylvara berteriak saat api menutup lingkaran lebih rapat.
+Mereka menyusun batas: kalau gejala memori tumpang tindih kembali, Sylvara yang menentukan berhenti.
 
-Ibunya menatap ke arah suara. “Temanmu menunggu.”
+Jejak menuju gua yang pintunya berubah usia setiap menit.
 
-“Aku bisa membawa kalian berdua.”
+Di dalam, grafiti dari masa depan tertulis di dinding lama:
 
-Begitu kata itu keluar, langit berubah.
+**JANGAN CARI JALAN TERPENDEK.**
 
-Rumah-rumah yang seharusnya terbakar padam. Orang-orang yang seharusnya mati mulai melihat masa depan. Retakan kausal menjalar melalui kota.
+Zireth menatap tulisan.
 
-Kael segera menarik kembali Pulse-nya.
+"Mungkin kita yang menulis nanti."
 
-Sejarah kembali ke jalur, tetapi satu perubahan telah terjadi: ibunya kini tahu bahwa dia datang dari masa depan.
+Kael menghela napas. "Aku membenci temporal grammar."
 
-“Jadi kau selamat,” katanya.
-
-Kael menunduk.
-
-“Itu cukup.”
-
-Dia ingin membantah. Tidak ada bagian dari dirinya yang menganggap cukup.
-
-Ibunya mendorongnya menjauh dari rumah. “Pergi kepada orang yang masih bisa kau bawa pulang.”
-
-Kael berlari kembali ke menara.
-
-Di dalam lingkar peristiwa, Sylvara menahan api dengan tubuh yang mulai kehilangan warna. Kael menancapkan tongkat Eira dan mulai menggambar batas isolasi kausal.
-
-Untuk membebaskannya, dia harus memisahkan satu orang dari hari tersebut tanpa membuat hari itu menyadari kehilangan.
+Mereka masuk.

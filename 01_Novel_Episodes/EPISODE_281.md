@@ -1,35 +1,33 @@
 # Episode 281 — Jejak Retakan Realitas
 
-Retakan pertama membelah langit di atas Dataran Terbelah. Retakan kedua muncul di bawah kaki mereka.
+Retakan pertama yang mereka petakan melewati lima versi kota yang sama.
 
-Dalam satu kedipan, Kael melihat tiga kota menempati tempat yang sama. Menara Celestial menembus pasar manusia. Jalan batu Dwarf berakhir di tengah hutan Beastmen. Bayangan orang-orang dari dunia berbeda saling menembus tanpa menyadari keberadaan satu sama lain.
+Kael berjalan bersama Sylvara, Zireth, dan Nul melalui jalan yang kadang memiliki dua dinding pada posisi sama. Mereka menandai setiap realitas dengan frekuensi lokal, bukan nomor urut—angka membuat orang terlalu mudah menyebut satu versi utama.
 
-Sylvara dan Zireth tidak lagi berada di sisinya.
+Jejak menunjukkan pola: retakan paling besar muncul di tempat keputusan sejarah pernah hampir berjalan berbeda.
 
-“Kompas Zireth masih mengirim massa,” kata Zevaron. Lengan bintangnya memegang alat kecil yang bergetar tak teratur. “Tetapi koordinatnya berada di tiga tempat sekaligus.”
+Aranyel.
 
-Kael menempelkan tongkat Eira pada tanah. Gema yang kembali membawa suhu, berat, dan waktu berbeda. Realitas bukan sekadar retak; lapisannya bertumpuk.
+Vorth Aereth.
 
-Mereka memasuki celah paling stabil. Setiap langkah mengubah usia bangunan di sekitar mereka. Sebuah rumah baru menjadi reruntuhan, lalu kembali utuh sebelum Kael melewatinya.
+Gerbang Es.
 
-Di kejauhan, sosok Sylvara terlihat berlari di atas jembatan cahaya. Kael memanggilnya. Sosok itu menoleh, tetapi wajahnya milik seseorang yang jauh lebih tua.
+Dataran perang.
 
-“Bukan dia,” ujar Zevaron.
+Tempat-tempat dengan kemungkinan kuat menciptakan realitas yang frekuensinya berdekatan.
 
-Kael tidak segera setuju. Frekuensi tubuh perempuan itu menyerupai Sylvara, hanya sejarahnya berbeda.
+Kael menolak mengunjungi Aranyel dulu.
 
-Anomali pertama menyerang dari sebuah kota yang belum pernah dibangun. Prajurit berzirah hitam muncul di antara dinding, menebas bayangan orang-orang yang hidup pada lapisan lain.
+Bukan lari.
 
-Kael menghindari serangan tanpa membalas penuh. Satu Pulse salah arah dapat menembus beberapa dunia sekaligus.
+Prioritas.
 
-Dia menggunakan navigasi fase, menggeser keberadaan tubuhnya mengikuti lapisan dengan tekanan paling rendah. Teknik itu membawa mereka melewati pasukan, tetapi setiap perpindahan meninggalkan rasa dingin pada tulang.
+Mereka memilih simpul paling stabil untuk membangun alat pemisah.
 
-Kompas Zireth berputar semakin cepat.
+Zireth berkata, "Kalau bisa memberi setiap realitas sedikit tanda tangan unik, mereka berhenti saling menarik."
 
-Satu sinyal berasal dari bawah kota. Sinyal lain datang dari masa depan kota yang sama. Yang ketiga muncul dari dunia tempat Kael tidak pernah tiba di Zerath.
+Nul menambahkan, "Seperti dua belas Fragment setelah ruang keputusan."
 
-Kael memandang retakan yang membentang seperti luka di udara.
+Prinsip yang sama, skala jauh lebih besar.
 
-Untuk menemukan Sylvara dan Zireth, dia harus memilih jalur.
-
-Namun setiap jalur memuat orang-orang yang menganggap dunianya satu-satunya yang nyata.
+Mereka perlu mengumpulkan data dari beberapa versi Kael—karena Dra-Kelyn muncul sebagai titik kesamaan paling kuat di banyak realitas.

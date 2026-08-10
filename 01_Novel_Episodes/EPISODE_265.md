@@ -1,65 +1,43 @@
 # Episode 265 — Dua Belas Denyut Serempak
 
-Fragmen Garundrax kembali tertanam pada akar hutan.
+Malam itu dua belas Fragment berdetak bersamaan.
 
-Denyut perang padam. Beastmen mulai mengevakuasi korban dan membongkar altar, sementara Raska mengambil alih koordinasi tanpa menyebut dirinya panglima baru.
+Satu kali.
 
-Kael duduk di dekat akar besar, membiarkan Zireth memeriksa luka. Sylvara membersihkan busur biasa yang kini menjadi satu-satunya senjata setelah cahayanya hilang. Zevaron berdiri dengan satu sayap, berusaha mengatur keseimbangan tubuh saat angin berubah.
+Seluruh Zerath berhenti selama sepersekian detik.
 
-Keheningan hanya bertahan beberapa menit.
+Bukan waktu.
 
-Ragnarok Pulse Kael berdenyut sekali.
+Gravitasi.
 
-Fragmen Garundrax menjawab.
+Semua benda terasa lebih ringan, lalu berat dua kali lipat.
 
-Lalu denyut lain datang dari utara. Gerbang Es. Berikutnya dari Urdron, Nyrathis, Aelarion, Belzoth, dan lokasi-lokasi lain di seluruh Zerath.
+Kael jatuh satu lutut.
 
-Dua belas Fragmen beresonansi serempak.
+Mata Kesembilan terbuka sendiri dan memperlihatkan dua belas jalur energi berkumpul pada titik nol di bawah dataran pusat.
 
-Zireth membuka peta dunia. Setiap jangkar memancarkan gelombang yang bertemu di pusat planet.
+Arsitek tidak memicu denyut.
 
-“Bukan aktivasi Sistem,” katanya. “Polanya lebih tua.”
+Voidmaker juga tidak.
 
-Kael mendengarkan dengan hati-hati. Tidak ada perintah, nubuat, atau kehendak tunggal. Dua belas denyut tersebut saling bertanya dan menjawab seperti orang-orang yang baru menyadari bahwa seluruh dunia sedang menarik mereka dari tempatnya.
+Ini respons alami Fragment terhadap kedekatan frekuensi perang.
 
-Fragmen-fragmen merasakan ancaman yang sama.
+Dua belas luka primordial saling mengenali.
 
-Sang Arsitek, Voidmaker, para dewa, dan kekaisaran telah mencoba memakai setiap jangkar secara terpisah. Kini hubungan di antara mereka mulai aktif sebagai mekanisme perlindungan terakhir.
+Seraphis mengirim peringatan:
 
-Namun satu nada tidak selaras.
+*Jika sinkronisasi mencapai fase penuh, Fragment mencoba kembali pada keadaan sebelum terpisah.*
 
-Fragmen kedua belas di Urdron berdetak dengan pola geometris Sang Arsitek. Benih penataan ulang belum sepenuhnya dicabut. Ia meniru suara jangkar lain dan mencoba menjadikan resonansi bersama sebagai jaringan kendali global.
+"Menyatu?"
 
-“Kalau dua belas denyut terkunci pada pola itu,” kata Kael, “seluruh hukum Zerath dapat ditulis ulang sekaligus.”
+*Atau merobek dunia yang berada di antara mereka.*
 
-Raska memandang pasukannya yang baru bebas dari satu pulsa paksa. “Lalu hentikan sebelum dunia menjadi kawanan lain.”
+Kael menatap peta.
 
-Kael mencoba mengirim Frekuensi Penyangkal melalui Garundrax. Fragmen menolak menjadikannya pusat. Setiap jangkar hanya bersedia meneruskan pola yang disetujui semua bagian jaringan.
+Semua panji memegang bagian tanggung jawab.
 
-Itu bukan kegagalan.
+Tidak ada satu musuh untuk dikalahkan.
 
-Itulah perlindungan yang dimaksud pesan pewaris: tidak ada satu kehendak, bahkan kehendak Kael, yang boleh menguasai seluruh dunia.
+Mereka harus menurunkan dua belas frekuensi bersama.
 
-Mereka membutuhkan persetujuan atau bantuan dari penjaga setiap Fragmen.
-
-Dua belas lokasi. Dua belas bangsa yang baru saja hampir berperang. Waktu yang tersisa semakin pendek ketika pola Urdron tumbuh pada setiap denyut.
-
-Zireth menghitung perkembangan infeksi.
-
-“Tujuh hari sebelum konvergensi penuh.”
-
-Kael berdiri dengan bantuan tongkat Eira.
-
-Dia tidak dapat mengunjungi semua tempat sendiri. Tidak lagi memiliki entropi untuk memutus jaringan melalui kekuatan. Tubuhnya bahkan belum pulih dari Garundrax.
-
-“Sebarkan pola Frekuensi Penyangkal kepada semua pihak yang bersedia membantu,” katanya. “Bukan sebagai perintah. Biarkan setiap Fragmen memilih penjaganya sendiri.”
-
-Sylvara membuka Gema Pengetahuan. Zevaron menghubungi sisa legiun yang masih mempercayainya. Raska memanggil kawanan yang memilih keluar dari ritual. Zireth membuka jaringan Nexus dan Logam Bintang.
-
-Untuk pertama kalinya, perjalanan menuju dua belas Fragmen tidak akan dilakukan oleh Kael seorang.
-
-Seluruh dunia harus bergerak.
-
-Pada peta, denyut-detak itu kembali berbunyi serempak.
-
-Di antara dua belas suara, pola Sang Arsitek tersenyum tanpa wajah.
+Dan semua pihak harus percaya pihak lain melakukan hal sama.

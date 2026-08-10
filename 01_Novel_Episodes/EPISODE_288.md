@@ -1,43 +1,45 @@
 # Episode 288 — Benturan Kael-Kael Paralel
 
-Lima takhta menyalakan lima medan berbeda.
+Arsitek menyerang lima Kael sekaligus.
 
-Takhta Ashen memanggil abu perang. Takhta sang raja membentuk rantai cahaya. Takhta Tahanan mengaktifkan segel. Takhta Rian menyerap semua energi. Takhta Kael asli memantulkan luka yang pernah dia hindari.
+Bukan dengan benang.
 
-Penyusup Umbral berdiri di tengahnya.
+Ia mengirim simulasi yang menunjukkan setiap versi bahwa jalur dirinya menghasilkan korban paling sedikit dibanding empat lainnya.
 
-“Duduklah,” katanya. “Satu dari kalian harus menjadi pusat.”
+Kael putih hampir percaya.
 
-Sang raja melangkah lebih dulu.
+Mahkota Fragment pada versi ketiga mulai menyala.
 
-Kael menghalanginya. “Kau tahu itu jebakan.”
+Mereka berdebat.
 
-“Aku tahu dunia tidak bertahan tanpa keputusan.”
+Benturan identitas lebih berbahaya daripada serangan fisik karena semua punya data untuk mendukung diri.
 
-Mereka bertarung. Sang raja memakai Pulse tanpa ragu, tetapi recoil-nya nyata. Kael menahan serangan dengan tongkat Eira, sementara Ashen mencoba menghancurkan takhta dari samping.
+Kael asli teringat Nyara: jangan jadikan kemungkinan takdir.
 
-Rian terseret oleh medan penyerap. Tahanan memotong rantainya sendiri untuk menariknya keluar.
+"Matikan semua simulasi."
 
-Penyusup memperbesar konflik. Setiap Kael melihat korban yang disebabkan versi lain. Kael asli menyaksikan kota-kota yang bisa diselamatkan bila dia lebih kejam. Ashen melihat keluarganya hidup di bawah pemerintahan sang raja.
+Versi lain ragu.
 
-Sylvara masuk ke alun-alun dan berteriak, “Kalian semua salah dalam sesuatu. Itu tidak membuat salah satu dari kalian palsu.”
+"Kita tidak perlu tahu siapa paling benar untuk bekerja sama sekarang."
 
-Kalimat itu mematahkan pola Umbral.
+Kael tua mematikan miliknya lebih dulu.
 
-Kael mengunci identitas melalui recoil unik. Bukan untuk menentukan siapa paling benar, melainkan membuktikan bahwa setiap tubuh memikul akibat sendiri.
+Yang lain mengikuti.
 
-Lima takhta kehilangan alasan memilih satu penguasa.
+Arsitek kehilangan leverage.
 
-Penyusup mencoba mengambil tubuh sang raja. Kael, Ashen, Rian, dan Tahanan menahannya bersama. Sang raja dapat membiarkan mereka hancur dan mengambil pusat, tetapi dia justru memutus rantai takhtanya.
+Kemudian perbedaan mereka justru menjadi pertahanan: tidak ada satu narasi yang bisa membuat semua bereaksi sama.
 
-Bayangan terlempar keluar.
+Mereka menyelesaikan uji anchor.
 
-Sylvara menembak simpulnya. Kael menurunkan amplitudo Pulse dan memisahkan Umbral dari kemungkinan hidup yang dipakainya.
+Arsitek mundur.
 
-Alun-alun retak.
+Kael putih menatap dirinya sendiri.
 
-Mereka menang, tetapi kota menuntut satu pengakuan dari Kael asli: ada kesalahan yang tidak bisa diperbaiki dengan menemukan dunia lain.
+"Aku akan pulang dan memeriksa Command-ku."
 
-Dia melihat wajah setiap versi dirinya.
+"Semoga kau tidak membenci apa yang ditemukan."
 
-Tidak satu pun dapat menghapus korban dari dunianya.
+"Mungkin perlu."
+
+Lima Kael mulai berpisah.

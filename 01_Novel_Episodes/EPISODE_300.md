@@ -1,51 +1,39 @@
 # Episode 300 — Rumah yang Ditinggalkan Lagi
 
-Aranyel terbakar untuk kedua kalinya di dalam ingatan Kael.
+Mereka kembali ke dunia utama melalui Aranyel alternatif yang kosong.
 
-Namun ketika dia dan Sylvara kembali ke masa kini, kota itu tidak lagi terasa seperti luka yang terus memerintah setiap pilihan. Ia tetap kehilangan. Ia tetap sakit. Hanya saja Kael berhenti memperlakukannya sebagai pintu yang suatu hari harus dibuka kembali.
+Desa itu tidak terbakar.
 
-Zireth dan Zevaron menunggu di tepi retakan.
+Tidak ada penghuni karena realitasnya sudah dipindah melalui anchor.
 
-“Kalian mengubah sesuatu?” tanya Zireth.
+Rumah Kael masih berdiri.
 
-Sylvara menatap Kael.
+Dia masuk sendirian.
 
-“Tidak pada sejarah,” jawabnya.
+Meja. Tempat tidur. Cangkir milik ibunya.
 
-Kompas massa menunjukkan jalur waktu telah stabil. Hari kehancuran kembali menjadi satu masa tertutup. Kenangan hidup ibunya dan api masa lalu tidak lagi dapat menarik dunia lain ke dalamnya.
+Semuanya seperti kehidupan yang bisa saja terjadi.
 
-Kebenaran yang mereka bawa sederhana: retakan tidak hanya menghubungkan tempat. Ia memancing orang memilih masa lalu dengan harga masa kini.
+Dulu Kael mungkin akan tinggal berjam-jam mencari pengganti masa lalu.
 
-Kael menancapkan tongkat Eira ke tanah. Benda itu kini memiliki dua retakan panjang, tetapi masih berdiri.
+Sekarang dia menyentuh meja sekali.
 
-“Aku tidak akan kembali ke sana,” katanya.
+"Bukan rumahku."
 
-Tidak ada sumpah besar. Tidak ada cahaya yang menjawab. Hanya keputusan yang harus dia pilih lagi setiap kali rindu berubah menjadi godaan.
+Bukan penolakan pada kenangan.
 
-Sylvara memeriksa busurnya. “Bagus. Aku tidak suka kota yang mencoba membunuhku memakai kenangan ibumu.”
+Pengakuan bahwa rumah tanpa orang dan sejarah yang dia jalani bukan sesuatu yang bisa menggantikan kehilangan.
 
-Kael hampir tersenyum.
+Kael keluar.
 
-Lalu lengan bintang Zireth menyala dengan sinyal darurat.
+Sylvara dan Zireth menunggu tanpa bertanya.
 
-Suara Zireth sendiri terdengar dari saluran, tetapi berasal dari tempat lain.
+Mereka menutup anchor realitas agar desa kosong tidak tertarik kembali ke dunia utama.
 
-“Jangan ikuti peta biasa. Labirin mengubah pintu setiap kali seseorang mengingat tujuan.”
+Saat retakan menghilang, Kael melihat rumah terakhir kali.
 
-Zireth yang berdiri di depan mereka membeku.
+Dia meninggalkannya lagi.
 
-“Aku belum pernah mengirim pesan itu.”
+Kali ini bukan karena dikejar Wardens.
 
-Sinyal kedua masuk. Kali ini suaranya lebih tua.
-
-“Kael, cepat. Ada sesuatu di dalam Labirin Dimensi yang memakai semua jalan yang kita tutup.”
-
-Koordinat muncul di kompas massa, lalu berpindah sebelum dapat dicatat.
-
-Di kejauhan, sebuah pintu berdiri sendirian di tengah udara. Di baliknya terlihat lorong yang membelok ke arah mustahil.
-
-Kael memandang sekali ke tempat retakan Aranyel telah tertutup.
-
-Dia tidak menoleh lagi.
-
-Bersama Sylvara, Zireth, dan Zevaron, dia melangkah menuju pintu berikutnya.
+Karena memilih pulang ke dunia yang benar-benar dia jalani, meski jauh lebih rusak.

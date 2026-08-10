@@ -1,49 +1,45 @@
 # Episode 297 — Suara dari Penyelamatan Sylvara
 
-Lingkar isolasi menutup di sekitar menara.
+Labirin berbicara dengan suara versi mereka yang belum terjadi.
 
-Kael menurunkan amplitudo Pulse sampai denyutnya hampir tidak terasa. Kekuatan besar akan membuat sejarah bereaksi. Dia harus bekerja seperti seseorang mencabut satu benang dari kain tanpa mengubah pola keseluruhan.
+"Kiri."
 
-Sylvara berdiri di tengah api yang terus mengulang.
+"Jangan kiri."
 
-“Apa yang kau lihat di rumah?” tanyanya.
+"Kael, kau akan kehilangan tangan."
 
-“Ibuku.”
+"Zireth, jangan percaya pintu biru."
 
-“Apakah dia nyata?”
+Tidak semua pesan berasal masa depan mereka. Sebagian dari realitas lain.
 
-“Cukup nyata untuk terluka.”
+Mata Kesembilan menjadi jebakan karena setiap kemungkinan terasa punya bukti.
 
-Api menampilkan hasil yang diinginkan Kael. Aranyel selamat. Ibunya keluar dari kota. Sylvara tidak pernah terjebak. Namun setiap pemandangan diikuti masa kini yang berubah: Zireth tidak pernah bergabung, Eira mati lebih awal, dan dua belas Fragmen jatuh ke tangan Sistem.
+Kael menutupnya.
 
-Retakan memancing Kael untuk menyelamatkan masa lalu dengan harga masa kini.
+Mereka memilih aturan sederhana: hanya percaya informasi yang bisa diverifikasi di saat ini.
 
-“Itu bukan pilihan,” kata Sylvara.
+Zireth membaca material.
 
-“Rasanya tetap seperti pilihan.”
+Sylvara membaca arus udara.
 
-“Karena kau masih orang yang ingin menyelamatkan mereka.”
+Kael membaca resonansi lokal tanpa masa depan.
 
-Kael menemukan simpul yang mengikat Sylvara pada hari kehancuran. Simpul itu terbentuk dari satu hal: rasa bersalahnya sendiri. Selama dia percaya dapat memperbaiki Aranyel, peristiwa memiliki alasan menahannya di sana.
+Mereka bergerak lebih lambat tetapi tidak dipimpin suara yang belum tentu menjadi milik mereka.
 
-Kael menyentuh api.
+Di satu persimpangan, suara Kael masa depan berkata, "Kalau kau tidak ambil pintu kanan, Sylvara mati."
 
-“Aku tidak datang untuk mengubah hari ini.”
+Kael tidak bergerak.
 
-Kota bergetar.
+Sylvara sendiri memeriksa dan berkata, "Kanan tidak punya udara."
 
-“Aku datang untuk membawa seseorang yang bukan bagian dari hari ini.”
+Mereka ambil kiri.
 
-Simpul melemah.
+Tidak ada yang mati.
 
-Sylvara melangkah menuju batas, tetapi suara ibu Kael kembali memanggil dari jalan. Api membuka jalur lurus menuju rumah.
+Suara masa depan berubah menjadi statik.
 
-Kael tidak menoleh.
+Mungkin bohong.
 
-Bukan karena dia tidak mencintainya.
+Mungkin jalur masa depan yang baru saja mereka batalkan.
 
-Karena cinta itu tidak memberi hak untuk menukar seluruh masa kini dengan satu keselamatan pribadi.
-
-Sylvara mencapai batas isolasi.
-
-Saat tangannya menyentuh tangan Kael, hari kehancuran menyerang mereka dengan seluruh kenangan hidupnya.
+Tidak penting.

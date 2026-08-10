@@ -1,43 +1,29 @@
 # Episode 295 — Hari Lama Menelan Sylvara
 
-Jalur menuju Aranyel terbuka sebagai lingkaran api di udara.
+Sylvara kembali secara fisik.
 
-Melalui celah, Kael melihat kota pada malam kehancurannya. Rumah-rumah masih berdiri. Penduduk belum tahu bahwa dalam beberapa jam semuanya akan menjadi abu.
+Sebagian pikirannya belum.
 
-Sylvara terlihat di atas menara lonceng, dikepung api yang bergerak melawan angin.
+Dia bangun dan memanggil Kael dengan gelar yang belum pernah digunakan di masa kini. Baginya delapan puluh tahun lalu baru terjadi beberapa menit sebelumnya.
 
-“Dia berada di dalam peristiwa tetap,” kata Zireth. “Kalau kita mengubah penyebab utama, sejarah Zerath dapat bergeser.”
+Kenangan masa lama menempel kuat.
 
-Kael masuk sebelum rasa takutnya menemukan alasan untuk menunda.
+Lebih buruk, dia membawa memori orang-orang yang bertemu dengannya—gema temporal yang tidak sepenuhnya miliknya.
 
-Udara Aranyel membawa bau roti, kayu basah, dan kehidupan yang telah hilang. Orang-orang menyapanya tanpa mengenali siapa dirinya. Beberapa wajah adalah korban yang masih dia ingat.
+Kael tidak mencoba 'membersihkan' dengan paksa.
 
-Dia tidak boleh memperingatkan mereka.
+Mereka menghabiskan hari membedakan memori: mana pengalaman Sylvara, mana residu sejarah.
 
-Setiap kata dapat mengubah asal perjalanan mereka, perang Fragmen, dan keberadaan orang-orang yang hidup pada masa kini.
+Zireth membuat tag sensor. Kael menggunakan Mata Kesembilan untuk melihat hubungan, bukan isi.
 
-Kael mencapai menara. Sylvara menembak api masa lalu, tetapi anak panahnya selalu kembali ke busur seolah detik itu mengulang.
+Sylvara sendiri memilih apa yang disimpan.
 
-“Berapa lama kau terjebak?”
+Salah satu memori residu memperlihatkan Ilyr muda sebelum menjadi Keeper, masih seorang teknisi yang percaya jaringan harus dibagi.
 
-“Cukup lama untuk menghafal semua jeritan.”
+Sylvara memilih menyimpan itu.
 
-Kael menyentuh lingkar peristiwa. Api itu bukan hanya kenangan. Ia memakai kematian Aranyel sebagai pagar kausal. Untuk membawa Sylvara keluar, dia harus memisahkannya tanpa mengubah siapa yang hidup dan mati pada malam tersebut.
+"Bukan untuk memaafkannya. Untuk ingat orang bisa berubah dua arah."
 
-Dari jalan di bawah, suara ibunya memanggil.
+Hari lama perlahan melepaskan dirinya.
 
-Kael membeku.
-
-Peristiwa tahu titik terlemah dalam dirinya.
-
-Sylvara menurunkan busur. “Kau boleh melihatnya.”
-
-“Kalau aku turun—”
-
-“Aku tidak bilang menyelamatkannya.”
-
-Kael memandang rumahnya di kejauhan. Cahaya masih menyala di jendela.
-
-Dia datang untuk membawa Sylvara pulang.
-
-Namun hari lama telah membuka semua pintu yang pernah dia tutup.
+Namun satu gema bertahan: koordinat Labirin Dimensi, tempat Mesin Waktu menyimpan jalur yang tidak bisa disinkronkan.

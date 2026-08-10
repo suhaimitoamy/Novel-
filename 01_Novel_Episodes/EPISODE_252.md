@@ -1,51 +1,35 @@
 # Episode 252 — Suara dari Dataran Terbelah
 
-Kael mendekati celah tanpa dasar dan mengirim Pulse ke dalamnya.
+Suara Celestial muncul dari retakan melalui bulu Seraphis.
 
-Resonansi kembali dalam bentuk ribuan denyut jantung. Para prajurit masih sadar, terjebak pada lapisan gravitasi yang membuat satu detik terasa panjang dan tidak pernah membawa mereka ke dasar.
+*Relai keseimbangan medan terputus. Akses darurat tersedia.*
 
-“Kita dapat menarik mereka melalui medan lokal,” kata Zireth. “Tapi setiap orang berasal dari vektor gravitasi berbeda. Satu tarikan massal akan merobek tubuh mereka.”
+Kael turun bersama Sylvara dan Zireth menggunakan kabel Dwarf.
 
-Sylvara memperluas jaringan pengungsi. Pasukan medis dari empat kekaisaran dipanggil, tetapi tidak semua bersedia menolong pihak lawan.
+Di dasar retakan mereka menemukan stasiun kuno yang menghubungkan beberapa Fragment melalui sensor, bukan kontrol. Sistem itu dulu memperingatkan jika resonansi antar-Fragment mendekati ambang berbahaya.
 
-Kael membuka saluran umum.
+Seseorang mematikannya sebelum perang.
 
-“Di bawah sana tidak ada panji. Hanya orang-orang yang terus jatuh.”
+Log terakhir menunjukkan kredensial Celestial.
 
-Sebagian komandan tetap menolak. Mereka menganggap penyelamatan musuh akan mengurangi keuntungan strategis.
+Sylvara menegang. "Jadi ada pihak Celestial yang membantu perang terjadi."
 
-Zireth menunjukkan pembacaan jangkar fisika kepada semua pihak. “Kalau celah tumbuh, medan gravitasi menelan keempat pasukan. Menolong mereka bukan belas kasih saja. Ini cara menghentikan keruntuhan wilayah.”
+Kael membaca tanda tangan akses.
 
-Alasan praktis akhirnya membuka kerja sama.
+Bukan Arsitek langsung.
 
-Kael menyeimbangkan satu medan kecil. Sylvara menembakkan tali ke dalam celah, sementara regu medis dari berbagai bangsa menarik prajurit pertama keluar.
+Individu hidup.
 
-Orang itu mengenakan zirah musuh bagi separuh penolongnya.
+Sebuah nama muncul: **Ilyr Vael, Keeper of the High Choir.**
 
-Tak seorang pun menyerang.
+Kael tidak mengenalnya.
 
-Penyelamatan berlanjut.
+Seraphis mengirim gema lemah.
 
-Namun setiap artileri yang ditembakkan di medan lain mengubah vektor dalam celah. Beberapa prajurit hampir terkoyak ketika arah jatuh berbalik.
+*Keeper seharusnya menjaga jarak Fragment. Jika ia memutus relai, pengkhianatan terjadi dari dalam.*
 
-Kael membaca residu pada meriam. Senjata-senjata tersebut menggunakan resonansi Fragmen untuk mengubah massa peluru agar menembus benteng. Setiap tembakan meninggalkan lubang kecil pada hukum gravitasi.
+Di atas, dua belas panji menunggu jawaban.
 
-“Senjata kekaisaran merusak jangkar fisika di bawah medan,” katanya.
+Kael membawa log utuh, bukan kesimpulan.
 
-Bukti disiarkan melalui Gema Pengetahuan.
-
-Beberapa baterai artileri berhenti. Yang lain terus menembak karena perintah pusat.
-
-Sistem Pahlawan kembali menyusup ke koordinat dan membuat satu peluru menuju celah.
-
-Kael membangun medan penyeimbang. Proyektil berhenti di udara, tetapi massa yang terus berubah membuat tulangnya bergetar.
-
-Zireth menahan sisi lain dengan lengan bintang. Sylvara mengarahkan pengungsi menjauh.
-
-Mereka berhasil membelokkan peluru ke tanah kosong.
-
-Ledakannya menciptakan celah baru.
-
-Dataran sedang kehilangan hukum fisika lebih cepat daripada kemampuan mereka memperbaikinya.
-
-Untuk menyelamatkan ribuan orang, semua artileri Fragmen harus dimatikan—termasuk milik pasukan yang menganggap tindakan tersebut sebagai penyerahan.
+Dia sudah belajar betapa cepat satu kata seperti 'pengkhianat' dapat menjadi alasan perang baru.

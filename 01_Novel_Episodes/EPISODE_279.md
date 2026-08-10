@@ -1,73 +1,41 @@
 # Episode 279 — Harga yang Dituntut Titik Nol
 
-Pesan itu muncul pada seluruh kanal dalam bahasa masing-masing kerajaan.
+Menutup retakan penuh berarti salah satu dunia harus menjauh dari frekuensi yang lain.
 
-**Lepaskan kepemilikan tunggal.**
+Dunia Kael atau dunia alternatif.
 
-Tak ada penguasa yang menjawab.
+Tidak ada cara menentukan mana lebih 'asli'.
 
-Dua belas Fragmen telah selaras, tetapi setiap jangkar masih dikunci oleh segel kerajaan. Mereka bekerja bersama hanya sejauh kepentingan pemiliknya mengizinkan. Singularitas memanfaatkan batas itu dan mulai menarik jaringan dari sela-selanya.
+Versi lain berkata, "Pilih duniamu. Aku akan mengerti."
 
-Kael menahan aliran dengan tubuhnya. Tekanan membuat darah merembes dari gusi. Tanpa Zerath's Fang, setiap perubahan fase harus melewati saraf yang telah rusak.
+Kael menolak kerangka itu.
 
-“Berapa lama kau bisa bertahan?” tanya Zevaron.
+Mereka mencari apakah frekuensi bisa dibedakan dengan perubahan kecil terdistribusi pada kedua sisi.
 
-“Tidak cukup lama untuk menunggu mereka merasa mulia.”
+Bukan satu dunia menanggung seluruh jarak.
 
-Kael membuka kanal menuju dua belas takhta. Wajah para penguasa muncul sebagai proyeksi yang berkedip.
+Setiap realitas menggeser sedikit parameter leyline, cukup untuk menghentikan resonansi identik.
 
-“Segel kalian harus dihapus.”
+Harga tersebar: beberapa sihir bekerja sedikit berbeda, beberapa portal harus dikalibrasi ulang, musim bisa bergeser hari.
 
-Seorang raja manusia menolak lebih dulu. “Itu sama dengan menyerahkan inti pertahanan kepada semua bangsa.”
+Lebih rumit daripada mengorbankan satu realitas.
 
-“Benar.”
+Tetapi kedua dunia tetap ada.
 
-Jawaban langsung itu membuat ruangan virtual sunyi.
+Titik nol menerima perubahan.
 
-Pendeta Celestial menyipitkan mata. “Setelah krisis selesai, siapa yang menjamin Fragmen kami tidak digunakan melawan kami?”
+Versi lain menatap Kael.
 
-“Tidak ada.”
+"Aku lupa mencari jawaban yang tidak membutuhkan satu korban besar."
 
-Sylvara menatap Kael, tetapi tidak memotong.
+"Aku juga sering lupa."
 
-Kael melanjutkan, “Kalian meminta jaminan dari dunia yang sedang pecah karena semua pihak menuntut kendali sendiri. Tidak ada cara mempertahankan Zerath tanpa menerima bahwa bangsa lain juga memegang nasib kalian.”
+Retakan mengecil.
 
-Singularitas menarik lebih keras. Salah satu kota yang melayang mulai terbelah. Teriakan warga masuk melalui kanal publik.
+Sebelum tertutup, versi lain tersenyum.
 
-Penguasa Beastmen melepas segelnya lebih dulu.
+"Semoga kita tidak bertemu lagi dengan kondisi lebih buruk."
 
-Satu garis pada peta berubah dari merah menjadi putih.
+Titik nol tertutup.
 
-Dwarf menyusul setelah melihat fondasi gunungnya retak. Lalu dua kerajaan manusia membuka kunci hampir bersamaan.
-
-Celestial bertahan paling lama.
-
-Zevaron berdiri di depan proyeksi dewannya dengan sayap rusak. “Kalian memotong sayapku karena aku menolak menjadi wadah. Jangan paksa rakyat membayar ketakutan yang sama.”
-
-Dewan tetap diam.
-
-Zevaron mengangkat tangannya dan menyerahkan kode darahnya sendiri. Sebagai pewaris sah, dia mampu mencabut kunci tanpa persetujuan penuh.
-
-Segel Celestial padam.
-
-Tindakan itu menjadikannya pengkhianat permanen bagi takhtanya.
-
-Satu demi satu, segel terakhir dilepas. Peta dua belas Fragmen berubah menjadi jaringan terbuka. Tidak ada satu kerajaan pun yang lagi mampu memerintah jangkar sendirian.
-
-Kembaran Bayangan muncul di pusat pusaran dan mencoba merebut jaringan yang kini tak bertuan.
-
-Ia gagal.
-
-Jaringan itu bukan tanpa pemilik. Ia dimiliki bersama, sehingga tidak menyediakan satu takhta yang dapat direbut.
-
-Kael menurunkan amplitudo Pulse. Para komandan mengambil alih beban sedikit demi sedikit. Untuk pertama kalinya sejak singularitas terbentuk, dia tidak menjadi pusat penahan.
-
-Gravitasi mulai kembali ke arah alami.
-
-Namun harga keputusan tersebut langsung terlihat. Peta rahasia, benteng, dan kelemahan setiap wilayah kini terbuka bagi bangsa lain. Kepercayaan belum lahir; hanya ketergantungan yang tak dapat dibatalkan.
-
-Kael memandang dua belas garis putih.
-
-Mereka berhasil mempertahankan dunia.
-
-Sekarang mereka harus belajar hidup tanpa hak eksklusif untuk mengancamnya.
+Lima detik kemudian retakan lain terbuka di langit.

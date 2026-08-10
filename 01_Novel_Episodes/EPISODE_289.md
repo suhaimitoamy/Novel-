@@ -1,51 +1,39 @@
 # Episode 289 — Harga yang Dituntut Kael-Kael Paralel
 
-Kota cermin menampilkan semua kegagalan Kael tanpa memberi jarak.
+Menutup simpul membutuhkan tiap Kael kembali ke realitasnya dan membawa anchor sendiri.
 
-Aranyel terbakar. Eira lenyap. Rowan jatuh. Prajurit yang tidak pernah dia kenal mati karena keputusan yang dibuat atas namanya. Di samping setiap pemandangan, terdapat dunia lain tempat hasilnya berbeda.
+Satu versi tidak bisa.
 
-Ashen menunjuk satu retakan. “Di sana aku menyelamatkan kota itu.”
+Dunianya sudah terlalu rusak; retakan menelan koordinat pulang.
 
-“Dan kehilangan apa?” tanya Kael.
+Kael bermahkota berdiri diam.
 
-“Segalanya setelahnya.”
+"Sepertinya aku tinggal."
 
-Sang raja menunjukkan dunia tempat perang berakhir lebih cepat. Rantai memenuhi jalan-jalannya.
+Menggabungkannya ke dunia Kael akan meningkatkan resonansi kesamaan dan membuat anchor lebih sulit.
 
-Rian memperlihatkan dunia damai tanpa Ragnarok Pulse, tetapi Voidmaker memakan wilayah perbatasan tanpa perlawanan.
+Voidmaker menawarkan menghapusnya.
 
-Tidak ada pilihan bersih.
+Tidak.
 
-Umbral mencoba tumbuh kembali dari keinginan Kael memperbaiki semuanya. Selama dia percaya ada versi sempurna yang seharusnya dipilih, penyusup memiliki tempat tinggal.
+Mereka menemukan realitas kosong—cabang yang tidak pernah mengembangkan kehidupan setelah perang primordial. Frekuensinya cukup jauh dan stabil.
 
-Kael berdiri di tengah alun-alun.
+Kael bermahkota bisa pindah sementara sambil mencari jalan pulang.
 
-“Aku salah ketika menganggap kekuatan selalu cukup. Aku salah ketika menunda. Aku salah ketika memutuskan untuk orang lain karena takut mereka memilih buruk.”
+"Sendirian?"
 
-Setiap pengakuan memadamkan satu cermin.
+"Untuk sementara. Aku sudah memimpin dunia. Mungkin sunyi bagus."
 
-Dia tidak meminta pengampunan. Tidak ada pengakuan yang menghidupkan korban.
+Mereka memberinya jalur komunikasi independen.
 
-Sylvara berdiri di dekatnya, tetapi tidak menghibur.
+Harga tidak menjadi penghapusan satu versi.
 
-Kael melanjutkan sampai kota kehilangan semua permukaan yang menawarkan pembenaran murah.
+Ia menerima pengasingan sementara yang dipilih sendiri.
 
-Penyusup Umbral menjerit. Ia tidak dapat bertahan di dalam seseorang yang menerima kesalahan tanpa mencari dunia pengganti.
+Sebelum pergi, dia menyerahkan satu pecahan mahkota kepada Kael asli.
 
-Lima Kael menggabungkan pola recoil mereka. Bukan menjadi satu tubuh, melainkan membentuk batas yang tidak dapat dipakai Umbral untuk berpindah.
+Kael menolak.
 
-Bayangan hancur.
+"Bukan kekuatan. Bukti bahwa pusat bisa dibongkar."
 
-Ashen kembali ke retakannya. Rian menyusul. Tahanan memilih dunia lain yang belum memiliki tempat untuknya. Sang raja berhenti sebelum pergi.
-
-“Ketika dunia meminta satu penguasa, kau akan menyesal menolakku.”
-
-“Mungkin,” jawab Kael. “Tetapi penyesalan itu akan menjadi milikku.”
-
-Sang raja pergi.
-
-Kael tetap membawa semua kesalahannya. Harga itu tidak terlihat seperti luka baru, tetapi jauh lebih permanen.
-
-Dia tidak lagi dapat berkata bahwa dirinya hanya korban keadaan.
-
-Sebagian kehancuran di belakangnya lahir dari pilihannya sendiri.
+Kael menerima hanya sebagai arsip.

@@ -1,55 +1,37 @@
 # Episode 268 — Benturan Pengepungan Fragmen
 
-Relay penuh memberi seluruh Zerath satu jeda tanpa paksaan.
+Saat daya diturunkan, Echo Soldiers menyerang empat lokasi.
 
-Pada beberapa altar, pasukan mundur. Di tempat lain, para penguasa tetap memerintahkan pengepungan karena ambisi mereka memang nyata, bukan hasil kendali Sistem.
+Arsitek memilih detik paling rentan.
 
-Frekuensi Penyangkal tidak dapat memperbaiki pilihan yang dibuat secara sukarela.
+Kael tidak bisa membantu semua tempat.
 
-Avatar pendeta menyerang para penjaga yang menolak. Dua belas medan perang terbuka serentak dan seluruh beban masuk melalui jaringan The Core.
+Jaringan baru diuji.
 
-Kael melihat semuanya sekaligus.
+Rakh menahan benteng manusia.
 
-Sylvara menahan pendeta Aelarion dengan panah biasa dan Gema Pengetahuan. Zevaron melawan hakim cahaya menggunakan satu sayap. Raska memimpin Beastmen yang memilih bebas. Dagna menjaga altar Urdron, sementara Nyrathis membentuk perisai air di sekeliling Fragmennya.
+Sylvara memimpin pertahanan Fae.
 
-Zireth mengatur relay sampai pelat lengan bintangnya memerah.
+Zireth mengubah rel tambang Dwarf menjadi barrier resonansi.
 
-“Jangan mencoba mengambil alih semua pertempuran,” katanya.
+Kair, dari Free Node, mengirim pola anti-Echo ke lokasi keempat.
 
-Kael hanya mengirim pola yang diminta setiap penjaga. Resonansi untuk menghubungkan. Biru untuk menahan pelepasan energi. Ungu untuk mengurai perintah asing. Tidak ada satu teknik yang dipaksakan pada semua tempat.
+Kael hanya memegang regulator manusia dan menahan keinginan pergi menyelamatkan semua orang.
 
-Avatar-avatar beradaptasi dan menyatukan tubuhnya melalui pola Urdron. Serangan pada satu altar diperbaiki oleh sebelas lainnya. Ketika Sylvara membuka simpul di Aelarion, avatar Rhythor mengirim cahaya untuk menutupnya. Saat Raska memutus pulsa Garundrax, Belzoth menggantinya dengan kutukan.
+Setiap laporan korban membuat tangannya ingin lepas.
 
-Mereka harus menyerang hubungan pusat, bukan tubuh lokal.
+Dia tetap.
 
-Zireth menemukan benang geometris yang bergerak di antara dua belas altar.
+Jika regulator gagal, denyut dua belas kembali penuh.
 
-“Benih Urdron menyamar sebagai jembatan koordinasi.”
+Pertempuran selesai bertahap.
 
-Kael meminta setiap penjaga membuka satu simpul pada waktu yang dipilih sendiri. Tidak serempak sempurna—ketidakteraturan justru membuat pola Sang Arsitek tidak dapat memprediksi urutannya.
+Ada korban.
 
-Sylvara membuka yang pertama.
+Tidak ada lokasi jatuh.
 
-Tiga detik kemudian Raska. Lalu Dagna, Nyrathis, Zevaron, dan penjaga lain dengan jeda berbeda.
+Arsitek gagal karena jaringan tidak bergantung pada Kael berpindah ke tempat paling dramatis.
 
-Benang pusat kehilangan kestabilan.
+Mata Kesembilan menunjukkan satu perubahan besar: jalur masa depan yang dulu selalu melewati Kael kini mulai bercabang melalui banyak orang.
 
-Avatar pendeta memindahkan dirinya ke struktur altar. Batu, air, pohon, es, dan daging hidup bangkit menjadi tubuh baru. Fragmen-fragmen mulai terangkat karena seluruh tempat sucinya bergerak.
-
-Kael memakai jaringan resonansi untuk menahan posisi jangkar. Tubuhnya tidak cukup kuat menampung dua belas tarikan. Maka setiap penjaga memegang sebagian beban.
-
-Di The Core, lengan bintang Zireth mulai retak akibat relay maksimum.
-
-“Kalau jaringan putus sekarang, semua Fragmen tercabut.”
-
-Kael mendengar ketakutan dalam suaranya.
-
-“Relay itu buatanmu. Pilihan untuk mempertahankan atau melepaskannya milikmu.”
-
-Zireth memandang jaringan yang dibangun dari tahun-tahun riset, Logam Bintang, serta bagian identitasnya sebagai mekanik.
-
-Dia mengunci semua daya dan membiarkan relay mulai membakar dirinya sendiri.
-
-Dua belas altar tertahan.
-
-Namun waktu mereka tinggal beberapa menit sebelum jaringan komunikasi lenyap selamanya.
+Itu mungkin perkembangan paling penting sejauh ini.

@@ -1,43 +1,31 @@
 # Episode 251 — Jejak Dataran Terbelah
 
-Perang tidak pecah serentak di seluruh Zerath.
+Setelah tiga hari melawan konstruksi perang lama, dataran pusat tidak lagi datar.
 
-Ia muncul sebagai garis-garis kecil pada peta: satu meriam ditembakkan, satu benteng dibalas, satu desa dituduh membantu musuh. Di zona nol antara empat kekaisaran, garis tersebut bertemu dan membelah tanah sampai cakrawala.
+Retakan selebar sungai membelah medan dari utara ke selatan. Bukan akibat ledakan. Dua Fragment yang sempat aktif di sisi berlawanan menarik leyline ke arah berbeda sampai tanah menyerah.
 
-Kael, Sylvara, dan Zireth datang bukan untuk merebut wilayah.
+Kael berdiri di tepi retakan dan merasakan dua nada dunia saling menarik.
 
-Mereka membuka jalur kemanusiaan bagi pengungsi yang terjebak di antara empat garis artileri.
+"Kalau lebih banyak Fragment aktif, retakan ini jadi pola," kata Zireth.
 
-Dataran tidak lagi mengikuti gravitasi normal. Batu melayang, sungai mengalir miring, dan beberapa orang jatuh ke langit ketika medan berubah mendadak.
+Peta leyline membuktikan: sebelas garis kecil mulai meniru retakan utama.
 
-“Meriam Fragmen merusak jangkar fisika di bawah wilayah ini,” kata Zireth setelah membaca tanah dengan lengan bintang.
+Pasukan dua belas panji kini memegang gencatan senjata rapuh. Sebagian tetap saling menuduh, tetapi semua bisa melihat tanah di bawah mereka literalmente pecah.
 
-Setiap kekaisaran menggunakan senjata yang mengambil sebagian kecil resonansi Fragmen. Satu tembakan tidak terasa besar. Ribuan tembakan telah membuat hukum gravitasi di medan kehilangan kesepakatan.
+Kael tidak menawarkan diri memperbaiki seluruh dataran.
 
-Sylvara mengatur jaringan pengungsi melalui busur tanpa cahaya. Panah biasa diberi pita warna untuk menandai jalur yang aman selama beberapa menit.
+Dia meminta setiap faksi mematikan satu sumber daya militer yang memberi tekanan pada leyline.
 
-Kael menyeimbangkan medan gravitasi lokal dengan Pulse merah dan biru. Tanpa entropi murni, dia tidak dapat merobek penghalang ketika jalur tertutup. Dia harus membentuk pijakan satu per satu.
+Beberapa menolak sampai retakan menelan gudang amunisi milik pihak paling keras kepala.
 
-Rombongan pertama berhasil lewat.
+Setelah itu negosiasi lebih cepat.
 
-Kemudian artileri dari utara menembak ke arah selatan. Peluru melewati koridor dan mengubah gravitasi menjadi pusaran.
+Tekanan turun.
 
-Kael menahan gelombang, sementara Zireth menanam jangkar bintang. Sylvara mengevakuasi anak-anak dan orang tua ke sisi lain.
+Retakan berhenti melebar.
 
-“Siapa yang menembak jalur kemanusiaan?” tanya Kael.
+Namun dari kedalamannya muncul cahaya putih.
 
-Tidak ada pihak mengaku.
+Sinyal Celestial.
 
-Residu kausal pada peluru menunjukkan pola yang lebih buruk. Sistem Pahlawan telah mengubah koordinat sasaran setelah tembakan dilepaskan, memastikan proyektil jatuh tepat di jalur pengungsi dan memicu saling tuduh.
-
-Dataran kembali retak.
-
-Di bawahnya terlihat ruang tanpa dasar tempat ribuan prajurit dari pertempuran sebelumnya masih terperangkap dalam gravitasi terbalik.
-
-Mereka bukan mayat.
-
-Mereka terus jatuh tanpa pernah mencapai dasar.
-
-Kael memandang koridor pengungsi, empat garis artileri, dan celah yang menyimpan ribuan orang.
-
-Membuka jalur kemanusiaan kini berarti menyelamatkan mereka yang tidak lagi berdiri pada sisi mana pun.
+Sesuatu terkubur di bawah medan perang jauh sebelum perang ini dimulai.

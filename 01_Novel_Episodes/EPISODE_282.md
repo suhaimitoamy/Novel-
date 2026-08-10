@@ -1,45 +1,31 @@
 # Episode 282 — Suara dari Retakan Realitas
 
-Kompas massa berhenti berputar ketika Kael menyentuh salah satu dinding yang tumpang tindih.
+Retakan berbicara dengan suara orang yang hidup di sisi lain.
 
-Di balik batu itu, sebuah keluarga sedang makan malam. Pada lapisan lain, ruangan yang sama menjadi ruang eksekusi. Pada lapisan ketiga, hanya ada tanah kosong dan pohon yang belum ditebang.
+Kael mendengar Sylvara memanggilnya dari tiga arah meski Sylvara asli berdiri di sebelah.
 
-Semua pemandangan memiliki berat.
+Satu versi memohon bantuan.
 
-“Ini bukan ilusi,” kata Kael.
+Dunianya sudah kehilangan Kael dan Zireth; retakan menelan kota mereka.
 
-Zevaron mengangguk. “Setiap retakan membawa hasil berbeda dari keputusan lama.”
+Mereka membuka komunikasi tanpa menyatukan ruang.
 
-Kael mengalirkan denyut tipis ke koordinat superposisi. Gema memisahkan dunia-dunia itu menjadi warna tekanan yang berbeda. Dia menemukan jalur Zireth melalui pola logam lengan bintang, tetapi sinyal Sylvara bercabang puluhan kali.
+Versi Sylvara menjelaskan bahwa dunianya memiliki Fragment yang berbeda distribusi tetapi masalah sama: realitas terlalu dekat frekuensinya.
 
-Di satu dunia, Sylvara mati di Aethelgard. Di dunia lain, dia menjadi pemimpin Celestial. Ada pula dunia tempat mereka tidak pernah bertemu.
+Kael bertanya apa yang membuat dunia itu unik.
 
-Suara Sylvara terdengar dari celah sempit di sisi jalan.
+Jawaban mengejutkan sederhana.
 
-“Kael, jangan ikuti yang memanggil paling keras.”
+"Kami tidak pernah membangun Vorth Aereth."
 
-Dia mendekat. Celah itu menampilkan Sylvara yang terluka, terperangkap di antara dua hari berbeda.
+Perbedaan sejarah menghasilkan tanda tangan besar.
 
-“Bagaimana aku tahu kau asli?”
+Mereka mulai membuat katalog bukan berdasarkan orang atau kekuatan, tetapi keputusan dunia: perang yang terjadi, kota yang tidak dibangun, hubungan yang berbeda.
 
-“Tidak tahu.” Perempuan itu tersenyum tipis. “Itu biasanya jawabanmu.”
+Setiap realitas memiliki identitas sendiri.
 
-Sebelum Kael dapat menariknya keluar, kota bergeser. Celah tertutup dan digantikan menara yang runtuh ke arah berlawanan.
+Mata Kesembilan Kael berubah dari melihat kemungkinan menjadi membaca perbedaan.
 
-Anomali waktu menyerang. Potongan masa lalu melintas seperti bilah, mengubah apa pun yang disentuhnya. Batu menjadi debu, lalu kembali menjadi magma. Seorang prajurit tua berubah menjadi anak-anak sebelum lenyap.
+Itu jauh lebih sehat.
 
-Kael menahan serangan dengan Keseimbangan fase. Dia tidak menghentikan waktu; dia menjaga tubuh mereka tetap berada pada satu riwayat.
-
-Di pusat anomali, dia melihat benang yang menghubungkan semua retakan. Benang itu tidak dibuat untuk menyatukan dunia, melainkan memaksa Kael memilih hasil mana yang layak dipertahankan.
-
-Seseorang telah mengubah keruntuhan Titik Nol menjadi ujian moral.
-
-Kael menarik kembali Pulse-nya.
-
-“Aku tidak akan memilih dunia mana yang berhak hidup.”
-
-Retakan menjawab dengan membuka jalur menuju pusat lapisan.
-
-Dari sana terdengar suara Zireth, sangat lemah namun nyata.
-
-“Bagus,” katanya. “Karena pusatnya sedang mencoba membuat pilihan itu untukmu.”
+Retakan sedikit stabil ketika kedua sisi saling menyatakan bukan siapa yang lebih asli, tetapi apa yang membuat mereka berbeda.

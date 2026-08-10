@@ -1,73 +1,33 @@
 # Episode 269 — Harga yang Dituntut Pengepungan Fragmen
 
-Relay Zireth terbakar dari dalam.
+Penurunan daya berhasil.
 
-Peta dua belas altar kehilangan warna satu demi satu. Kabel, kristal, dan jalur Logam Bintang yang dibangun selama perjalanan meleleh menjadi cahaya putih.
+Namun setiap Fragment meninggalkan satu area pertahanan lemah.
 
-“Dua menit,” kata Zireth. “Setelah itu kita tidak dapat berbicara dengan siapa pun.”
+Beberapa kota kehilangan pelindung cuaca. Satu pelabuhan Nyrathis terkena gelombang besar. Wilayah Fae mengalami malam tanpa mimpi. Tambang Dwarf berhenti total.
 
-Kael mempertahankan resonansi pusat. Setiap altar mengirim tarikan berbeda ke tubuhnya, tetapi beban tersebut dibagi oleh para penjaga lokal.
+Tidak ada solusi tanpa biaya.
 
-Untuk memutus pola Urdron, mereka membutuhkan keputusan terakhir yang berjalan melalui semua simpul sebelum jaringan mati.
+Dewan dua belas mulai saling menuntut kompensasi.
 
-Bukan serangan serentak.
+Kael tidak ikut menentukan angka.
 
-Pernyataan kepemilikan.
+Ia menyarankan mekanisme: wilayah yang paling sedikit terdampak membantu yang paling berat, lalu beban dihitung ulang setelah krisis.
 
-Setiap Fragmen harus mengakui penjaganya bukan sebagai pemilik, melainkan pihak yang bersedia menjaga jangkar tanpa mencabut atau menguasainya.
+Rakh tertawa. "Kau mencoba membuat ekonomi dari Jalan Keempat?"
 
-Kael mengirim pertanyaan melalui relay:
+"Jangan sebut itu."
 
-“Apakah kalian menerima batas tersebut?”
+Sistem bantuan tidak berjalan mulus. Ada kecurangan, keterlambatan, kemarahan.
 
-Jawaban tidak datang mudah.
+Tetapi kapal makanan tetap bergerak.
 
-Sebagian penjaga setuju. Beberapa raja menolak karena tidak mau kehilangan hak eksklusif. Di Xyphus, kelompok Warlock berdebat apakah Fragmen dapat dijaga tanpa dimanfaatkan. Di Aelarion, pendeta menganggap Sylvara yang kehilangan cahaya tidak pantas menjadi saksi.
+Harga perang yang dicegah tetap nyata.
 
-Waktu tinggal satu menit.
+Lebih murah daripada perang total, tidak berarti gratis.
 
-Sylvara berdiri di depan altar Elf dan menurunkan busurnya.
+Saat semua sibuk mengatur pemulihan, satu altar Fragment di dataran pusat terbuka sendiri.
 
-“Aku tidak meminta menjadi penjaga. Biarkan Fragmen memilih siapa pun yang bersedia menerima batasnya.”
+Bayangan manusia keluar dari dalamnya.
 
-Seorang anak penjaga hutan maju dari kerumunan. Dia tidak memiliki gelar atau kekuatan besar. Hanya membawa bibit Memory Tree yang selamat dari perang.
-
-Fragmen Aelarion menjawabnya.
-
-Di tempat lain, keputusan serupa muncul. Bukan selalu raja, pahlawan, atau panglima. Seorang pandai besi di Urdron. Seorang penyelam tua di Nyrathis. Seorang penyembuh Beastmen di Garundrax. Beberapa penguasa menerima peran bersama, yang lain ditolak jangkar sendiri.
-
-Pola Urdron mencoba menutup jaringan sebelum pilihan selesai.
-
-Zireth mengorbankan lapisan terakhir relay dan menyalurkan daya langsung dari lengan bintang. Retakan merambat dari telapak ke bahu.
-
-“Jaringan ini tidak akan pernah dapat kubangun lagi,” katanya.
-
-Kael tidak mengatakan pengorbanan itu sepadan. Dia hanya menjaga resonansi agar keputusan yang dipilih Zireth mencapai tujuan.
-
-Simpul terakhir menjawab.
-
-Dua belas Fragmen mengakui hubungan baru: penjagaan tanpa kepemilikan tunggal.
-
-Benang geometris Sang Arsitek retak di seluruh benua.
-
-Avatar pendeta kehilangan tubuh. Altar kembali diam, dan jangkar menanamkan diri lebih dalam pada ruang-waktu Zerath.
-
-Relay Zireth padam.
-
-Seluruh peta dunia menghilang dari The Core. Tidak ada lagi komunikasi seketika, koordinasi lintas benua, atau cara memantau dua belas Fragmen dalam satu pandangan.
-
-Lengan bintang Zireth tetap menempel, tetapi fungsi jaringan yang menjadi karya terbesarnya telah terbakar permanen.
-
-Dia menatap sisa logam dan kristal yang hangus.
-
-“Aku membangun itu agar dunia dapat terhubung.”
-
-Kael berdiri di sampingnya. “Hubungannya tidak hilang. Hanya tidak lagi bergantung pada satu mesin.”
-
-Zireth tidak langsung menerima penghiburan tersebut.
-
-Di luar The Core, para penjaga kini harus berbicara melalui perjalanan, utusan, dan kepercayaan yang lebih lambat.
-
-Pengepungan berakhir.
-
-Namun saat altar-alter tenang, satu bayangan tertinggal dalam jaringan yang padam—salinan Kael yang dibuat dari seluruh data resonansi selama beberapa tahun terakhir.
+Wajahnya Kael.

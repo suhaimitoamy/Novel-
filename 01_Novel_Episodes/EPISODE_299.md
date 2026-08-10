@@ -1,51 +1,31 @@
 # Episode 299 — Harga yang Dituntut Penyelamatan Sylvara
 
-Jalur pulang berhenti beberapa langkah sebelum tertutup.
+Arsip fase membutuhkan satu hal dari Sylvara.
 
-Kael masih dapat melihat rumahnya melalui celah. Api belum mencapai atap. Ibunya berdiri di jalan dengan wajah yang kini dia ingat lebih jelas daripada sebelumnya.
+Memori temporal yang dia simpan tentang Ilyr muda menjadi kunci unik jalur masa lalu. Kalau diserahkan, memori itu tidak lagi berada dalam pikirannya.
 
-Sylvara melepaskan tangannya. “Kau bisa mengatakan sesuatu.”
+Sylvara diam lama.
 
-Kael mendekati batas, tetapi tidak menyeberang.
+"Aku memilih menyimpannya. Sekarang aku harus memilih melepas."
 
-“Aku minta maaf,” katanya.
+Kael tidak memberi saran.
 
-Ibunya tersenyum. “Untuk apa?”
+Sylvara akhirnya menyerahkan memori.
 
-Kael memiliki terlalu banyak jawaban.
+Bukan karena sistem berhak mengambil, tetapi karena ia menilai fungsi memori lebih besar sebagai anchor yang menjaga ribuan orang tidak terseret waktu.
 
-Karena tidak datang lebih cepat. Karena bertahan hidup. Karena terus menjadikan kematiannya alasan untuk menyakiti diri. Karena berharap satu retakan dapat menghapus semua tahun setelahnya.
+Sebelum dilepas, dia menceritakan isi penting kepada Kael dan Zireth.
 
-“Aku tidak tahu.”
+Setelah transfer, detail emosinya hilang dari dirinya.
 
-“Itu jawaban yang jujur.”
+Ia tahu fakta bahwa Ilyr pernah berbeda, tetapi tidak lagi merasakan momen melihatnya.
 
-Api mencapai jalan.
+Harga itu nyata.
 
-Kael dapat membuka Pulse dan menghentikannya. Dia merasakan cukup energi untuk mengubah satu rumah, satu kematian, mungkin seluruh kota.
+Sylvara menangis sedikit dan marah karena dirinya menangis.
 
-Tetapi masa kini di belakangnya mulai memudar setiap kali amplitudo naik.
+Kael duduk di samping.
 
-Zireth, Zevaron, para komandan, dan jutaan orang yang hidup karena rangkaian keputusan setelah kehancuran Aranyel kehilangan bentuk.
+Penyelamatan bukan pengembalian ke keadaan sebelum luka.
 
-Kael menurunkan tangannya.
-
-“Aku harus pergi.”
-
-“Aku tahu.”
-
-“Dan aku tetap memilihmu, meski tidak bisa membawamu.”
-
-Ibunya mengangguk.
-
-Jalur menutup di antara mereka.
-
-Kael kembali kehilangan rumahnya. Kali ini bukan karena dia tidak cukup kuat, melainkan karena dia memilih tidak memakai kekuatan untuk mencuri masa kini dari orang lain.
-
-Harga itu lebih tajam daripada ketidakberdayaan.
-
-Sylvara berdiri di sampingnya tanpa berkata apa-apa. Setelah beberapa saat, Kael mengizinkannya menggenggam tangan kanannya.
-
-Mereka meninggalkan lingkar peristiwa.
-
-Di belakang Kael tidak ada lagi jalan ke rumah. Hanya satu kenangan yang akhirnya diterima sebagai miliknya, bukan sebagai utang yang harus dibayar dunia.
+Kadang berarti memilih luka mana yang bersedia dibawa setelah semua opsi diperiksa.

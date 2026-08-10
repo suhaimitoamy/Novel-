@@ -1,43 +1,35 @@
 # Episode 284 — Harga yang Dituntut Retakan Realitas
 
-Kael berdiri di depan dunia yang tidak mengenalnya.
+Solusi global membutuhkan anchor dari setiap realitas.
 
-Aranyel tetap utuh. Anak-anak bermain di jalan. Ibunya hidup sampai tua di rumah kecil yang tidak pernah terbakar. Tidak ada patung, lagu perang, atau cerita tentang Furyborn.
+Bukan satu orang.
 
-Zerath selamat tanpa dirinya.
+Satu peristiwa yang tidak bisa disamakan dengan dunia lain.
 
-“Jangan menyentuh retakan,” kata Zireth.
+Setiap realitas harus memilih memori sejarah yang rela dijadikan tanda tangan publik lintas dunia.
 
-Kael sudah tahu. Dunia itu bukan masa lalu yang dapat diperbaiki. Ia adalah hasil lengkap dari keputusan berbeda. Bila Kael masuk, dua riwayat akan saling menekan sampai salah satunya runtuh.
+Harga: rahasia.
 
-Namun dia melihat wajah-wajah yang mati dalam dunianya berjalan hidup di sana.
+Beberapa dunia punya tragedi yang mereka sembunyikan. Yang lain kemenangan yang ternyata dibangun di atas kejahatan.
 
-Zevaron berdiri beberapa langkah di belakang. “Kau tidak menyebabkan semua penderitaan yang terjadi setelah kedatanganmu.”
+Untuk bertahan terpisah, mereka harus mengakui sesuatu yang membuat mereka berbeda.
 
-“Aku juga tidak bisa berpura-pura tidak menjadi bagian darinya.”
+Kael melihat dunia alternatif menolak karena anchor mereka adalah genosida yang tidak pernah tercatat.
 
-Anomali memakai keraguan itu. Retakan melebar, menawarkan pertukaran sederhana: biarkan dunia damai menggantikan dunia mereka.
+Tidak ada paksaan.
 
-Tidak perlu pertempuran. Tidak perlu menutup luka satu per satu. Cukup terima bahwa hasil tanpa Kael lebih baik.
+Mereka diberi waktu mencari anchor lain.
 
-Kael menempelkan tongkat Eira ke tepi celah. Dia merasakan jutaan kehidupan di kedua sisi. Tidak ada cara menghitung mana yang lebih berharga.
+Akhirnya memilih kelahiran satu kota pengungsi yang tidak ada di dunia lain.
 
-“Aku tidak berhak menghapus mereka,” katanya.
+Tanda tangan tidak harus luka terbesar.
 
-“Yang mana?” tanya Zireth.
+Cukup sesuatu yang benar-benar mereka miliki.
 
-“Keduanya.”
+Jaringan anchor mulai terbentuk.
 
-Kael memisahkan benang pengendali dari retakan, bukan menutup dunianya. Dunia damai tetap ada, tetapi hubungannya dengan Zerath dilemahkan sampai tidak lagi saling menekan.
+Realitas berhenti bergetar sedikit demi sedikit.
 
-Tindakan itu membuatnya kehilangan akses pada jalur termudah. Dia tidak dapat lagi memakai dunia tersebut sebagai bukti bahwa semua kesalahannya bisa dihapus.
+Namun lima tanda tangan Kael muncul pada satu simpul.
 
-Sebelum celah menutup, Kael melihat ibunya berdiri di depan rumah. Perempuan itu menoleh seakan merasakan tatapannya, lalu tersenyum kepada seseorang yang berada di luar pandangan.
-
-Bukan kepadanya.
-
-Retakan menjadi garis tipis.
-
-Kael tidak menangis. Rasa sakitnya terlalu tenang untuk keluar sebagai air mata.
-
-Dia menerima kenyataan yang lebih berat daripada hukuman: mungkin ada dunia yang lebih bahagia tanpa dirinya, dan itu tidak membatalkan tanggung jawabnya terhadap dunia yang memilih hidup bersamanya.
+Lima versi dirinya sedang menuju tempat sama.

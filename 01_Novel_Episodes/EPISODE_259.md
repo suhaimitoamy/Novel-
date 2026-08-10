@@ -1,57 +1,37 @@
 # Episode 259 — Harga yang Dituntut Pengkhianatan Celestial
 
-Zevaron jatuh setelah ritual pecah.
+Ilyr kalah bukan karena Kael lebih kuat.
 
-Kael menangkap tubuhnya sebelum menghantam lantai. Darah emas terus mengalir dari luka tempat sayap kiri pernah berada, sementara sayap kanan bergerak tidak seimbang dan menarik bahunya ke satu sisi.
+Jaringan High Choir kehilangan kepatuhan.
 
-“Jangan menatap seperti itu,” kata Zevaron di sela napas. “Aku yang menyuruhmu memutusnya.”
+Satu demi satu beacon berhenti menerima perintah pusat. Penjaga memilih melindungi warga daripada menutup gerbang. Teknisi membagi akses kunci ke beberapa dewan lokal.
 
-Kael tetap merasa tebasan tersebut berada di tangannya, meski cahaya yang melakukannya berasal dari tombak Aerthys.
+Cahaya Ilyr melemah.
 
-Para hakim mundur ke ruang takhta. Pasukan istana terpecah. Sebagian melindungi dewan, sebagian membuka jalan bagi warga yang ingin melihat arsip sendiri.
+Ia memandang kota yang tidak lagi bergerak serentak.
 
-Jenderal Aerthys berdiri di depan pintu terakhir.
+"Kalian akan menyesal saat kekacauan datang."
 
-“Kalian menunjukkan rahasia kepada rakyat yang tidak memahami bebannya. Ketika kepanikan menghancurkan Rhythor, darah mereka menjadi tanggung jawab kalian.”
+Kael menjawab, "Mungkin. Tapi penyesalan itu akan milik mereka juga."
 
-Zevaron mencoba bangkit. Hanya satu sayap yang terbuka, membuat tubuhnya hampir jatuh lagi.
+Harga perubahan besar langsung terlihat.
 
-“Rakyat bukan anak-anak yang harus dibohongi sampai mati.”
+Tanpa kontrol pusat, lalu lintas langit kacau. Dua platform bertabrakan ringan. Sistem distribusi energi gagal di satu distrik.
 
-Aerthys menyerang.
+Warga mengeluh.
 
-Kael menahan tombak dengan tongkat Eira. Tanpa entropi, tubuh rusak, dan satu tangan yang masih berfungsi, dia tidak mampu mengalahkan jenderal melalui kekuatan. Dia memakai pantulan cahaya istana untuk memperlihatkan setiap gerakan Aerthys kepada para prajurit di belakang.
+Tidak ada utopia instan.
 
-Pola serangan sang jenderal identik dengan ritual dewa. Setiap teknik mengambil energi dari prajurit yang terikat sumpah kepadanya.
+Mereka harus belajar koordinasi baru.
 
-“Mereka bukan pasukanmu,” kata Kael. “Mereka bahan bakar.”
+High Choir dibubarkan sementara, bukan seluruh budaya Celestial dihancurkan.
 
-Prajurit-prajurit melihat cahaya dari tubuhnya mengalir ke tombak Aerthys. Satu orang memutus sumpah. Lalu yang lain.
+Ilyr ditahan oleh dewan mereka sendiri.
 
-Kekuatan jenderal melemah.
+Sebelum dibawa, ia memberi peringatan:
 
-Zevaron berdiri dengan bantuan dinding dan mengangkat tangan. Dia tidak melepaskan badai. Hanya satu perintah sederhana:
+"Arsitek tidak takut pada kebebasan kalian. Ia takut pada Fragment yang akan aktif serempak. Dan kalian sudah terlalu dekat."
 
-“Pilih sendiri.”
+Peta relai berbunyi.
 
-Sebagian prajurit menurunkan senjata. Sebagian tetap bersama Aerthys. Tidak ada kemenangan bersih yang menyatukan seluruh Lykaros.
-
-Kael dan Zevaron memasuki ruang takhta setelah jenderal dipaksa mundur. Dewan telah melarikan diri melalui jalur cahaya menuju kuil para dewa.
-
-Di atas takhta tertinggal mahkota ritual yang dirancang untuk Zevaron.
-
-Dia mengangkatnya, menatap pantulan tubuhnya yang kini hanya memiliki satu sayap, lalu menghancurkan mahkota tersebut dengan tangan kosong.
-
-Pecahannya melukai telapak dan membuat darah emas menetes ke lantai.
-
-“Sayap ini tidak akan tumbuh kembali,” kata Zireth melalui komunikasi setelah memeriksa luka. “Jalur regenerasinya ikut dipotong dari jiwa.”
-
-Zevaron diam cukup lama.
-
-Dia telah kehilangan gelar, dukungan sebagian legiun, dan sekarang satu bagian tubuh yang menjadi lambang rasnya.
-
-“Aku pernah mengira sayap membuktikan kami lebih dekat pada langit,” katanya. “Ternyata ia juga rantai yang mudah dipegang.”
-
-Lykaros selamat dari ritual hari itu.
-
-Namun Dewan Celestial membawa sisa perjanjian dewa ke tempat lain, dan perang di daratan terus bergerak tanpa menunggu luka Zevaron menutup.
+Dua belas titik berdenyut hampir bersamaan.

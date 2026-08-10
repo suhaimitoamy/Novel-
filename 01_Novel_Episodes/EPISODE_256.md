@@ -1,47 +1,43 @@
 # Episode 256 — Jejak Pengkhianatan Celestial
 
-Zevaron kembali ke Lykaros sebagai buronan.
+Ilyr Vael tidak bersembunyi.
 
-Istana Langit berdiri di atas lapisan awan yang dipadatkan menjadi jalan dan menara. Dahulu setiap gerbang mengenali darahnya. Kini segel-segel cahaya berubah merah saat dia mendekat.
+Ia muncul dalam transmisi publik mengenakan jubah Keeper putih.
 
-“Keluargaku membangun tempat ini,” katanya. “Sekarang pintunya menganggapku ancaman.”
+"Dunia bawah mengaktifkan Fragment sebagai senjata. High Choir memilih menjaga sisa struktur langit sendiri."
 
-Kael berjalan dengan tongkat di sisinya. Sylvara dan Zireth tetap berada di kapal tersembunyi untuk menjaga jalur keluar, sementara sekelompok kecil prajurit Celestial yang menolak perintah karantina membantu dari dalam.
+Kael menunjukkan log relai yang diputus menggunakan kredensial Ilyr.
 
-Tujuan mereka bukan merebut istana.
+Keeper tidak menyangkal.
 
-Mereka ingin membongkar catatan dewan yang menjual perang kepada para dewa dan mengaktifkan Sistem Pahlawan di Rhythor.
+"Aku mematikan sensor karena sistem itu membiarkan ras bawah memantau aset Celestial."
 
-Zevaron memakai jalur pelayanan tua menuju sayap arsip. Setiap lorong dipenuhi patung leluhur yang matanya mengikuti langkah mereka. Kael membaca segel cahaya pada dinding dan menemukan lapisan kedua yang tidak dibuat bangsa Celestial.
+"Dan tanpa sensor, resonansi perang tidak terdeteksi."
 
-Pola Sistem tertanam di bawah rune kerajaan.
+"Kesalahan mereka tetap milik mereka."
 
-“Dewan tidak hanya menerima nubuat,” kata Kael. “Mereka menyerahkan akses ke pertahanan, garis darah, dan ritual suksesi.”
+Kael merasa marah pada cara Ilyr memisahkan tanggung jawab.
 
-Zevaron menahan amarahnya. “Sebagai imbalan apa?”
+Jejak lebih dalam menunjukkan High Choir sengaja memperbesar beberapa gangguan agar kota bawah meminta perlindungan Celestial.
 
-Mereka menemukan jawabannya di ruang arsip tersembunyi.
+Bukan bekerja untuk Arsitek.
 
-Rekaman memperlihatkan Jenderal Aerthys dan para hakim cahaya berbicara dengan proyeksi dewa tanpa wajah. Mereka menjanjikan pasukan, perang, dan kepatuhan rakyat. Sebagai balasan, Rhythor akan diberi pemimpin abadi yang tidak pernah ragu atau berubah.
+Ambisi sendiri.
 
-Tubuh yang dipilih adalah Zevaron.
+Itu penting.
 
-Bukan sebagai raja.
+Tidak semua kejahatan membutuhkan dalang kosmik.
 
-Sebagai wadah dewa baru.
+Seraphis mengirim data sejarah: High Choir lama percaya ketertiban hanya aman jika Celestial memegang nada referensi dunia.
 
-Zevaron memandangi diagram tubuhnya yang dipenuhi jalur penggantian jiwa.
+Versi lain dari pusat tunggal.
 
-“Seluruh hidupku dipersiapkan untuk ini.”
+Kael meminta audiensi.
 
-Langkah kaki terdengar dari luar.
+Ilyr menjawab dengan satu syarat: Kael datang tanpa dua belas panji.
 
-Jenderal Aerthys masuk bersama para hakim cahaya. Di belakangnya berdiri prajurit yang pernah dilatih Zevaron sendiri.
+Dia setuju.
 
-“Pangeran,” kata sang jenderal, “pencabutan gelarmu hanya tahap pertama. Bangsa kita masih membutuhkan tubuhmu.”
+Tidak sendirian.
 
-Segel istana menutup semua jalan keluar.
-
-Pemberontakan kecil Zevaron telah berhasil mencapai bukti.
-
-Kini seluruh Lykaros bergerak untuk memastikan bukti itu tidak pernah meninggalkan istana.
+Sylvara dan Zireth ikut.

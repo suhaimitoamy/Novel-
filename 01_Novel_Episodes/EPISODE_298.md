@@ -1,47 +1,31 @@
 # Episode 298 — Benturan Penyelamatan Sylvara
 
-Api Aranyel berubah menjadi makhluk tanpa wajah.
+Pusat Labirin adalah simpul waktu yang terus mencoba memilih satu sejarah konsisten.
 
-Ia memakai suara korban, tubuh prajurit lama, dan bayangan rumah yang pernah terbakar. Setiap serangan membawa kenangan yang membuat Kael ragu menangkis.
+Semua jalur alternatif dianggap error dan ditekan.
 
-Sylvara belum sepenuhnya keluar dari lingkar. Separuh tubuhnya berada pada masa lalu, separuh pada jalur pulang.
+Itulah sumber bocor: kemungkinan yang ditekan mencari jalan keluar ke dunia nyata.
 
-“Jangan lepaskan,” katanya.
+Kael melihat pola Arsitek, tetapi sistem ini lebih tua.
 
-Kael menggenggam tangannya dengan satu tangan dan menahan tongkat Eira dengan tangan lain. Dia menggunakan isolasi kausal, memisahkan Sylvara dari peristiwa satu lapis demi satu lapis.
+Bukan dalang.
 
-Api menyerang dari belakang dengan wajah ibunya.
+Filosofi serupa muncul alami: satu sejarah terasa lebih mudah dikelola.
 
-Kael tidak menghancurkannya. Dia menggeser fase agar serangan melewati tubuh mereka tanpa menyentuh struktur hari.
+Mereka tidak bisa membiarkan semua garis waktu terbuka bebas, tetapi juga tidak harus memusnahkan jalur alternatif.
 
-Setiap penghindaran membuat rumah di kejauhan terbakar sesuai sejarah.
+Zireth menyarankan arsip fase: jalur yang tidak dipilih dipisahkan sebagai kemungkinan dorman, tidak dipaksa menjadi realitas aktif maupun dihapus.
 
-Sylvara melihat wajah Kael. “Kau tidak harus menonton.”
+Sylvara membantu menandai mana peristiwa yang sudah punya dependensi hidup.
 
-“Aku sudah terlalu lama hidup dengan versi yang kubuat sendiri.”
+Kael menjaga batas.
 
-Dia menonton.
+Simpul melawan karena beban penyimpanan meningkat.
 
-Menara runtuh. Jalan dipenuhi asap. Orang-orang berlari ke arah yang tidak akan menyelamatkan mereka. Ibunya kembali ke rumah untuk mengambil sesuatu yang tidak pernah diketahui Kael.
+Mereka mengorbankan sebagian prediksi masa depan sistem untuk ruang arsip.
 
-Lingkar peristiwa mencoba menariknya.
+Kemampuan meramal turun.
 
-Kael menurunkan amplitudo Pulse dan membiarkan api menyentuh kenangannya tanpa mengubah fakta. Rasa sakit itu menjadi recoil yang mengunci dirinya pada masa kini.
+Stabilitas naik.
 
-Sylvara akhirnya terlepas.
-
-Namun jalur pulang mulai menutup. Kael dapat melompat sekarang atau berlari ke rumah untuk satu percakapan terakhir.
-
-Ibunya berdiri di ambang pintu dan menatapnya dari jauh.
-
-Dia tidak memanggil.
-
-Kael memahami bahwa kenangan tersebut tidak meminta diselamatkan. Ia hanya meminta diakui.
-
-Kael membawa Sylvara melewati batas.
-
-Di belakang mereka, Aranyel kembali menuju kehancuran yang sama.
-
-Hari itu tidak berubah.
-
-Kael berubah karena memilih meninggalkannya lagi.
+Benturan selesai ketika Labirin berhenti merasa harus tahu satu-satunya masa depan.
